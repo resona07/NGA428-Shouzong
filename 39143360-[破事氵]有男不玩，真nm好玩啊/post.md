@@ -344,3 +344,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 是我之前没仔细看史书，想当然的脑补专版指导了，如果那人确实没手综成分，那这事情不应该让手综背锅![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid740536989">44.[2] \<pid:740536989\> 2024-01-30 04:03:24 by mianmi123</span>
+>[jump](#pid740536855) 对对双双(2024-01-30 03:57):
+
+你这话在人头已经滚三天后说出来真挺绷不住的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+哪怕对方是手综的，也没理由因为一句话让其他版块静谧三天吧 
+
+然后搞笑的是，这人还不是，只能说真是惹到棉花了呢![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740537123">45.[0] \<pid:740537123\> 2024-01-30 04:09:08 by 咸鱼二十九号</span>
+>[jump](#pid740536826) 迷蟹江(2024-01-30 03:55) 说: 
+>
+>题外话问问lz头像是？印象里有，想不起来![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+动漫点兔里的天天座理世
+

@@ -564,3 +564,9 @@ big brother is watching u![jojo立2](https://img4.nga.178.com/ngabbs/post/smile/
 
 早期评价比较好的单剧应该有&quot;沃伦姆德的薄雾&quot;，说是很有舟味儿
 
+----
+
+##### <span id="pid740536969">74.[2] \<pid:740536969\> 2024-01-30 04:02:16 by san’lumiere</span>
+![img](./74_d5bdc4sg.jpg)
+味大
+

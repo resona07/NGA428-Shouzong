@@ -53,3 +53,8 @@ mengan
 但是他们自己套皮让玩家和角色来舔自己
 我不明白，难道这不算麻辣么？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740537120">4.[0] \<pid:740537120\> 2024-01-30 04:09:03 by 团子A</span>
+fgo的cp算皮套吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
