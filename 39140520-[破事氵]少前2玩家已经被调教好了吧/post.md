@@ -155,3 +155,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740497327">25.[0] \<pid:740497327\> 2024-01-29 20:56:53 by zhjacksgyta</span>
 滑而不跪，我就爱他不跪的模样呢，莫名其妙想给他放首战歌了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)
 
+----
+
+##### <span id="pid740497810">26.[0] \<pid:740497810\> 2024-01-29 20:59:54 by ee艺术家～</span>
+>[jump](#pid740490696) 音无园香丶(2024-01-29 20:10) 说: 
+>
+>弃坑已久的少前1老玩家表示羽中还需要看他做什么吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)他现在嘴巴都不肯松口，估计是流水太惨了想跪又觉得跪自己心里过不去，我少前1应该勉强算重氪了吧
+>![img](./6_cdb87dg0.jpg)
+
+明明是我们这些凡人，对剧情不理解，欣赏不了羽中和星姐的大作![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+

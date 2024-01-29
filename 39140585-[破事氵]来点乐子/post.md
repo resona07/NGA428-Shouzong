@@ -81,3 +81,14 @@ gay shit配gay家军绝了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/a
 ##### <span id="pid740497116">12.[2] \<pid:740497116\> 2024-01-29 20:55:18 by darbox</span>
 小仙女的赛博刚交回旋镖还是打回米家头上了
 
+----
+
+##### <span id="pid740497909">13.[0] \<pid:740497909\> 2024-01-29 21:00:34 by 白川付田</span>
+以前是女装伪娘，现在是吃药药娘![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+希望达尔文进化论法则能筛选掉一些祸害
+
+----
+
+##### <span id="pid740499765">14.[0] \<pid:740499765\> 2024-01-29 21:13:12 by 异世-旅人</span>
+仙÷不是有分蔷薇姐姐吗？![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

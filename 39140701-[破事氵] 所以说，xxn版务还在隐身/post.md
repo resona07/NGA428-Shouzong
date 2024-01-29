@@ -273,3 +273,10 @@ solar又遭重了？最近没看星际比赛，上次影刀大高光都忘了什
 
 卧槽，我怕了，血别溅我身上![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
 
+----
+
+##### <span id="pid740497863">40.[1] \<pid:740497863\> 2024-01-29 21:00:16 by 尚未转职枪兵的幸运E</span>
+>[jump](#pid740497441) 溺水莲(2024-01-29 20:57):
+
+你记错了，是天选者F，我刚刚还去知乎搜了下这件事。那边有保存[url](https://www.zhihu.com/question/63570687/answer/211130645)
+

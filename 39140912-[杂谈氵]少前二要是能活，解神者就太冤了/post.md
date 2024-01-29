@@ -74,3 +74,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740497319">11.[0] \<pid:740497319\> 2024-01-29 20:56:50 by 渴望奶光</span>
 ![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)我得说一句，解牛者不管是改前还是改后，少昊giegie都是对你最好的一个，然而改后几个碧池还在，giegie几乎没了  ~~顺便那个xxn制作人也没开除，只是不在文案组了~~
 
+----
+
+##### <span id="pid740497816">13.[0] \<pid:740497816\> 2024-01-29 20:59:59 by 蓝色猫头</span>
+>[jump](#pid740495959) JAPGoroshi(2024-01-29 20:47) 说: 
+>
+>无人深空是真的在好好做游戏只是大水把制作组淹了而已![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+开放世界+单机的底子摆在这，只要自己肯堆料最后都能玩。
+
+手游，战旗，米池。这三个东西摆在这，，还有人觉得能复活，鸡吧都要笑裂了。 ![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
