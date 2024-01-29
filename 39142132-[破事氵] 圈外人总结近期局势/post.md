@@ -179,3 +179,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 越来越期待一年半载以后了，届时kl、yj、网易的新开放世界大作，与米mhy的新游戏都该齐聚一堂，在早已进入存量市场的“一般向”游戏中，尽情厮杀吧![奸笑](https://img4.nga.178.com/ngabbs/post/smile/)
 看戏看戏![喘](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740522152">28.[0] \<pid:740522152\> 2024-01-30 00:05:29 by 意图明显</span>
+最多是个严颜，我军只有断头将军，无降将军也
+![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+
+----
+
+##### <span id="pid740522935">29.[0] \<pid:740522935\> 2024-01-30 00:11:53 by 超越型莫德雷德</span>
+东吴还真没说错，打个破合肥永远打不下来，背刺打一起抗魏的倒是一等一的好手![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -170,3 +170,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 想什么呢，粉丝不会去玩的
 我喜欢的歌手给某游戏唱了一大堆歌我都没去玩过![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740522530">29.[1] \<pid:740522530\> 2024-01-30 00:08:28 by FeliciaStacy</span>
+>[jump](#pid740512396) 巴耶黎(2024-01-29 22:47):
+
+因为米桑卖cp的本质是拉两头公猪配种，而在见识了看起来像正常人的角色蹄子一掀开始搅屎之后![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)米桑特有的拿一般玩家的钱和厕妹双向奔赴![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+

@@ -220,3 +220,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740478913">33.[0] \<pid:740478913\> 2024-01-29 18:59:28 by samuel27</span>
 学习成本极高，高到厂商都分不清哪个buff是哪个乘区的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740522335">34.[0] \<pid:740522335\> 2024-01-30 00:07:00 by 玛尔灬扎哈</span>
+![惊](https://img4.nga.178.com/ngabbs/post/smile/ac27.png)原来真的有这么多有男不玩的玩家吗
+
+----
+
+##### <span id="pid740522507">35.[0] \<pid:740522507\> 2024-01-30 00:08:21 by over0074</span>
+不如美少女梦工厂
+有男不玩
+
+----
+
+##### <span id="pid740523165">36.[0] \<pid:740523165\> 2024-01-30 00:13:56 by 起个昵称都这么麻烦</span>
+>[jump](#pid740462619) 現實逃避_(2024-01-29 17:34):
+
+[![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)]  UP两个角色 一个烙痕池子各送50抽叫送得多
+

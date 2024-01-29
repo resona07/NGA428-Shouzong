@@ -43,3 +43,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 不过我本身已经不算mmorpg受众了，本来就想把逆水寒手游当单机来玩的，后来发现玩mmo太累了还是暂时搁置转战单机了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
 
+----
+
+##### <span id="pid740521982">7.[0] \<pid:740521982\> 2024-01-30 00:03:50 by 田园neko</span>
+想把妹可以玩，想玩mmo出门左转ff或者山口山
+
