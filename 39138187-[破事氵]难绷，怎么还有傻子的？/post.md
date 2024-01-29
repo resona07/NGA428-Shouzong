@@ -62,3 +62,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 冥川七夜？那个妈妈不让玩碧蓝航线，搁q群里口嗨说要拿烟灰缸爆头的？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740456397">9.[0] \<pid:740456397\> 2024-01-29 17:05:19 by 厄咒</span>
+啊，焰火来了啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740456648">10.[0] \<pid:740456648\> 2024-01-29 17:06:42 by 希卡力</span>
+![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)是大佬！
+

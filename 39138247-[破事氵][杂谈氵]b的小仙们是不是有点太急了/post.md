@@ -173,3 +173,26 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 有一说一，这个帖子隔壁发过了，而且你发言记录不收一收？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740456580">23.[3] \<pid:740456580\> 2024-01-29 17:06:19 by 红烧鲤鱼自顶向下方法</span>
+>[jump](#pid740453642) 彻木(2024-01-29 16:52):
+
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)隔壁发过跟我发出来有什么冲突吗，而且没收就不算开盒是吧
+
+----
+
+##### <span id="pid740457165">24.[0] \<pid:740457165\> 2024-01-29 17:09:19 by 彻木</span>
+>[jump](#pid740456580) 红烧鲤鱼自顶向下方法(2024-01-29 17:06) 说: 
+>
+>![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)隔壁发过跟我发出来有什么冲突吗，而且没收就不算开盒是吧
+
+算盒，但我感觉你也挺像天兵的
+
+----
+
+##### <span id="pid740457524">25.[0] \<pid:740457524\> 2024-01-29 17:11:06 by 红烧鲤鱼自顶向下方法</span>
+>[jump](#pid740457165) 彻木(2024-01-29 17:09):
+
+不敢不敢，我只喜欢看乐子![心](https://img4.nga.178.com/ngabbs/post/smile/)
+

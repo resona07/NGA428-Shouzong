@@ -137,3 +137,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 快进到仙雪米粥大乱斗，直接盒战争吧，喜欢炸版就多炸，炸的是版又不是人，外溢让更多人看到那更好了![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
 支持厂商养饭圈孝子搞仇恨教育堵嘴嗷，你搞你的，直接不玩
 
+----
+
+##### <span id="pid740457623">24.[0] \<pid:740457623\> 2024-01-29 17:11:35 by 黑色高級車</span>
+>[jump](#pid740452225) 我是社管有男不玩(2024-01-29 16:45) 说: 
+>
+>一边说米桑亲自开盒罪大恶极 一边又舍不得把双休舟友切掉还要说他们纯良
+>说白了就是玩玩情趣刷刷流量罢了
+>真要凹反盒人设早把那几个id封了  
+>下场做什么？给人刷流量有瘾啊
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)好，老哥说不下场。
+
+----
+
+##### <span id="pid740458036">25.[0] \<pid:740458036\> 2024-01-29 17:13:33 by zhoudawa</span>
+打起来，要看到血流成河![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

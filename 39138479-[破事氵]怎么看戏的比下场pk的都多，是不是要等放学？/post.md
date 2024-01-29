@@ -107,3 +107,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 晚上很难有好戏看。
 “总感觉很安静啊！街上没有人，和其他地方差别真大。”.jpg
 
+----
+
+##### <span id="pid740455668">17.[1] \<pid:740455668\> 2024-01-29 17:01:54 by 神代Loga</span>
+我就这一个号还是我想办法搞得威望![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看大人们打吧，我负责欢呼
+
+----
+
+##### <span id="pid740455943">18.[1] \<pid:740455943\> 2024-01-29 17:03:08 by blranger</span>
+我觉得别指望粥版下场了，赛博空袭把手综炸平了都不敢下场占领搁水楼里装棉花的人，你能指望她们有啥战斗力么，估计这段时间要看仙单独表演了
+
