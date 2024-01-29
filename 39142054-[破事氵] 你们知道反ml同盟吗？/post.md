@@ -315,3 +315,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我早就知道这群人什么德行了，手机有自己的生活梗，就是我传播到贴吧然后发扬光大的，我还能不明白？
 
+----
+
+##### <span id="pid740540288">47.[2] \<pid:740540288\> 2024-01-30 06:34:01 by 不可以色色的记录者！</span>
+>[jump](#pid740515426) 噬祂(2024-01-29 23:11):
+
+哈哈对对对，还有圆周率这个词![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

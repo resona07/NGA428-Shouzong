@@ -121,3 +121,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740538650">23.[0] \<pid:740538650\> 2024-01-30 05:33:11 by 点得着火的折子</span>
 玩混厕游戏的福报![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740540396">24.[0] \<pid:740540396\> 2024-01-30 06:38:45 by 莫洛AAA</span>
+“不要去打扰他们了”
+类似的话是不是不是第一次出现了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
