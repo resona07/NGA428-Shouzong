@@ -202,3 +202,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我相信他一定会把自己作死![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
 
+----
+
+##### <span id="pid740504428">34.[0] \<pid:740504428\> 2024-01-29 21:47:06 by fysx</span>
+肯定相信啊，本性难移，绝逼要爆一波大的![妮可妮可妮](https://img4.nga.178.com/ngabbs/post/smile/a2_18.png)
+
+----
+
+##### <span id="pid740504545">35.[0] \<pid:740504545\> 2024-01-29 21:47:56 by 我是社管有男不玩</span>
+我已经看到长篇大论相信翀哥的了
+就是那个是不是活人我不确定
+
+----
+
+##### <span id="pid740504756">36.[0] \<pid:740504756\> 2024-01-29 21:49:56 by 神代Loga</span>
+相信啊，越来越相信，相信他能把自己玩爆炸![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740504980">37.[0] \<pid:740504980\> 2024-01-29 21:51:30 by A1ik</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 我来帮你指出疑点，从内部和外部引进更多经验丰富的人才。人才指的是冥蝶军工和滑石圣殿骑士嘛？还是指的官群里的马丁?黛烟这种前管理员。抑或是r追放吧的塔布里斯和edm那样的人才？
+
+可以质疑的点多了去了。
+
+----
+
+##### <span id="pid740505211">38.[0] \<pid:740505211\> 2024-01-29 21:53:21 by 即逝的幻影</span>
+之前看知乎评价这个人说是报复心很强
+

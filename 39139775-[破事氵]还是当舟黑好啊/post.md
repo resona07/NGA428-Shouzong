@@ -994,3 +994,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740502869">144.[3] \<pid:740502869\> 2024-01-29 21:35:42 by 天笙梦绘</span>
 皱皮冰清玉洁 惹不起惹不起![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740504488">145.[1] \<pid:740504488\> 2024-01-29 21:47:33 by 在纽约的企鹅</span>
+>[jump](#pid740501637) 琴枯柳(2024-01-29 21:26) 说: 
+>
+>![img](./143_716edace.jpg)幽默周游
+
+这图牛逼啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

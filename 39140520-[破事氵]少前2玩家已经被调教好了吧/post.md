@@ -165,3 +165,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 明明是我们这些凡人，对剧情不理解，欣赏不了羽中和星姐的大作![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
 
+----
+
+##### <span id="pid740505160">27.[0] \<pid:740505160\> 2024-01-29 21:52:53 by Leloucho</span>
+>[jump](#pid740490696) 音无园香丶(2024-01-29 20:10) 说: 
+>
+>弃坑已久的少前1老玩家表示羽中还需要看他做什么吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)他现在嘴巴都不肯松口，估计是流水太惨了想跪又觉得跪自己心里过不去，我少前1应该勉强算重氪了吧
+>![img](./6_cdb87dg0.jpg)
+
+同跑路老玩家，我还等着给哪天给翀上坟呢，继续啊，加大力度![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![img](./27_faad3dd4.jpg)
+![img](./27_93068bd4.jpg)
+
+----
+
+##### <span id="pid740505857">28.[0] \<pid:740505857\> 2024-01-29 21:58:12 by Valano</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)养好了应该是
+《什么跪，根本没错，就是公关给大家演演戏你们还真信》
+

@@ -744,3 +744,16 @@ yysy，看到xxn和学生拿到点赛博权力就憋不住要去犯贱爆典还�
 
 ok谢谢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740504437">82.[2] \<pid:740504437\> 2024-01-29 21:47:09 by AyPete</span>
+>[jump](#pid740497288) 时之道标(2024-01-29 20:56) 说: 
+>
+>我不是很懂性别和这个有啥关系，你们玩游戏不看强度的吗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>为什么要考虑这个抽不抽那个抽不抽，不用全收集吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不是，你都贴条看到封禁“男不练”好爽了，还搁这跟性别没关系啊？
+
+要不你再看看这个？
+![img](./82_7c3ef12h.jpg)
+

@@ -90,3 +90,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740504141">14.[0] \<pid:740504141\> 2024-01-29 21:44:51 by 咸鱼君乙</span>
 解神者游戏本体比土豆2还拉，能活那么久也算是结晶给面子
 
+----
+
+##### <span id="pid740504473">15.[1] \<pid:740504473\> 2024-01-29 21:47:28 by 星姐专用检疫合格章</span>
+![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)那游戏也不咋好玩，跟荡妇2有一个毛病就是搞一堆专有名词，看的脑袋疼
+

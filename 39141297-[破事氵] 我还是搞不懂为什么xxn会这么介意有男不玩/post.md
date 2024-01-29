@@ -107,3 +107,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740502982">15.[3] \<pid:740502982\> 2024-01-29 21:36:24 by 至尊亚历山大</span>
 不然你以为所谓的&quot;高福利二游粥&quot;都是xxn在养还是法老做慈善![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740504258">16.[2] \<pid:740504258\> 2024-01-29 21:45:36 by Yosoroみお</span>
+>[jump](#pid740500380) NATFproposal(2024-01-29 21:17):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)简而言之就是xxn只需要龟男来做干电池，只管充钱别说话，让她们享受被捧着的感觉就行了。
+
+----
+
+##### <span id="pid740504931">17.[1] \<pid:740504931\> 2024-01-29 21:51:12 by Valano</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)xxn的存在基础是龟，万一大家学日服经验全摆了，那怎么办
+

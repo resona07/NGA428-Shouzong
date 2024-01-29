@@ -121,3 +121,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740504092">17.[0] \<pid:740504092\> 2024-01-29 21:44:27 by 快捷键将２２２</span>
 多出点男的吧，又可以穿黑丝又可以开奶窗，还免疫举报，当一个不受制约的策划真是太爽了，出啥女角色啊，呼呼哈哈后![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)
 
+----
+
+##### <span id="pid740504241">18.[1] \<pid:740504241\> 2024-01-29 21:45:29 by absordh2odemon</span>
+>[jump](#pid740504018) 月铮宁湖(2024-01-29 21:43) 说: 
+>
+>刘大伟又不是傻子，你们只能看到总流水，看不到每个池子的具体数据，他看得见。
+>
+>到底男池流水高还是女池流水高，黑丝小男孩流水高还是黑丝大姐姐流水高，他心里最好有点数。![img](./15_755a577f.png)
+
+如果是这样的话，须弥时代就应该转了
+
+现在出女纯粹是为了端水+平息舆论罢了
+
+----
+
+##### <span id="pid740504412">20.[0] \<pid:740504412\> 2024-01-29 21:47:00 by Yosoroみお</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我举双手支持好吧
+
+----
+
+##### <span id="pid740506092">21.[0] \<pid:740506092\> 2024-01-29 22:00:05 by absordh2odemon</span>
+>[jump](#pid740504412) Yosoroみお(2024-01-29 21:47) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我举双手支持好吧
+
+谢谢支持，希望米家可以早日回头，亡羊补牢，为时未晚。
+
+----
+
+##### <span id="pid740506261">22.[0] \<pid:740506261\> 2024-01-29 22:01:35 by 炎夏型鹿豹</span>
+支持，反正我不玩![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740506338">23.[0] \<pid:740506338\> 2024-01-29 22:02:14 by Ngchikrn</span>
+還真是，宅男爆不出米了已經![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -247,3 +247,20 @@ zsbd，这怎么还有mxz啊 艹![喷](https://img4.nga.178.com/ngabbs/post/smil
 
 拔出萝卜带出泥了属于是。不对，你不会就是大西大佐吧？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740505426">37.[0] \<pid:740505426\> 2024-01-29 21:54:58 by 己余李卯谷谭</span>
+Forget about Freeman!
+
+我們現在要撤離黑山基地了.
+
+----
+
+##### <span id="pid740505907">38.[0] \<pid:740505907\> 2024-01-29 21:58:36 by 蹦哒的鱼鱼</span>
+![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)虽然但是，按照语境，说的是伴舞米社管，和现版本对不上吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740505952">39.[0] \<pid:740505952\> 2024-01-29 21:59:00 by 一缕辰光</span>
+后面几期故事会没追，钢盆风评怎么这么急转直下![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+

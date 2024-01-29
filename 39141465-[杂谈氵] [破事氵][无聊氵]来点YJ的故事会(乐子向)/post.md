@@ -47,3 +47,46 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 差点忘了这个
 赶紧拉出来把里面重量级的标记一下![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740504216">8.[0] \<pid:740504216\> 2024-01-29 21:45:19 by Zhaozige</span>
+这个贴在上个月一大堆车米故事会里确实另类
+
+----
+
+##### <span id="pid740504228">9.[1] \<pid:740504228\> 2024-01-29 21:45:22 by 己顾杜壬魏张</span>
+你这跟火车上问买到票没有啥区别![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)。
+
+----
+
+##### <span id="pid740504234">10.[10] \<pid:740504234\> 2024-01-29 21:45:26 by SarDurkn_</span>
+贴条的一个月之前就在急![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)这下真相大白了
+
+----
+
+##### <span id="pid740504286">11.[9] \<pid:740504286\> 2024-01-29 21:45:51 by skq000</span>
+第一页就不少熟人啊，还有某个刚被叉出去的路人
+
+----
+
+##### <span id="pid740505255">12.[1] \<pid:740505255\> 2024-01-29 21:53:40 by 轮回转动</span>
+>[jump](#pid740503028) Mélusine003(2024-01-29 21:36):
+
+你这个号实在是笑死我了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 不好意思唐突回复，不认识你，没有善意，也没有恶意![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我只是眼熟你这个号，之前高强度冲锋在反米第一线的头号战士兼MT，假如反米是一种魔怔，你绝对是头号魔怔人了(只是一种修辞，反盒不魔怔)。但是前段时间不小心惹到舟友了，那叫一顿团建，暴打，我看他们都直接给你打成米家社管了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我以为你这号从此肯定销声匿迹，不是对线对的被封滚蛋，就是自己破防滚蛋。没想到你还在，倒是舟友先自爆了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 哦，说自爆有点幽默了，只是把手综爆了罢了，但起码手综路人是再也没法直视棉花了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+怎么样，这段时间的感觉是不是像过山车一样？网络生活真是太刺激辣![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid740505264">13.[4] \<pid:740505264\> 2024-01-29 21:53:43 by 弗罗西诺内</span>
+不算匿名,568次舟版集美出现,眼睛有点花,500到600之间吧
+
+----
+
+##### <span id="pid740505966">14.[0] \<pid:740505966\> 2024-01-29 21:59:07 by 闪刀姬</span>
+突然想起来，当初他们说盆三中三是从其他地方知道的，那这楼棉花舅舅这么多，不知道有几个人中了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+总不能这么舅含金量还不如盆吧
+

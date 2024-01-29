@@ -191,3 +191,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740503918">28.[0] \<pid:740503918\> 2024-01-29 21:43:10 by Zhaozige</span>
 我觉得太复杂了，不如龙门xx简单明了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740504275">29.[2] \<pid:740504275\> 2024-01-29 21:45:45 by nextGenerationBell</span>
+>[jump](#pid740502301) Mélusine003(2024-01-29 21:31):
+
+他大概算半个日本人了？刘伟见了他大概不鞠躬90度也得45度。
+
+但说归说，我不知道现在教科书怎么教，我当年近代史课纲都不教日俄战争，就课外补充里放了很短一节，照顾大局如此，我不指望铁拳会多重视这个问题![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)
+
