@@ -138,3 +138,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740533022">20.[0] \<pid:740533022\> 2024-01-30 02:09:20 by absordh2odemon</span>
 我非常支持，具体可以看我的分析贴
 
+----
+
+##### <span id="pid740533432">21.[1] \<pid:740533432\> 2024-01-30 02:17:13 by UID3244105</span>
+确实，因为我有男不玩![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+----
+
+##### <span id="pid740533569">22.[1] \<pid:740533569\> 2024-01-30 02:19:30 by 诸爱得彼福</span>
+>[jump](#pid740532918) 东亚内卷之王(2024-01-30 02:07) 说: 
+>
+>我ntr题材爱好者我也支持了。ntr爱好者才是一般向游戏的流水主力。发声太小而一直没有得到厂商的优待，应该多出各种各样的ntr剧情。![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+少前2就是因为公测后删了ntr剧情才导致流水暴跌的，这就是忽视主流的代价![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
