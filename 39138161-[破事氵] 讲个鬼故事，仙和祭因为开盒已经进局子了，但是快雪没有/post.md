@@ -284,3 +284,15 @@ yj也干了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)这么想�
 无所谓，反正让路人知道你们也是盒勾就行了。![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 仙曲开你们盒就是狗咬狗。
 
+----
+
+##### <span id="pid740463270">48.[0] \<pid:740463270\> 2024-01-29 17:38:13 by 神綺凪</span>
+>[jump](#pid740461059) FlankLEE(2024-01-29 17:27) 说: 
+>
+>我哪里委屈了，我都快笑死了，粥解解怕不是气的神志不清了吧，只要玩过米桑游戏就成仙曲了？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+>无所谓，反正让路人知道你们也是盒勾就行了。![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+>仙曲开你们盒就是狗咬狗。
+
+都不知道谁要笑死了，被人戳穿就急到随便扣帽子
+这下除了你以外大家都是盒勾了，要不你报晶吧，我们就在地球，跑不了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

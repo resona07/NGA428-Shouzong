@@ -36,3 +36,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740461539">4.[0] \<pid:740461539\> 2024-01-29 17:29:41 by 怀素o</span>
 钢盆消息源是沪系厂商员工吹水，他自己就是个二手消息爆料商![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740461892">5.[1] \<pid:740461892\> 2024-01-29 17:31:15 by Dorothy_Goddess</span>
+![img](./5_6f10cesg.jpg)
+zsbd
+
+----
+
+##### <span id="pid740462439">6.[0] \<pid:740462439\> 2024-01-29 17:33:58 by nextGenerationBell</span>
+>[jump](#pid740461892) Dorothy_Goddess(2024-01-29 17:31):
+
+那其实，算是给收敛哥发担保了？这是在收敛哥第二贴之后发的吗？
+
+----
+
+##### <span id="pid740463436">7.[0] \<pid:740463436\> 2024-01-29 17:38:54 by Dorothy_Goddess</span>
+>[jump](#pid740462439) nextGenerationBell(2024-01-29 17:33) 说: 
+>
+>那其实，算是给收敛哥发担保了？这是在收敛哥第二贴之后发的吗？
+
+第二篇以后
+
+----
+
+##### <span id="pid740464180">8.[0] \<pid:740464180\> 2024-01-29 17:42:47 by 永劫539</span>
+>[jump](#pid740463436) Dorothy_Goddess(2024-01-29 17:38) 说: 
+>
+>第二篇以后
+
+有时间的，钢盆说这话是12月12日说的，收敛哥的时间我看了下我的截图日期也是12月12日![img](./8_58dacexh.jpg)
+

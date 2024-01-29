@@ -59,3 +59,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740449019">7.[0] \<pid:740449019\> 2024-01-29 16:31:41 by 不同的故事</span>
 一方面是要掌握话语权，另一方面是习惯了被优待的吸血生活吧
 
+----
+
+##### <span id="pid740449207">8.[2] \<pid:740449207\> 2024-01-29 16:32:32 by dkas333</span>
+真实的故事![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740462603">9.[0] \<pid:740462603\> 2024-01-29 17:34:47 by 55小玮555</span>
+>[jump](#pid740447101) Anticlock(2024-01-29 16:23) 说: 
+>
+>我用我的生活经验告诉你，她们这种想法不分性别的，只是男女观念上更容易体现![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)而且往往在现实中会表现出难以置信的惊世智慧
+
+是的，对象不分男女![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+像什么“妈妈不认同女儿爱好”“大妈怒骂coser衣衫不整”都是能在女厕引起广泛共情的话题，以至于好像还有公司找大妈和coser在地铁上按着这剧本演戏蹭热度来着![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

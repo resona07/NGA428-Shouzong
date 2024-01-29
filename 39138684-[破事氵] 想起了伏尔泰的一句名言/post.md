@@ -125,3 +125,16 @@ To learn who rules over you, simply find out who you are not allowed to criticiz
 
 这下黑色高级轿车真的来了
 
+----
+
+##### <span id="pid740461673">17.[0] \<pid:740461673\> 2024-01-29 17:30:16 by 银月永存</span>
+我以为你要说老实人![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+老实人，被赶出了地上的乐园，茫无目的，走了好久，一边哭一边望着天，又常常回头望那座住着最美的男爵小姐的最美的宫堡。晚上饿着肚子，睡在田里；又遇着大雪。
+
+----
+
+##### <span id="pid740464148">18.[1] \<pid:740464148\> 2024-01-29 17:42:34 by 氢hydrogen</span>
+>[jump](#pid740460924) 兮决(2024-01-29 17:26):
+
+知其一,但不知其二.大概就是您吧
+
