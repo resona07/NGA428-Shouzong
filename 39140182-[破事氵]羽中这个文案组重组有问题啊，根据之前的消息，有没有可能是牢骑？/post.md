@@ -66,3 +66,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740483910">10.[1] \<pid:740483910\> 2024-01-29 19:28:55 by AshLine</span>
 牛头人骑士最近不是不怎么冒头了么，可能真给羽中抓去加班了，结晶龟有福了
 
+----
+
+##### <span id="pid740484155">11.[2] \<pid:740484155\> 2024-01-29 19:30:15 by 有男不玩，是米不碰</span>
+换工位不能算换人？引进社管不算文职？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740484528">12.[0] \<pid:740484528\> 2024-01-29 19:32:30 by 君浅熵</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)重组不等于裁员
+
+----
+
+##### <span id="pid740485008">13.[0] \<pid:740485008\> 2024-01-29 19:35:29 by 结晶熊猫</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我没记错的话少前1刚上线时候牢骑确实写过DP28的ML(大概吧)同人
+
+----
+
+##### <span id="pid740485142">14.[0] \<pid:740485142\> 2024-01-29 19:36:19 by 不同的故事</span>
+牢骑和星姐换一下姿势？
+

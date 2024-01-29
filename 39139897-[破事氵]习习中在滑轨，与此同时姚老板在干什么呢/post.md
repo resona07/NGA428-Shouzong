@@ -114,3 +114,52 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740483921">17.[0] \<pid:740483921\> 2024-01-29 19:29:00 by 魔域真主</span>
 别急，等我追放日服出了必登顶给你看！！！![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)当年黄鸡能日服爆火一波翻盘，我羽中何尝不能![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740484272">18.[0] \<pid:740484272\> 2024-01-29 19:30:56 by 风之拂晓</span>
+滑什么了，这叫《致玩家一封信》，这可是盒厂的精髓![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+![img](./18_d0f68doz.jpg)
+
+----
+
+##### <span id="pid740484348">19.[1] \<pid:740484348\> 2024-01-29 19:31:29 by fervent987</span>
+>[jump](#pid740482097) FlexibleGuo(2024-01-29 19:18) 说: 
+>
+>发生什么事了
+
+这次剧情好消息是hina塑造的非常好很惹人怜爱，坏消息就是除了hina以外的角色全部都走了一遍公式化刻板印象的剧情过场包括但不限于煮饭婆又被美食研抓走了、朱莉又做黑暗料理做出总力战boss了、温泉部到处钻地又被关进去了把格黑娜所有角色拿出来走过场全垫给hina了，别的厨子不高兴打起来也很正常，但是有些人说的话跟饭圈似得就让我觉得挺不合适的。
+
+----
+
+##### <span id="pid740485084">20.[0] \<pid:740485084\> 2024-01-29 19:35:58 by MBT96B</span>
+>[jump](#pid740483097) FlexibleGuo(2024-01-29 19:23):
+
+叠个甲:
+个人认为:
+BA现在问题是角色过多加产能不足，导致大多数角色形象偏单薄与角色刻画的不平衡。
+
+----
+
+##### <span id="pid740485652">21.[0] \<pid:740485652\> 2024-01-29 19:39:25 by FlexibleGuo</span>
+>[jump](#pid740485084) MBT96B(2024-01-29 19:35) 说: 
+>
+>叠个甲:
+>个人认为:
+>BA现在问题是角色过多加产能不足，导致大多数角色形象偏单薄与角色刻画的不平衡。
+
+其实就是产能，如果这大半年有实际意义的活动剧情的话其实还不至于让人这么不满，总体就是感觉，挣了好多，结果还跟以前一样长草![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)能洗的地方只有“最终章一口气放完”这个点了
+
+----
+
+##### <span id="pid740486367">22.[0] \<pid:740486367\> 2024-01-29 19:43:40 by pafeng</span>
+31号开fes，和米桑还有一战
+
+----
+
+##### <span id="pid740486613">23.[0] \<pid:740486613\> 2024-01-29 19:45:07 by 即逝的幻影</span>
+>[jump](#pid740478782) aisqgl(2024-01-29 18:58) 说: 
+>
+>真滑轨吗？如滑![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)他甚至是制作组致信而不是致歉信
+
+颇有异曲同工之妙![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![img](./23_4473c9oz.jpg)
+
