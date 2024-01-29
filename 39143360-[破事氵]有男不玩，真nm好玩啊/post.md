@@ -486,3 +486,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这段时间在泥板收的图
 总之，有男不玩![哦嗬嗬嗬](https://img4.nga.178.com/ngabbs/post/smile/a2_09.png)
 
+----
+
+##### <span id="pid740541108">61.[0] \<pid:740541108\> 2024-01-30 07:03:48 by OMO猫</span>
+就是有男不玩![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740541400">62.[0] \<pid:740541400\> 2024-01-30 07:12:23 by 甲空玉癸星神</span>
+>[jump](#pid740532983) CourierSix(2024-01-30 02:08) 说: 
+>
+>对恶魔有用，对异形，异端和叛乱分子的作用就不好说了
+>之前不是也有在来自星尘底下喊有男不玩的吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+就算没用，也不会有害![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+还是那句话，凡是否定扭曲解构怀疑“有男不玩”的，成份大概率有问题![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

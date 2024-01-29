@@ -137,3 +137,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740537538">14.[0] \<pid:740537538\> 2024-01-30 04:28:15 by HLJJ12138</span>
 有点高效
 
+----
+
+##### <span id="pid740541309">15.[0] \<pid:740541309\> 2024-01-30 07:09:39 by Molotov鸡尾酒</span>
+~~帝国坟场~~阿富汗
+战争泥潭![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740541485">16.[0] \<pid:740541485\> 2024-01-30 07:14:20 by old_driver</span>
+~~宇宙中心~~NGA手综版![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
