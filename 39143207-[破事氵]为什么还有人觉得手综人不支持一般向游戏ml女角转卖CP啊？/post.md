@@ -152,3 +152,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 少前2就是因为公测后删了ntr剧情才导致流水暴跌的，这就是忽视主流的代价![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740535216">23.[1] \<pid:740535216\> 2024-01-30 02:56:18 by 一德格拉米诺斯</span>
+按下加速按钮.jpg![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+

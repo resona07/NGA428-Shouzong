@@ -1409,3 +1409,36 @@ cp厨下面的单独分支白河豚也是这样的捏![冷笑](https://img4.nga.
 
 这不是标准情头格式吗？兄弟还是看的比较少吧？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740534855">166.[0] \<pid:740534855\> 2024-01-30 02:47:03 by terry424</span>
+>[jump](#pid740534452) asd92570689(2024-01-30 02:37) 说: 
+>
+>这不是标准情头格式吗？兄弟还是看的比较少吧？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+为啥不能是宿敌![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740534925">167.[1] \<pid:740534925\> 2024-01-30 02:48:49 by a257b103</span>
+>[jump](#pid740534855) terry424(2024-01-30 02:47) 说: 
+>为啥不能是宿敌![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+相爱相杀是吧，太合适了。
+![img](./15_3283bd31.png)
+
+----
+
+##### <span id="pid740534963">168.[0] \<pid:740534963\> 2024-01-30 02:49:44 by 扣扣扣扣子</span>
+为什么kol都能买瓜版的社管羽中就买不起呢
+
+----
+
+##### <span id="pid740534978">169.[0] \<pid:740534978\> 2024-01-30 02:49:56 by 一个路过吃瓜的</span>
+幸好我跑得快![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)  ![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740535130">170.[0] \<pid:740535130\> 2024-01-30 02:54:10 by 影响567</span>
+咋锁啦![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
