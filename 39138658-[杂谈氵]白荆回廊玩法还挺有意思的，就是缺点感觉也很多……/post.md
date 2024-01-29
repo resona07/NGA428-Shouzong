@@ -205,3 +205,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740475534">30.[1] \<pid:740475534\> 2024-01-29 18:40:46 by 布霖的猫</span>
 ![img](./30_c93c00sg.jpg)
 
+----
+
+##### <span id="pid740477160">31.[1] \<pid:740477160\> 2024-01-29 18:49:31 by 幽行鶴羽</span>
+有男不玩，况且初始卡池男角色都过半了，这游戏社区得阴湿成什么样子![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740477810">32.[1] \<pid:740477810\> 2024-01-29 18:53:17 by 快捷键将２２２</span>
+一切缺点都可以克服，除了有男![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740478913">33.[0] \<pid:740478913\> 2024-01-29 18:59:28 by samuel27</span>
+学习成本极高，高到厂商都分不清哪个buff是哪个乘区的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

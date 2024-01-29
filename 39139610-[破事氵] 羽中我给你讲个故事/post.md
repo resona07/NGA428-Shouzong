@@ -8,3 +8,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 考虑到你从小可能没有父母，没有人给你讲过，现在我给你补上![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 ![img](./0_7203c7m8.jpg)
 
+----
+
+##### <span id="pid740476569">1.[1] \<pid:740476569\> 2024-01-29 18:46:18 by Mélusine003</span>
+羊羊好可爱啊，好想……![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./1_7dde8764.gif)
+
