@@ -46,3 +46,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740506023">7.[0] \<pid:740506023\> 2024-01-29 21:59:32 by 肯定是假的</span>
 意思是找资源的时候兴奋的不行，找到了索然无味
 
+----
+
+##### <span id="pid740514193">8.[0] \<pid:740514193\> 2024-01-29 23:01:27 by bsbot</span>
+正常，我色图也是现找现冲，旧的存起来都没怎么翻过
+![img](./8_68399b2r.jpg)
+
+----
+
+##### <span id="pid740514688">9.[0] \<pid:740514688\> 2024-01-29 23:05:30 by 流苏酱</span>
+>[jump](#pid740504714) asteroidsssss(2024-01-29 21:49) 说: 
+>
+>你这个我懂，我steam库大把没玩的游戏，但是看着就很有满足感
+
+我的steam库下好的游戏图标在右半边桌面摆了五列，但是我每次打开电脑做的事情还是在搜steam商店找游戏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -115,3 +115,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 解神者这个质量的游戏，如果不爆雷的话，大概率也是开服一两月掉榜没声音的玩意。
 
+----
+
+##### <span id="pid740515446">19.[0] \<pid:740515446\> 2024-01-29 23:11:36 by LACTaurus</span>
+解牛者本身游戏质量一坨，在厂商内卷的时代活不久的，但滑轨是真滑的彻底![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)少前2要是和解牛者一样滑轨说不定真能成嗷，毕竟有IP铁杆粉撑着。
+

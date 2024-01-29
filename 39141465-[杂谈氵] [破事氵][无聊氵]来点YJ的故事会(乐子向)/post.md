@@ -314,3 +314,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740513792">41.[3] \<pid:740513792\> 2024-01-29 22:58:09 by HNFTYH</span>
 妈的，好像一堆赛博犹太人搬了张桌子围在那嗑瓜子唠嗑，然后指挥一堆赛博奴隶在前面填线坑。
 
+----
+
+##### <span id="pid740514938">42.[3] \<pid:740514938\> 2024-01-29 23:07:23 by ljn23500</span>
+>[jump](#pid740506937) 弗罗西诺内(2024-01-29 22:06) 说: 
+>
+>是全部出现过,两千楼我都标记了。
+
+卧槽，大佬牛逼，这才是史官![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740515414">43.[2] \<pid:740515414\> 2024-01-29 23:11:22 by 甲翟辰苏冉</span>
+粥人看都在吹鹰角高压线高得离谱，结果来自星尘被钢盆三中三![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+![img](./43_63e325sg.jpg)
+
+----
+
+##### <span id="pid740515774">44.[0] \<pid:740515774\> 2024-01-29 23:14:12 by 猫助啊</span>
+粥版集美魅力时刻，字字珠玑，不是厕妹太飒了![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+![img](./44_d2ea05yj.jpg)
+

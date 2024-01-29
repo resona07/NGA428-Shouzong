@@ -203,3 +203,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740513671">31.[0] \<pid:740513671\> 2024-01-29 22:57:08 by aisqgl</span>
 确实，他们镍币出女角色难受，我们没乐子看也难受，真不如直接全男，全龙也行
 
+----
+
+##### <span id="pid740515503">32.[1] \<pid:740515503\> 2024-01-29 23:12:06 by 琴枯柳</span>
+确实，多出点男的吧，看隔壁两个乙游这么好的成绩，一般向游戏流水不高肯定是少出男角色导致的![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
