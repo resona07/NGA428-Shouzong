@@ -157,3 +157,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740535216">23.[1] \<pid:740535216\> 2024-01-30 02:56:18 by 一德格拉米诺斯</span>
 按下加速按钮.jpg![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
 
+----
+
+##### <span id="pid740538472">24.[0] \<pid:740538472\> 2024-01-30 05:21:35 by 彻木</span>
+牢牢记住，混厕即一般向二游里，角色是有自己的生活的，![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)ml转cp只是主角魅力不行，玩家玩混厕游戏是没资格提要求的
+

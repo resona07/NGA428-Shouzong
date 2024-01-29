@@ -169,3 +169,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我这里只讨论600 8黑的价格具体是多少，至于他是否很贵，是否要可穿整期池子不在讨论范围内
 答案就是2700左右 并不是5000 或者6000
 
+----
+
+##### <span id="pid740538503">24.[0] \<pid:740538503\> 2024-01-30 05:23:39 by BakaEustia</span>
+>[jump](#pid740538328) ftz1993721(2024-01-30 05:13):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)有没有可能，这游戏有双八黑池
+
