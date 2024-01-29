@@ -82,3 +82,53 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740499057">12.[2] \<pid:740499057\> 2024-01-29 21:08:27 by GoldenMoon24</span>
 我看你们不如去瓜版从头翻一遍然后复制转帖吧……
 
+----
+
+##### <span id="pid740500155">13.[1] \<pid:740500155\> 2024-01-29 21:15:47 by 风舞丶弥</span>
+我建议你还是直接说独立城邦龙门
+
+----
+
+##### <span id="pid740500395">14.[0] \<pid:740500395\> 2024-01-29 21:17:12 by daydreamfool</span>
+我总是那么记得这些事情在米家肃清手粽如日中天之前，在这里看过一遍的![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+----
+
+##### <span id="pid740500596">15.[1] \<pid:740500596\> 2024-01-29 21:18:41 by 己顾杜壬魏张</span>
+好好好，快点把红船也抬上来吧。
+
+----
+
+##### <span id="pid740500782">16.[2] \<pid:740500782\> 2024-01-29 21:20:02 by 轮回转动</span>
+你们啊，还真不如去瓜版翻翻。考考古，别挖坟。看一乐。
+
+[url](https://bbs.nga.cn/read.php?tid=27962203)
+[url](https://bbs.nga.cn/read.php?tid=27970629)
+[url](https://bbs.nga.cn/read.php?tid=27992170)
+
+第一个顺便还能看看当时米学长的嘴脸，不好吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740500959">17.[4] \<pid:740500959\> 2024-01-29 21:21:14 by nextGenerationBell</span>
+不就是日俄战争吗
+
+友商都直接和日俄战争的日本旗舰联动了，到头来除了孝子岁来岁去也没铁拳。说难听的现在日俄战争本身就是舆论尴尬点，咱要骂肯定要日俄一起骂，然后就涉及友好睦邻的远东领土归属了，怎么扯都是烂账
+
+![img](./17_e73723a3.jpg)
+
+----
+
+##### <span id="pid740501288">18.[1] \<pid:740501288\> 2024-01-29 21:23:52 by 潜水员tassadar</span>
+就。。。这？
+
+----
+
+##### <span id="pid740501856">19.[0] \<pid:740501856\> 2024-01-29 21:28:03 by Mélusine003</span>
+你猜猜蝗中以前是和谁搭伙的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740502028">20.[0] \<pid:740502028\> 2024-01-29 21:29:17 by AyPete</span>
+讲真，你这个让我回想起古早粥版某乌冬节奏，带都带不明白。不如继续骂xxn
+
