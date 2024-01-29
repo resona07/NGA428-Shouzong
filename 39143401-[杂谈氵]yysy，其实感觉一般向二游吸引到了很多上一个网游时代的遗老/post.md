@@ -148,3 +148,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)大环境是一模一样的现在的新出的网游也不准搞卖数值了.基本都是赛季制为主.氪佬最多领先进度但是上限差不多.
 遗老人家也是玩自己以前网游的IP游戏,比如梦幻西游手游，倩女幽魂手游,逆水寒手游这种的.跟二游压根不是一个群体.
 
+----
+
+##### <span id="pid740538698">19.[0] \<pid:740538698\> 2024-01-30 05:35:53 by 铸匠熔金</span>
+玩传奇的玩不玩米我不好说，我魔兽怀旧服公会的真有好几个买金如洒水的土豪在国服关了后转米全家桶了，在他们眼里一个角色比一件热门职业bis都便宜，这不是爽玩？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+~~然后这版本崩铁xxn角色剧情就劝退了一个，都是福报啊！~~
+

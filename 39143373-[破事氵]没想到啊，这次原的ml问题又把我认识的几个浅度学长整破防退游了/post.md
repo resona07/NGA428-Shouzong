@@ -116,3 +116,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740537782">22.[0] \<pid:740537782\> 2024-01-30 04:41:24 by abasiyaluo2</span>
 原神文案最牛逼的一点就是头铁，“不要去打扰别人”这个句式被骂了几次了，结果每次都来，你说这不是故意的谁信？换正常公司早就选择不加这句话或者换个其他收尾句了。已经逐步成为一种笑话了。
 
+----
+
+##### <span id="pid740538650">23.[0] \<pid:740538650\> 2024-01-30 05:33:11 by 点得着火的折子</span>
+玩混厕游戏的福报![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
