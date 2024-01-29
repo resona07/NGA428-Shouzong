@@ -208,3 +208,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740515503">32.[1] \<pid:740515503\> 2024-01-29 23:12:06 by 琴枯柳</span>
 确实，多出点男的吧，看隔壁两个乙游这么好的成绩，一般向游戏流水不高肯定是少出男角色导致的![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 
+----
+
+##### <span id="pid740516192">33.[0] \<pid:740516192\> 2024-01-29 23:17:46 by UID62794341</span>
+好好好，就得狠狠的收赛博彩礼![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+爆鬼男金币，给xxn养面首
+

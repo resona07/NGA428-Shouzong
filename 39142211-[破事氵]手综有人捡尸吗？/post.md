@@ -123,3 +123,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740514829">19.[0] \<pid:740514829\> 2024-01-29 23:06:36 by 明日下山</span>
 小号被封了大号反而没事，幸存者报道![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740516369">20.[0] \<pid:740516369\> 2024-01-29 23:19:05 by 约束的现世</span>
+现在活着的贴多了 不会不发癫了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

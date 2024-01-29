@@ -163,3 +163,17 @@ muted![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
 ![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)好好的氪啥金啊
 
+----
+
+##### <span id="pid740516142">26.[0] \<pid:740516142\> 2024-01-29 23:17:24 by ぽ海贼船ぽ</span>
+难绷，那这NGA会员真的没用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740516428">27.[0] \<pid:740516428\> 2024-01-29 23:19:32 by Dorothy_Goddess</span>
+>[jump](#pid740516142) ぽ海贼船ぽ(2024-01-29 23:17) 说: 
+>
+>难绷，那这NGA会员真的没用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+就是个改名卡![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)真没啥用
+

@@ -31,3 +31,53 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 不明白为什么活就可以想想死了哪些![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740516018">5.[3] \<pid:740516018\> 2024-01-29 23:16:25 by 好累，想睡</span>
+>[jump](#pid740515705) 魔王呀(2024-01-29 23:13) 说: 
+>
+>不明白为什么活就可以想想死了哪些![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+他可能好奇的是这个，毕竟他是第一个死的![img](./5_238512sg.png)
+
+----
+
+##### <span id="pid740516083">6.[8] \<pid:740516083\> 2024-01-29 23:16:59 by 第十九扇门的背后</span>
+>[jump](#pid740515705) 魔王呀(2024-01-29 23:13) 说: 
+>
+>不明白为什么活就可以想想死了哪些![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+止水洗的是不能车粥，还活着的这个嘛，意思就是“大伙没多大仇，要多多支持xx制作的单机哦”![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740516233">7.[0] \<pid:740516233\> 2024-01-29 23:18:06 by 止水-3</span>
+>[jump](#pid740516018) 好累，想睡(2024-01-29 23:16) 说: 
+>
+>他可能好奇的是这个，毕竟他是第一个死的![img](./5_238512sg.png)
+
+可能是应为我这个号没在舟版发过言不够纯吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)无所谓了这个号没了在换一个
+
+----
+
+##### <span id="pid740517050">8.[0] \<pid:740517050\> 2024-01-29 23:24:06 by 止水-3</span>
+>[jump](#pid740516083) 第十九扇门的背后(2024-01-29 23:16) 说: 
+>
+>止水洗的是不能车粥，还活着的这个嘛，意思就是“大伙没多大仇，要多多支持xx制作的单机哦”![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+有一说一![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)我没说后半句
+
+----
+
+##### <span id="pid740517209">9.[0] \<pid:740517209\> 2024-01-29 23:25:12 by 好累，想睡</span>
+我不是拉黑了吗，怎么还能回来
+
+----
+
+##### <span id="pid740517840">10.[0] \<pid:740517840\> 2024-01-29 23:30:05 by Dorothy_Goddess</span>
+>[jump](#pid740517209) 好累，想睡(2024-01-29 23:25) 说: 
+>
+>我不是拉黑了吗，怎么还能回来
+
+NGA只有屏蔽没拉黑，你没办法阻止某个人回复![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -300,3 +300,26 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740515716">43.[0] \<pid:740515716\> 2024-01-29 23:13:43 by blranger</span>
 剧情方面先把雷排明白再谈有的没的吧，走都走不明白还想着跑呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740516111">44.[0] \<pid:740516111\> 2024-01-29 23:17:12 by 剑已归</span>
+>[jump](#pid740515513) asd92570689(2024-01-29 23:12) 说: 
+>
+>谁在乎呢？就他这种猪鼻操作结晶都跑路一堆，再看看他请那些贵物商单加起来没到20w播放，刀谁？或者说谁在乎？tnl之前的操作能来是之前的环境还行，现在这个时代是大出脑时代，是由猛干领衔，他羽中亲自添砖加瓦的时代，所以谁在乎？写呗比在他手里，还有差不多得了攻势得配合大量孝子和社管，现在他这个难说，以及玩家现在的忍耐阈值可比两年低太多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只要结晶多…
+
+----
+
+##### <span id="pid740516334">45.[0] \<pid:740516334\> 2024-01-29 23:18:48 by IA2499274810</span>
+花岗岩直播里有一个xz就喜欢bb，就不能翻篇吗，减小影响力，他改了，什么什么的，都是过去的事情了
+
+----
+
+##### <span id="pid740516839">46.[0] \<pid:740516839\> 2024-01-29 23:22:32 by asd92570689</span>
+>[jump](#pid740516111) 剑已归(2024-01-29 23:17) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只要结晶多…
+
+我看不够，他们那结晶要是够还至于在专版那个没两个人的地方有时还能被狠狠踩头![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

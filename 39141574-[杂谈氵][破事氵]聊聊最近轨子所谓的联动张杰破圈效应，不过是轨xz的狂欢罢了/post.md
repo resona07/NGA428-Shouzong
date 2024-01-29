@@ -154,3 +154,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这不但缩水几十倍，评论全是厕妹腐女辱骂乙大妈滚去玩乙游，米哈游多卖南桐爱看，和当年海咔一模一样
 我们崩铁真的有福了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740515856">26.[0] \<pid:740515856\> 2024-01-29 23:14:53 by 木之白</span>
+感觉不如逆战
+
+----
+
+##### <span id="pid740516275">27.[0] \<pid:740516275\> 2024-01-29 23:18:22 by 东方谷早苗</span>
+好奇如果2.6再送个男的，那不是得有两个赛博爹了。
+
+----
+
+##### <span id="pid740516536">28.[0] \<pid:740516536\> 2024-01-29 23:20:17 by linkaM</span>
+想什么呢，粉丝不会去玩的
+我喜欢的歌手给某游戏唱了一大堆歌我都没去玩过![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
