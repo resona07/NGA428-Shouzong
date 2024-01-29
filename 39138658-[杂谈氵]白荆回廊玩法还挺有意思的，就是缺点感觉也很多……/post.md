@@ -265,3 +265,47 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 TX家的游戏， 你觉得会没PVP吗？
 别急，赛马娘前3个月也是没有PVP的哦![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740524901">40.[2] \<pid:740524901\> 2024-01-30 00:30:00 by mikolll</span>
+不玩![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740525095">41.[0] \<pid:740525095\> 2024-01-30 00:31:53 by CureFlora</span>
+>[jump](#pid740460039) 帝辛子受(2024-01-29 17:22) 说: 
+>
+>我的评价是别急，看这群人能牛到什么时候，赛马娘类游戏的宿命就是坐牢
+
+最好孝的是它们居然觉得TX直接出手的游戏会没有PVP![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740525526">42.[0] \<pid:740525526\> 2024-01-30 00:35:57 by druMidEA</span>
+>[jump](#pid740524807) CureFlora(2024-01-30 00:29) 说: 
+>
+>TX家的游戏， 你觉得会没PVP吗？
+>别急，赛马娘前3个月也是没有PVP的哦
+
+挺好的 要不你描述一下或者推荐一下一个释放技能要暂停的游戏怎么pvp吧
+
+就算真的做出来了那也是lol人机变成lol天梯了 他也不会变成金铲铲啊![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740525877">43.[0] \<pid:740525877\> 2024-01-30 00:39:21 by 帝辛子受</span>
+>[jump](#pid740525095) CureFlora(2024-01-30 00:31):
+
+没事，懒得管了，我赛马娘要过周年庆了，我一个月前拿了100抽，我下个月还有一百抽以上![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+----
+
+##### <span id="pid740525902">44.[0] \<pid:740525902\> 2024-01-30 00:39:31 by yaoguanh</span>
+xx不玩
+
+----
+
+##### <span id="pid740526261">45.[0] \<pid:740526261\> 2024-01-30 00:42:46 by 悬崖边的不倒翁</span>
+![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)白的战斗方式不是跟叔叔家的缅北二游席尔一样的？
+前者是南桐元素过大 后者是有福瑞还有好感系统 福瑞那贴个爱心看着都膈应
+

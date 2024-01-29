@@ -164,3 +164,11 @@ OK
 
 因为ba被快雪开那个帖子最后吵起来了没吵出个结果，我还以为是那个帖子的后续呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740525492">18.[0] \<pid:740525492\> 2024-01-30 00:35:41 by 不是，还能这样</span>
+>[jump](#pid740521927) Dorothy_Goddess(2024-01-30 00:03):
+
+那贴子最后应该也没切个明白![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+证人之一现在在坐牢，还是比较抽象的
+

@@ -464,3 +464,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 等他复活,会有link的
 
+----
+
+##### <span id="pid740524985">61.[7] \<pid:740524985\> 2024-01-30 00:30:52 by ZYQGZENX</span>
+看完83页，太恐怖了，这是什么吃人棉花田吗
+标记了400多个，都要超过手综常驻非棉花人口了
+脑子快要炸了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
