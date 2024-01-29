@@ -244,3 +244,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 滴，学生卡
 ![img](./37_8a1124sg.jpg)
 
+----
+
+##### <span id="pid740487491">40.[1] \<pid:740487491\> 2024-01-29 19:50:36 by 乌拉旗舰号</span>
+滴，学生卡![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![img](./40_43ba6egf.jpg)![img](./40_0bd6b7is.jpg)
+
+----
+
+##### <span id="pid740487762">41.[0] \<pid:740487762\> 2024-01-29 19:52:18 by 有冇搞錯</span>
+![img](./41_e3ed11g0.jpg)
+过几天出的
+

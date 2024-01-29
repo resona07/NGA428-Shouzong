@@ -163,3 +163,12 @@ BA现在问题是角色过多加产能不足，导致大多数角色形象偏单
 
 颇有异曲同工之妙![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![img](./23_4473c9oz.jpg)
 
+----
+
+##### <span id="pid740487874">24.[0] \<pid:740487874\> 2024-01-29 19:53:06 by tmacx4</span>
+>[jump](#pid740479421) 一念の差(2024-01-29 19:02) 说: 
+>
+>热知识：赚钱的池子后天才开![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我看了官推推送都惊了，fes后天才开这几天发100抽开的俩池子里还有一个是猴王，你们到底都在氪些什么东西啊，礼包吗![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+

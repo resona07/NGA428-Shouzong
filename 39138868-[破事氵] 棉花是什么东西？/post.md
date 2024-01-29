@@ -445,3 +445,23 @@ xxn粥批权限狗4000+
 
 这应该是某个群体的习惯了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740487000">63.[0] \<pid:740487000\> 2024-01-29 19:47:32 by 浮世之华</span>
+>[jump](#pid740459014) 永劫539(2024-01-29 17:17) 说: 
+>
+>![img](./6_10da2ci5.jpg)
+>
+>这个的代称。  这段话的衍生
+
+不怎么混论坛，我第一次见的这个格式的话还是yys钞贵王的时候，公屏里面应声虫一直在发，原来是方舟吗，一个只在乎强度和肉鸽的方舟玩家表示，乐悲我.jpg![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740488427">64.[0] \<pid:740488427\> 2024-01-29 19:56:20 by 卑鄙斯坦德</span>
+>[jump](#pid740480793) old_driver(2024-01-29 19:10) 说: 
+>
+>也兴许是帕鲁救了你![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
+
+对不起，是我错怪帕鲁了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

@@ -29,3 +29,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740485730">4.[1] \<pid:740485730\> 2024-01-29 19:39:51 by 94646843z</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看了这几天的手综，到底是所有游戏都能找到米的影子，还是米是所有恶意的集合体我暂且蒙古
 
+----
+
+##### <span id="pid740487910">5.[0] \<pid:740487910\> 2024-01-29 19:53:19 by 化骨咩咩掌</span>
+米式开会式道歉
+
