@@ -55,3 +55,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740448455">7.[0] \<pid:740448455\> 2024-01-29 16:29:05 by 彼养的卡丘</span>
 纳说话方式和行为风格  有一种早年贴吧冥川七夜的美   不过区别在于纳有自己的小群拉人头和他一起过家家了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740455215">8.[0] \<pid:740455215\> 2024-01-29 16:59:40 by 不是，还能这样</span>
+>[jump](#pid740448455) 彼养的卡丘(2024-01-29 16:29):
+
+冥川七夜？那个妈妈不让玩碧蓝航线，搁q群里口嗨说要拿烟灰缸爆头的？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

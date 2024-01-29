@@ -726,3 +726,52 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 转移话题干什么？解释一下主楼哪里尬黑了啊？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740453058">94.[7] \<pid:740453058\> 2024-01-29 16:49:40 by 逆飞的磐岩</span>
+>[jump](#pid740450405) 胜利的誓约(2024-01-29 16:37):
+
+首先，洗地的都很默契地不提主楼的钩子，这不是骂的很到位吗？都不知道怎么回复？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+其次，转移话题干什么，猛干语录复读快半年了，大伙累了吗，偶尔出现当个怀旧服不是挺乐的吗？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+第三，名为daiyan的配件和复活的雷蒙，鉴定为不完整吃追放瓜，二手烟现在为什么会更不上版本？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740453965">95.[8] \<pid:740453965\> 2024-01-29 16:53:51 by 壬辛饶壬桂寇</span>
+一群周÷开始急了，这就是yj会撞死所有粥除的含金量吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+有些人对海猫这坨屎真的真心实意啊
+
+----
+
+##### <span id="pid740454356">96.[0] \<pid:740454356\> 2024-01-29 16:55:38 by 胜利的誓约</span>
+>[jump](#pid740453058) 逆飞的磐岩(2024-01-29 16:49) 说: 
+>
+>首先，洗地的都很默契地不提主楼的钩子，这不是骂的很到位吗？都不知道怎么回复？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+>
+>其次，转移话题干什么，猛干语录复读快半年了，大伙累了吗，偶尔出现当个怀旧服不是挺乐的吗？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+>
+>第三，名为daiyan的配件和复活的雷蒙，鉴定为不完整吃追放瓜，二手烟现在为什么会更不上版本？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+首先, 之前看到的洗地帖子里, 屠夫走烈士路(劣势)这个解释已经是公式解了, 主楼自己都知道这个洗地说法了 &quot;明明dota玩家都是这么叫的罢&quot;, 再听我复读一遍很有营养吗?
+默契不提?
+你不知道吧![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
+其次, 猛干语录的使用频率可是大大减少了, 你自己想想猛干语录1.0时的盛况, 再看看现在? 老梗真的无聊
+第三, 现在的版本是星姐![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740454482">97.[0] \<pid:740454482\> 2024-01-29 16:56:19 by 普露璐特</span>
+>[jump](#pid740414354) h26hxutz(2024-01-29 13:47) 说: 
+>
+>就是原图上的，一点没改
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)上次看到这图，还有人说是p的
+
+----
+
+##### <span id="pid740454791">98.[0] \<pid:740454791\> 2024-01-29 16:57:39 by Zhaozige</span>
+屠夫钩子、埃及法老还有个啥来着
+
