@@ -96,3 +96,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 强度绑定，你不玩她家咯咯都不行
 
+----
+
+##### <span id="pid740537350">15.[0] \<pid:740537350\> 2024-01-30 04:19:11 by glotia</span>
+和挺多因素有关系的，最大的关系是狗屎圣遗物养成系统和垃圾的要死的福利导致很多人没得选，只能x不抽x不练，有群众基础堵不了嘴的。
+
