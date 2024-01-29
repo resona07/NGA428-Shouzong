@@ -608,3 +608,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740434167">78.[0] \<pid:740434167\> 2024-01-29 15:23:38 by Mélusine003</span>
 看不懂了，你们加油![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid740450870">80.[0] \<pid:740450870\> 2024-01-29 16:40:01 by 丑康甄癸屈刁</span>
+首先盒狗4000+
+这种赛博生命突然复活，带连它自己都讲不明白的节奏的还是警惕些比较好![img](./80_93a427es.jpg)
+
