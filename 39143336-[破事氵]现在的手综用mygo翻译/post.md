@@ -23,3 +23,59 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./1_f377bdeg.jpg)
 zsbd
 
+----
+
+##### <span id="pid740532542">2.[0] \<pid:740532542\> 2024-01-30 02:00:58 by mianmi123</span>
+>[jump](#pid740532464) Dorothy_Goddess(2024-01-30 01:59):
+
+有一说一，我看过的也看不懂![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740532616">3.[0] \<pid:740532616\> 2024-01-30 02:02:22 by 我不会。</span>
+感觉版务好拼命啊。
+
+~~快进到block this！~~
+
+楼主这图是从台长那里截的吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740532622">4.[2] \<pid:740532622\> 2024-01-30 02:02:28 by ypsys</span>
+你的谜语人功底真是不错
+
+----
+
+##### <span id="pid740532848">5.[0] \<pid:740532848\> 2024-01-30 02:06:03 by herrlu</span>
+zsbdzsbdzsbd
+
+----
+
+##### <span id="pid740532867">6.[0] \<pid:740532867\> 2024-01-30 02:06:28 by 生者必灭的大刚角</span>
+你这活有点烂。
+冰川双子的图说mygo的台词=拿mygo翻译？
+能不能别拿mygo概括邦邦啊![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+科普：图中两个角色不是mygo的，都没有在mygo动画出现过，是邦邦以前的成员  
+顺便邦这种轻百合(可能不轻了)的东西在手综也并不受欢迎
+
+----
+
+##### <span id="pid740532915">7.[1] \<pid:740532915\> 2024-01-30 02:07:14 by yukitsuki</span>
+![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)mygo河豚的攻击性也不低倒是真的，我是真想把mygo开除邦籍，河豚天天拿mygo嘬邦邦奶嘴
+
+----
+
+##### <span id="pid740532962">8.[0] \<pid:740532962\> 2024-01-30 02:08:10 by Sur5531267</span>
+![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)不知道说点啥，有男不玩？
+
+----
+
+##### <span id="pid740533002">9.[1] \<pid:740533002\> 2024-01-30 02:08:56 by fervent987</span>
+友情提示，喜欢拿mygo段子到处ky的人河豚成分高达百分之八十
+
+----
+
+##### <span id="pid740533075">10.[0] \<pid:740533075\> 2024-01-30 02:10:22 by 弈宸。</span>
+![燃尽](https://img4.nga.178.com/ngabbs/post/smile/)我看过，我甚至上头到买了四川波哥
+但是这发的都啥啊
+

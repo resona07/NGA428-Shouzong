@@ -267,3 +267,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740530989">43.[0] \<pid:740530989\> 2024-01-30 01:38:43 by 忘れられた人</span>
 只能说祝晶哥早日忙完案子每天按时下班吧，一想到网线那头是个小屁孩在发表弱智言论我就无语，手段正不正当都分不清![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)家里关系不硬的话我都能预见他们进流水线的未来了
 
+----
+
+##### <span id="pid740532534">44.[0] \<pid:740532534\> 2024-01-30 02:00:49 by 晚上点个宵夜吃</span>
+这哪是狂啊，这纯纯一个装逼的小学生吧。不然就是脑子不好使。
+
+----
+
+##### <span id="pid740533107">45.[0] \<pid:740533107\> 2024-01-30 02:11:02 by 取名字多麻烦</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)正当手段？赶紧联系他父母带他去医院看看脑子吧
+

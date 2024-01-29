@@ -323,3 +323,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740532288">46.[0] \<pid:740532288\> 2024-01-30 01:56:34 by 夭蔚房卯屋全</span>
 似君何故谋反![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./46_7869cd3i.jpg)![img](./46_6bd1503i.jpg)
 
+----
+
+##### <span id="pid740532525">47.[0] \<pid:740532525\> 2024-01-30 02:00:39 by 你这披萨有问题啊</span>
+我特别想结识真心喜欢玩少前2的玩家，我感觉这样的人总有一天会用得上的，比如我急缺钱的时候可以骗他的钱
+

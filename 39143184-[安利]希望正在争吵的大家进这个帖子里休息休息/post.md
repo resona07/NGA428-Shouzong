@@ -92,3 +92,20 @@ Silver Snow Sister
 
 嗯，谢谢安利，我去看看![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740532581">13.[0] \<pid:740532581\> 2024-01-30 02:01:39 by kaze02</span>
+你永远可以相信海豹社
+
+----
+
+##### <span id="pid740532741">14.[1] \<pid:740532741\> 2024-01-30 02:04:35 by BoronPhosphorus</span>
+海豹社的话，那我还是推荐甜蜜女友2，超级大满足好吧，可惜2+还没有汉化。真可以说甜蜜女友2+给所有搞废萌纯爱的厂商上了一课![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid740533024">15.[0] \<pid:740533024\> 2024-01-30 02:09:25 by UID3244105</span>
+>[jump](#pid740529776) 齐布_(2024-01-30 01:23):
+
+很符合手综现状
+
