@@ -200,3 +200,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 赛马娘和白荆的区别就跟金铲铲和lol人机的区别那么大![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
 一个全自动pvp和一个手动pve是一个游戏吗 拜托动动脑子 没有pvp还会那么卷吗![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 
+----
+
+##### <span id="pid740475534">30.[1] \<pid:740475534\> 2024-01-29 18:40:46 by 布霖的猫</span>
+![img](./30_c93c00sg.jpg)
+

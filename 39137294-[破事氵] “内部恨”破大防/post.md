@@ -612,3 +612,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 惟结果论吗？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 想讨好解子们但技艺不纯熟，作茧自缚罢了。
 
+----
+
+##### <span id="pid740475513">90.[1] \<pid:740475513\> 2024-01-29 18:40:41 by 幽行鶴羽</span>
+>[jump](#pid740428558) asteroidsssss(2024-01-29 14:57) 说: 
+>
+>不玩原，有没人能解释下![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+推其他的都是麻辣xxn，但是米哈游已经好几次暗戳戳卖和草神的cp(官方ep，活动剧情)，然后双卡池的另一个是她们“对家”的新五星辅助。偏偏卡池四星是对其他提升最大的辅助，要是麻辣仙女去为了四星抽卡很有可能会不小心抽出这俩五星![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，看见卡池我就已经开始准备狠狠看乐子了。
+

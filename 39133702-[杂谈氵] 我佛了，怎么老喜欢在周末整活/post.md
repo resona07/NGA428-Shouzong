@@ -418,3 +418,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 从来自星辰出预售那个600贴的时候就已经感觉出来了
 
+----
+
+##### <span id="pid740473712">60.[0] \<pid:740473712\> 2024-01-29 18:31:11 by OLWSBV</span>
+>[jump](#pid740359925) 大a加油(2024-01-29 09:21) 说: 
+>
+>很多帖子都没了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>![img](./4_47e970qz.jpg)
+
+玩舟，如果图片内容属实的话我只能说车的好，本来就是攻击xxn而已，现在还跑出来护只能说打成龟龟和XZ毫无问题。
+
+----
+
+##### <span id="pid740475166">61.[0] \<pid:740475166\> 2024-01-29 18:38:55 by 夜用加长型黑又硬</span>
+这个大概也快没了
+
