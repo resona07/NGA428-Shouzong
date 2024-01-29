@@ -142,3 +142,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 而且最近看贴吧也有说
 少昊这个角色改之前对主角也并不好![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740523752">23.[0] \<pid:740523752\> 2024-01-30 00:19:26 by xswlele_</span>
+实际上解神者从来没有滑跪过，也从来没开除过文案
+
+那个罪魁祸首的文案至今都不觉得自己有什么问题  
+
+任何在情感上把男性用户当冤大头的游戏，都死不足惜
+

@@ -177,3 +177,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 因为米桑卖cp的本质是拉两头公猪配种，而在见识了看起来像正常人的角色蹄子一掀开始搅屎之后![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)米桑特有的拿一般玩家的钱和厕妹双向奔赴![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
 
+----
+
+##### <span id="pid740524006">30.[0] \<pid:740524006\> 2024-01-30 00:21:54 by 悲伤的奇葩123</span>
+这歌我是真喜欢尤其完整版，不过能看出来花血本砸宣传了。把这钱投给游戏内容2.0也不至于一点新意没有
+

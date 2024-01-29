@@ -455,3 +455,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 老兄你真是铁人啊，我去那个楼标记了13页260人，就乏了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740524012">60.[3] \<pid:740524012\> 2024-01-30 00:21:56 by 弗罗西诺内</span>
+>[jump](#pid740523158) SillyDoggy(2024-01-30 00:13) 说: 
+>
+>老兄你真是铁人啊，我去那个楼标记了13页260人，就乏了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+等他复活,会有link的
+

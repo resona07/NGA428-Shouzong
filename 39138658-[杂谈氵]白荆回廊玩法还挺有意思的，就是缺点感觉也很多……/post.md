@@ -238,3 +238,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 [![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)]  UP两个角色 一个烙痕池子各送50抽叫送得多
 
+----
+
+##### <span id="pid740524028">37.[0] \<pid:740524028\> 2024-01-30 00:22:03 by 巴耶黎</span>
+特地看了下时间，你们是给春节预热来了？![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+结晶浓度太高的游戏我女我也不玩
+
+----
+
+##### <span id="pid740524529">38.[0] \<pid:740524529\> 2024-01-30 00:26:37 by CureFlora</span>
+>[jump](#pid740457276) druMidEA(2024-01-29 17:09) 说: 
+>
+>天天赛马娘 赛马娘能控制4条腿战胜对手吗![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+怎么，抄马娘不让说？
+赛马娘我能通过合理的BUILD和战术安排让UZI听指挥打赢FAKER，嘿![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740524807">39.[0] \<pid:740524807\> 2024-01-30 00:29:05 by CureFlora</span>
+>[jump](#pid740472643) druMidEA(2024-01-29 18:25) 说: 
+>
+>赛马娘和白荆的区别就跟金铲铲和lol人机的区别那么大![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+>一个全自动pvp和一个手动pve是一个游戏吗 拜托动动脑子 没有pvp还会那么卷吗![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+TX家的游戏， 你觉得会没PVP吗？
+别急，赛马娘前3个月也是没有PVP的哦![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
