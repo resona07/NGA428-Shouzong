@@ -81,3 +81,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 NGA只有屏蔽没拉黑，你没办法阻止某个人回复![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740518311">11.[0] \<pid:740518311\> 2024-01-29 23:33:42 by 好累，想睡</span>
+>[jump](#pid740517840) Dorothy_Goddess(2024-01-29 23:30) 说: 
+>
+>NGA只有屏蔽没拉黑，你没办法阻止某个人回复![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+好自我欺骗的功能......
+
