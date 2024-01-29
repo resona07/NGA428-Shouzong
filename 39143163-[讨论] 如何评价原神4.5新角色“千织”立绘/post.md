@@ -149,3 +149,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740530205">25.[0] \<pid:740530205\> 2024-01-30 01:28:48 by Milan米兰</span>
 也就那样吧，原神很久没出什么让人能一眼机动的女角色了
 
+----
+
+##### <span id="pid740530360">26.[0] \<pid:740530360\> 2024-01-30 01:30:49 by 格查尔</span>
+一发十连出了不后悔，小保底出了多少还是会有点心疼粉球的程度。
+
+----
+
+##### <span id="pid740530438">27.[0] \<pid:740530438\> 2024-01-30 01:31:38 by lachesis044</span>
+看到一楼才突然发觉这两天怎么没有搬运知乎op笑话？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)   
+
+~~刚去看了下发现知乎必须要注册？记得以前不用啊~~
+
+----
+
+##### <span id="pid740530938">28.[0] \<pid:740530938\> 2024-01-30 01:38:04 by 团子A</span>
+什么新四星![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+涩不起来，没啥感觉
+

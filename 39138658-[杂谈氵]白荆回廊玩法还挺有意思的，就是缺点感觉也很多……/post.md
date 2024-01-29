@@ -316,3 +316,29 @@ xx不玩
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)说别的还好这游戏你说怎么PVP 互相时停都卡住不动吗？
 
+----
+
+##### <span id="pid740530786">47.[0] \<pid:740530786\> 2024-01-30 01:36:07 by CureFlora</span>
+>[jump](#pid740525877) 帝辛子受(2024-01-30 00:39) 说: 
+>
+>没事，懒得管了，我赛马娘要过周年庆了，我一个月前拿了100抽，我下个月还有一百抽以上![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+那你没我多兄弟,在考虑要不要抽一发那个短距离八骏图
+但是我8有4了，挺慌的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+2024年了，居然还有福利不如赛马娘的国产二游![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+![img](./48_34e27117.png)
+
+----
+
+##### <span id="pid740531255">48.[0] \<pid:740531255\> 2024-01-30 01:42:09 by 帝辛子受</span>
+>[jump](#pid740530786) CureFlora(2024-01-30 01:36) 说: 
+>
+>那你没我多兄弟,在考虑要不要抽一发那个短距离八骏图
+>但是我8有4了，挺慌的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>2024年了，居然还有福利不如赛马娘的国产二游![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+>
+>![img](./48_34e27117.png)
+
+你这个是戒过毒，我是最多攒3w就忍不下去了，但是现在手里差不多六万的样子![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

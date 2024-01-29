@@ -262,3 +262,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这哪里来的胆子我都不清楚。![冷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_31.png)
 真当是嚣张到一定程度了。
 
+----
+
+##### <span id="pid740530989">43.[0] \<pid:740530989\> 2024-01-30 01:38:43 by 忘れられた人</span>
+只能说祝晶哥早日忙完案子每天按时下班吧，一想到网线那头是个小屁孩在发表弱智言论我就无语，手段正不正当都分不清![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)家里关系不硬的话我都能预见他们进流水线的未来了
+

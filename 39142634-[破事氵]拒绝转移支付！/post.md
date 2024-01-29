@@ -98,3 +98,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740526945">14.[0] \<pid:740526945\> 2024-01-30 00:49:27 by 哈士奇油蜡</span>
 xxn骇人
 
+----
+
+##### <span id="pid740531451">15.[0] \<pid:740531451\> 2024-01-30 01:44:48 by FoolMaster</span>
+我还以为是鸣潮开了付费测试，有人开氪了，男女1：1，原来是3412啊，紧记有男不玩
+

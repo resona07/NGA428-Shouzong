@@ -60,3 +60,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 建议是一起图图了，人xxn有放过你全女吗
 
+----
+
+##### <span id="pid740530695">8.[0] \<pid:740530695\> 2024-01-30 01:34:48 by FoolMaster</span>
+都得举报，但是现在版本没有更新![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+----
+
+##### <span id="pid740531324">9.[0] \<pid:740531324\> 2024-01-30 01:43:10 by UID64544820</span>
+>[jump](#pid740527599) 纯纯fenkeng(2024-01-30 00:56) 说: 
+>
+>乙游又没拿烧鸡仙人跳骗人入坑
+>该举报的是缅北混厕游戏
+
+打男拳可不能讲道理，矫枉必须过正。
+
