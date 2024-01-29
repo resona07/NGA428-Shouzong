@@ -45,3 +45,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 星神没开之前还是牛头人更有福一点![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 还有牢骑什么时候发老婆美照
 
+----
+
+##### <span id="pid740534443">7.[0] \<pid:740534443\> 2024-01-30 02:37:45 by Rooney256</span>
+孝子特有的灵活标准
+
+----
+
+##### <span id="pid740534547">8.[0] \<pid:740534547\> 2024-01-30 02:39:54 by A1ik</span>
+>[jump](#pid740531718) 笑死我了AAA(2024-01-30 01:48) 说: 
+>
+>我知道，这位老毒爆了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，看了老骑的微博一天十几条键政相关只能说如果真去但文案的话少前的键政人有福了
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 什么？这不是老玩家最喜欢的老头斗法嘛？你不喜欢？那你被开除老玩家籍了呀。贴吧刚开服那段时间说剧情的全被拿老玩家喜欢老头斗法堵嘴了。
+
