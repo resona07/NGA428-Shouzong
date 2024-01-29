@@ -342,3 +342,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740536058">49.[0] \<pid:740536058\> 2024-01-30 03:22:18 by Rooney256</span>
 早两个月有用，现在已经晚了
 
+----
+
+##### <span id="pid740536526">50.[0] \<pid:740536526\> 2024-01-30 03:42:58 by 音无Kanade</span>
+>[jump](#pid740514602) A1ik(2024-01-29 23:04):
+
+再刀一个莱特吧 ~~其实我觉得莱特/特工J/特工K/安洁哥哥这些男npc人设都挺符合“一般向女玩家”的喜好的~~
+虽然莱特留给1代玩家的情感价值也因为秽土转生格雷(未遂)的惊世决策而变得一文不值了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
