@@ -185,3 +185,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740469951">27.[0] \<pid:740469951\> 2024-01-29 18:12:12 by wnlmtb</span>
 有男不玩，下一个
 
+----
+
+##### <span id="pid740471042">28.[1] \<pid:740471042\> 2024-01-29 18:17:36 by miracleVTA</span>
+天天来手综给你们最讨厌的顺直男宣传这游戏干嘛呢？真引过去了不是大家都恶心吗![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740472643">29.[0] \<pid:740472643\> 2024-01-29 18:25:49 by druMidEA</span>
+>[jump](#pid740460039) 帝辛子受(2024-01-29 17:22) 说: 
+>
+>我的评价是别急，看这群人能牛到什么时候，赛马娘类游戏的宿命就是坐牢
+
+赛马娘和白荆的区别就跟金铲铲和lol人机的区别那么大![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+一个全自动pvp和一个手动pve是一个游戏吗 拜托动动脑子 没有pvp还会那么卷吗![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+

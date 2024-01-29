@@ -167,3 +167,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 印象里起因是cv实装的时候设计95的觉得自己笔下的角色明显被亏待了 然后散爆觉得你就是个臭外包的叽歪什么呢 这角色怎么被对待由我决定![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740470670">22.[0] \<pid:740470670\> 2024-01-29 18:15:46 by old_driver</span>
+这种B公司还活在业界，每个少前玩家都有责任![冷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_31.png)
+
+----
+
+##### <span id="pid740470760">23.[0] \<pid:740470760\> 2024-01-29 18:16:13 by 7X28X9</span>
+怎么还在95啊，是不是一发现流水不行，就把雷蒙夫人拿出来卖唱啊，路径依赖过头了
+
+角色有自己的生活，让她回去和雷蒙过日子吧，别来讨好玩家了
+
+----
+
+##### <span id="pid740470860">24.[0] \<pid:740470860\> 2024-01-29 18:16:44 by 普露璐特</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)买了以后，晚上穿给雷蒙看？
+

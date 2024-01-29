@@ -409,3 +409,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740469819">58.[0] \<pid:740469819\> 2024-01-29 18:11:37 by 刘伟莱特。</span>
 什么时候z的社管那么牛了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740471378">59.[0] \<pid:740471378\> 2024-01-29 18:19:04 by 丙吉敖癸房林</span>
+>[jump](#pid740469819) 刘伟莱特。(2024-01-29 18:11) 说: 
+>
+>什么时候z的社管那么牛了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+从来自星辰出预售那个600贴的时候就已经感觉出来了
+

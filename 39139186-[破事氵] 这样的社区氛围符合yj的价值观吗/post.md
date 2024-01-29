@@ -127,3 +127,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./16_096cc179.jpg)
 
+----
+
+##### <span id="pid740471585">17.[1] \<pid:740471585\> 2024-01-29 18:20:06 by 背高压锅战士</span>
+>[jump](#pid740469473) 唉！社管(2024-01-29 18:09) 说: 
+>
+>那你要不要看看粥的英雌道歉了吗![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+>
+>![img](./16_096cc179.jpg)
+
+我不玩粥就不清楚他们的事了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)毕竟硬核不媚男的游戏
+
+----
+
+##### <span id="pid740471863">18.[1] \<pid:740471863\> 2024-01-29 18:21:38 by 游戏中年人</span>
+>[jump](#pid740469473) 唉！社管(2024-01-29 18:09) 说: 
+>
+>那你要不要看看粥的英雌道歉了吗![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+>
+>![img](./16_096cc179.jpg)
+
+这图保真吗？哈哈哈哈，这么离谱的
+
+----
+
+##### <span id="pid740473314">19.[0] \<pid:740473314\> 2024-01-29 18:29:13 by 玩他喵的</span>
+>[jump](#pid740471863) 游戏中年人(2024-01-29 18:21) 说: 
+>
+>这图保真吗？哈哈哈哈，这么离谱的
+
+保真，游戏里现在还有呢
+
