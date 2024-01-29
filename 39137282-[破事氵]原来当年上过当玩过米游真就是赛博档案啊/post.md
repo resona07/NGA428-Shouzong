@@ -264,3 +264,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 估计是用插件查的，不是去看发布的帖
 
+----
+
+##### <span id="pid740469434">40.[0] \<pid:740469434\> 2024-01-29 18:09:37 by 地狱叉</span>
+无所谓，我直接公布案底，欢迎各路诸侯判断我的成分以后按需取用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![img](./40_ed24dbcs.jpg)![img](./40_d62dbdcs.jpg)![img](./40_5b9bd2cs.jpg)![img](./40_b31b2bcs.jpg)![img](./40_466c0acs.jpg)![img](./40_1f27d7cs.jpg)![img](./40_8180c1cs.jpg)![img](./40_55f4d23i.jpg)![img](./40_709c483i.jpg)![img](./40_c8ab443i.jpg)
+

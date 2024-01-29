@@ -302,3 +302,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我可以对任何游戏喊有男不玩，也可以玩任何有男游戏，因为我对我的有男不玩有最终解释权。
 
+----
+
+##### <span id="pid740467784">41.[0] \<pid:740467784\> 2024-01-29 18:01:10 by 西皮解有点数</span>
+一个表达自己不玩啥游戏的话都是极端还行
+
+我不玩这个游戏，所以我太极端了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我的评价是你有点魔怔了
+
+----
+
+##### <span id="pid740468242">42.[1] \<pid:740468242\> 2024-01-29 18:03:45 by 945367289哦</span>
+xxn不爽女角色可以随意举办游戏还有一堆人支持，手综老哥只是简单的选择不玩，都得不断地证明自己反思原因，他真的，我哭死![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid740468243">43.[0] \<pid:740468243\> 2024-01-29 18:03:46 by GinodeKing</span>
+>[jump](#pid740467333) 路人甲333(2024-01-29 17:58):
+
+看来是我极端了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

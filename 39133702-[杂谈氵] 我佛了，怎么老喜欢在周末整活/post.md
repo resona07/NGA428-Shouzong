@@ -404,3 +404,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740447545">57.[2] \<pid:740447545\> 2024-01-29 16:25:19 by Mr_KIyo</span>
 我不理解，在舟版被封的人甚至没发一句有男不玩，就说了一句不练就被封了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)，还被嘲讽滚回手综，这算版务主动挑事吧![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
 
+----
+
+##### <span id="pid740469819">58.[0] \<pid:740469819\> 2024-01-29 18:11:37 by 刘伟莱特。</span>
+什么时候z的社管那么牛了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
