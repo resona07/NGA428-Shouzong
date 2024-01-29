@@ -198,3 +198,18 @@ SC的透和圆香有没有两头卖，肯定是有的，这个ml和cp的争吵�
 
 啊？河豚能接受这剧情？![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
 
+----
+
+##### <span id="pid740527949">30.[1] \<pid:740527949\> 2024-01-30 01:00:19 by fervent987</span>
+>[jump](#pid740527753) DxhSN2022(2024-01-30 00:57) 说: 
+>
+>啊？河豚能接受这剧情？![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
+
+别人又不看，只要能恶心到试图染指美少女贴贴的下头男就行了
+
+----
+
+##### <span id="pid740528638">31.[0] \<pid:740528638\> 2024-01-30 01:08:36 by JIntellsG</span>
+可惜sc本体真没啥能玩的，当了半年签到剧情党还是退了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+现在也就偶尔在b站看看透哥![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

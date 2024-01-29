@@ -25,3 +25,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 难道不是看二弟的选择吗？
 
+----
+
+##### <span id="pid740527993">4.[0] \<pid:740527993\> 2024-01-30 01:00:54 by 流炎丶望月</span>
+照抄三国志幻想大陆的滚服游戏,还是个阉割版. 如果你追求游戏性不建议碰,但是玩这种游戏追求游戏性是不是有点那啥了？
+

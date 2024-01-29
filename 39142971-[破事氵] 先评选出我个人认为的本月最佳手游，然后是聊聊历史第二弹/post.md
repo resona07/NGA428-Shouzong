@@ -25,3 +25,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740525903">1.[0] \<pid:740525903\> 2024-01-30 00:39:31 by AMINOS1991</span>
 封面图上传失败，有好心人可以补一下封面图![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
 
+----
+
+##### <span id="pid740528625">2.[0] \<pid:740528625\> 2024-01-30 01:08:29 by 笑死我了AAA</span>
+![img](./2_581b890.webp)
+
+----
+
+##### <span id="pid740528700">3.[0] \<pid:740528700\> 2024-01-30 01:09:25 by 弈宸。</span>
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)这本书我还真看过  ![img](./3_b28020dw.png)
+
