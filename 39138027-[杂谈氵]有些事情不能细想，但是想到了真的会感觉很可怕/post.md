@@ -48,3 +48,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740446062">9.[0] \<pid:740446062\> 2024-01-29 16:18:34 by hufei0706</span>
 对调一下不就是二字![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740465993">10.[3] \<pid:740465993\> 2024-01-29 17:52:07 by sbsx123</span>
+>[jump](#pid740444473) Shanger5124(2024-01-29 16:11) 说: 
+>
+>你都不知道这帮人玩这游戏图啥，而且女性喜欢买谷子，鹰家的谷子朝陇山则是出了名的烂
+
+你不会以为女的喜欢买谷子是真的喜欢谷子本身吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

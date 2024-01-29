@@ -74,3 +74,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 是的，对象不分男女![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 像什么“妈妈不认同女儿爱好”“大妈怒骂coser衣衫不整”都是能在女厕引起广泛共情的话题，以至于好像还有公司找大妈和coser在地铁上按着这剧本演戏蹭热度来着![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740466657">10.[0] \<pid:740466657\> 2024-01-29 17:55:30 by 大上造</span>
+为什么从小的教育都是男的要让着女的 女的发育比男的早 开窍也比男的早 学校里应该女的让着男的才对啊![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
+
