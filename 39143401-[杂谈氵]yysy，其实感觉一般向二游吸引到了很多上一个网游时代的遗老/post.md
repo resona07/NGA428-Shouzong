@@ -130,3 +130,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 在“不玩游戏、甚至是本家游戏”“数值用脚填”“挑起玩家对立、分化玩家”等等这些方面倒是如出一辙。
 
+----
+
+##### <span id="pid740537601">16.[0] \<pid:740537601\> 2024-01-30 04:32:07 by 尸绒拿铁</span>
+想多了…网游那是有真人妹子陪聊陪玩喊老公的，怎么可能看得上你二游这些纸片人![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
