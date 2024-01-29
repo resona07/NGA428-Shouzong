@@ -200,3 +200,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)原来还有这种解释方式，官方认定散草99了
 
+----
+
+##### <span id="pid740510161">29.[0] \<pid:740510161\> 2024-01-29 22:30:14 by 蹦哒的鱼鱼</span>
+为什么不双厨狂喜，为什么不爱屋及乌，这典王抽回来配种不挺合适的吗![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740511379">30.[0] \<pid:740511379\> 2024-01-29 22:39:36 by 白川付田</span>
+>[jump](#pid740490693) 断罪之末日(2024-01-29 20:10) 说: 
+>
+>你们原神玩家连角色进同一个池子都能撕起来吗![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+腐女因为4.0钟离公子同样下半复刻高潮![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+钟解因为4.0钟离无主线剧情无活动剧情无彩蛋剧情尖叫抓挠![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+厕妹撕逼啥理由都可以不用，望周知。
+

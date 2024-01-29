@@ -157,3 +157,46 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740509941">21.[1] \<pid:740509941\> 2024-01-29 22:28:35 by 轮回转动</span>
 小屁孩意淫呢，顺从。当然要不是意淫那更成了，国家早晚要管他饭呀![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740510431">25.[0] \<pid:740510431\> 2024-01-29 22:32:27 by AZAthothoc</span>
+呵，米国晶察
+
+----
+
+##### <span id="pid740510476">26.[0] \<pid:740510476\> 2024-01-29 22:32:46 by 重装坑货</span>
+只能说希望晶哥再加把劲，争取让他们没办法过个好年吧![寄](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740510477">27.[0] \<pid:740510477\> 2024-01-29 22:32:46 by 奸奇至尊巫师</span>
+>[jump](#pid740508659) Madfrogkygdiddy(2024-01-29 22:18):
+
+你怎么敢假定米游社不支持开盒？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740510697">28.[0] \<pid:740510697\> 2024-01-29 22:34:23 by aisqgl</span>
+焰火佬你都已经明牌内鬼了怎么还有人持续不断的爆典啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740510892">29.[0] \<pid:740510892\> 2024-01-29 22:35:45 by nextGenerationBell</span>
+>[jump](#pid740510697) aisqgl(2024-01-29 22:34):
+
+他们不一定觉得自己在爆典，可能还会觉得传播越广越有震慑力![怒](https://img4.nga.178.com/ngabbs/post/smile/a2_04.png)
+
+----
+
+##### <span id="pid740511074">30.[0] \<pid:740511074\> 2024-01-29 22:37:08 by A_sys</span>
+帅 狂小仙 帅
+
+----
+
+##### <span id="pid740511820">32.[0] \<pid:740511820\> 2024-01-29 22:42:50 by Madfrogkygdiddy</span>
+>[jump](#pid740509610) 剑已归(2024-01-29 22:26) 说: 
+>
+>![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)要相信同事的专业能力.jpg
+
+我想问下这话原典出自哪
+

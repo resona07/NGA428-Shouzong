@@ -189,3 +189,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740506781">29.[0] \<pid:740506781\> 2024-01-29 22:05:22 by Hoshino2004</span>
 制作组从头到尾都没明白少前2是全面拉胯的。剧情不必多说，纯纯的恶心人。玩法就算还行，搭配上原汁原味的卡池也是答辩；建模不管怎么吹，在游戏内的展示只能说聊胜于无。就这么烂的产品还能看不起玩家，早该死了，开服多久了还整这些![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740511911">30.[0] \<pid:740511911\> 2024-01-29 22:43:32 by 音无园香丶</span>
+>[jump](#pid740505160) Leloucho(2024-01-29 21:52) 说: 
+>
+>同跑路老玩家，我还等着给哪天给翀上坟呢，继续啊，加大力度![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>![img](./27_faad3dd4.jpg)
+>![img](./27_93068bd4.jpg)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我本来想弄完戒指成就就润的，然后被那边皮肤礼包化搞的直接不玩了
+![img](./30_0ba88bd5.jpg)
+![img](./30_bf7339d5.jpg)
+![img](./30_9f6c0fd5.jpg)
+![img](./30_d8b8bbd5.jpg)
+

@@ -356,3 +356,13 @@ XX忘了是谁了
 ##### <span id="pid740504394">52.[0] \<pid:740504394\> 2024-01-29 21:46:51 by 琴枯柳</span>
 网易？而且也有男角色？那没事了，我有男不玩
 
+----
+
+##### <span id="pid740510623">53.[0] \<pid:740510623\> 2024-01-29 22:33:48 by 嘉负一</span>
+有一说一，外观有些像p5的牢智![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740511398">54.[0] \<pid:740511398\> 2024-01-29 22:39:46 by asd92570689</span>
+首先这是网易，我在这步他就已经死了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
