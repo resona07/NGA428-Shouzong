@@ -193,3 +193,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740495085">27.[0] \<pid:740495085\> 2024-01-29 20:40:30 by 7X28X9</span>
 无法理解在吵什么？是谁的辅助，不是应该从游戏机制来分析吗，怎么搞得好像在争论是谁的cp一样？
 
+----
+
+##### <span id="pid740507122">28.[0] \<pid:740507122\> 2024-01-29 22:07:48 by Yosoroみお</span>
+>[jump](#pid740490362) 咸鱼二十九号(2024-01-29 20:08):
+
+![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)原来还有这种解释方式，官方认定散草99了
+

@@ -93,3 +93,13 @@ kuma社的话，要玩的话做好制作组逆天XP的准备。能接受的话�
 ##### <span id="pid740497161">11.[0] \<pid:740497161\> 2024-01-29 20:55:39 by mmmm3110</span>
 福利好，画风好，剧情是冬茜写的大概值得期待...吧(心虚)，XP方面比较自由，除了上面说的伪娘跟目前卡池的养母之外，最近剧情还整了个大的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)<div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>剧透慎点 ...</div><span class="collapse_content" id="foldCnt">粉毛看板娘是未来男主的女儿，所以粉毛的HCG你懂的</span></div>
 
+----
+
+##### <span id="pid740507488">12.[0] \<pid:740507488\> 2024-01-29 22:10:28 by Ain-Void</span>
+>[jump](#pid740497161) mmmm3110(2024-01-29 20:55) 说: 
+>
+>福利好，画风好，剧情是冬茜写的大概值得期待...吧(心虚)，XP方面比较自由，除了上面说的伪娘跟目前卡池的养母之外，最近剧情还整了个大的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)<div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>剧透慎点 ...</div><span class="collapse_content" id="foldCnt">粉毛看板娘是未来男主的女儿，所以粉毛的HCG你懂的</span></div>
+
+未来(×)
+平行世界(?)
+

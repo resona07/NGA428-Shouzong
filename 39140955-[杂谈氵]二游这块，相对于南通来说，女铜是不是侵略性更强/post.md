@@ -229,3 +229,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 据我在微博观察到的，那些赛博女同一但发现游戏出现黑丝、乳摇这些媚宅的元素，她们就会立刻出警，骂角色被男凝。
 而她们在意二游女角色男凝的一部分原因，就是她们把已经完全把角色当成自己本人，如果厂商把角色媚给宅男看，她们接受不了。
 
+----
+
+##### <span id="pid740506688">32.[0] \<pid:740506688\> 2024-01-29 22:04:50 by neveg</span>
+![img](./32_856a40hw.jpg)女的确实侵略性更强，味大，无需多言
+
+----
+
+##### <span id="pid740507940">33.[0] \<pid:740507940\> 2024-01-29 22:13:35 by Mélusine003</span>
+我去，奶窗![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

@@ -184,3 +184,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)养好了应该是
 《什么跪，根本没错，就是公关给大家演演戏你们还真信》
 
+----
+
+##### <span id="pid740506781">29.[0] \<pid:740506781\> 2024-01-29 22:05:22 by Hoshino2004</span>
+制作组从头到尾都没明白少前2是全面拉胯的。剧情不必多说，纯纯的恶心人。玩法就算还行，搭配上原汁原味的卡池也是答辩；建模不管怎么吹，在游戏内的展示只能说聊胜于无。就这么烂的产品还能看不起玩家，早该死了，开服多久了还整这些![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

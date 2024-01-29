@@ -38,3 +38,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740505908">5.[0] \<pid:740505908\> 2024-01-29 21:58:37 by udhumorcne</span>
 我一个普通玩家哪敢来者不善，我只能识趣的后退一步，一瘸一拐的润了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740506667">6.[0] \<pid:740506667\> 2024-01-29 22:04:38 by SarDurkn_</span>
+![img](./6_1483762j.jpg)
+大静谧之后的粗鄙创作 今天再看 竟能如此相似![哦](https://img4.nga.178.com/ngabbs/post/smile/ac12.png)
+
+----
+
+##### <span id="pid740507365">7.[0] \<pid:740507365\> 2024-01-29 22:09:29 by 笑死我了AAA</span>
+黄姥爷是羽中吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
