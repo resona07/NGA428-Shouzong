@@ -183,3 +183,34 @@ zsbd，这怎么还有mxz啊 艹![喷](https://img4.nga.178.com/ngabbs/post/smil
 ##### <span id="pid740495491">26.[0] \<pid:740495491\> 2024-01-29 20:43:36 by aisqgl</span>
 人之将死其言也善![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740495756">27.[2] \<pid:740495756\> 2024-01-29 20:45:31 by QUSIWQVT</span>
+我只觉得钢盆最后玩那号的人节目效果太差了，哪有主持人下场跟吃瓜群众打成一片的![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740495855">28.[6] \<pid:740495855\> 2024-01-29 20:46:17 by ZYQGZENX</span>
+连皇帝，东西厂，锦衣卫都是自己人
+不怪得连成长期的米÷都要向棉花交保护费呢![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740496361">30.[1] \<pid:740496361\> 2024-01-29 20:49:56 by Mélusine003</span>
+>[jump](#pid740495855) ZYQGZENX(2024-01-29 20:46) 说: 
+>
+>连皇帝，东西厂，锦衣卫都是自己人
+>不怪得连成长期的米÷都要向棉花交保护费呢![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+<b>岁币</b>的含金量![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740496948">31.[0] \<pid:740496948\> 2024-01-29 20:54:07 by 库克猛干刘伟</span>
+你们这一个个验尸呢
+
+----
+
+##### <span id="pid740497387">32.[0] \<pid:740497387\> 2024-01-29 20:57:14 by 穿上马甲就不认识了</span>
+临死前开了两枪，还真让它蒙着了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

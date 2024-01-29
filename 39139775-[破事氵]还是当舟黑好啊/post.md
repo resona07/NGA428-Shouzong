@@ -948,3 +948,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740495383">137.[1] \<pid:740495383\> 2024-01-29 20:42:49 by 黑夜宇光</span>
 滚回冰柜版发癫
 
+----
+
+##### <span id="pid740496469">138.[5] \<pid:740496469\> 2024-01-29 20:50:45 by 重装坑货</span>
+借用你们bw的一句话送你“滚回粥版发癫”![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

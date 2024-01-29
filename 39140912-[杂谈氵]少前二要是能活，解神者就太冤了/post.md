@@ -52,3 +52,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740495326">8.[2] \<pid:740495326\> 2024-01-29 20:42:21 by ZGDX夜</span>
 给大伙看几个小丑![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)  ![img](./8_30a36f6e.jpg)
 
+----
+
+##### <span id="pid740495959">9.[0] \<pid:740495959\> 2024-01-29 20:47:06 by JAPGoroshi</span>
+>[jump](#pid740495240) 蓝色猫头(2024-01-29 20:41) 说: 
+>
+>怎么可能，你是无人深空吗？  在营收+口碑大爆死的情况下。
+>
+>少前的玩法，米池，就注定永远是个垃圾游戏别想了。![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+无人深空是真的在好好做游戏只是大水把制作组淹了而已![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740497194">10.[0] \<pid:740497194\> 2024-01-29 20:55:52 by 库克猛干刘伟</span>
+习习中不直播邦邦磕几个？
+就他自己责任最大，怎么？学习瘤萎赖特品格不粘锅了？
+
+----
+
+##### <span id="pid740497319">11.[0] \<pid:740497319\> 2024-01-29 20:56:50 by 渴望奶光</span>
+![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)我得说一句，解牛者不管是改前还是改后，少昊giegie都是对你最好的一个，然而改后几个碧池还在，giegie几乎没了  ~~顺便那个xxn制作人也没开除，只是不在文案组了~~
+

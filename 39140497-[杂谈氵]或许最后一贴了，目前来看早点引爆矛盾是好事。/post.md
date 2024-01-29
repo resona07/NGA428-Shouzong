@@ -259,3 +259,12 @@ md哪里是一战萨拉热窝，是TM萨拉热窝围城，一超多强盯着呢
 
 你这id和我有点像啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740495683">33.[1] \<pid:740495683\> 2024-01-29 20:44:56 by Mélusine003</span>
+>[jump](#pid740491516) 94646843z(2024-01-29 20:15) 说: 
+>
+>细说，让我看看它们的嘴脸
+
+中午那会儿有个帖子，里面已经在吵“截图猛干是不是开盒”了，还有人在说“盒GA”，太哈人了，真的和仙蛆合流了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

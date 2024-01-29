@@ -1387,3 +1387,21 @@ who cares？
 
 <b>人为刀俎，我为鱼肉。</b>
 
+----
+
+##### <span id="pid740496512">181.[0] \<pid:740496512\> 2024-01-29 20:51:05 by jieran233</span>
+口牛是代号，他大名叫高希声
+
+----
+
+##### <span id="pid740497338">182.[0] \<pid:740497338\> 2024-01-29 20:56:57 by 轮回转动</span>
+尬黑等于洗，有些乱七八糟就别提了。还不如看点老乐子，起码是真事![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 也别光顾看yj，当年的米家学长们也是很重量级的。
+
+[url](https://ngabbs.com/read.php?tid=27962203)
+
+[url](https://nga.178.com/read.php?tid=27970629)
+
+[url](https://nga.178.com/read.php?tid=27992170)
+
+别挖坟。
+

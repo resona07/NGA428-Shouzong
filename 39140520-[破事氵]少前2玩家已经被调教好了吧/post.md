@@ -140,3 +140,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740494967">22.[0] \<pid:740494967\> 2024-01-29 20:39:44 by ZGDX夜</span>
 ![img](./22_4f99df2h.jpg)持续收集与反馈![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740496528">23.[0] \<pid:740496528\> 2024-01-29 20:51:14 by CreeperFall</span>
+制作组反复道歉道：我知道错了，我真的知道错了。玩家摇摇头：你不是知错了，只是知道自己要死了。
+
+----
+
+##### <span id="pid740496781">24.[0] \<pid:740496781\> 2024-01-29 20:52:57 by 神圣的卡苟斯</span>
+内容审核人员都没有就成立内容审核小组，幽默了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740497327">25.[0] \<pid:740497327\> 2024-01-29 20:56:53 by zhjacksgyta</span>
+滑而不跪，我就爱他不跪的模样呢，莫名其妙想给他放首战歌了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)
+
