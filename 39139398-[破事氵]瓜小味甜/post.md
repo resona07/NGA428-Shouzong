@@ -70,3 +70,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 不管真假，那么丑的奶窗他们哪来的自信觉得大爆![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)艾尔海森当年有人气是因为建模脸还挺帅，也立刻死于卖腐了啊
 一盆shi卖2次，编剧和运营真的很神
 
+----
+
+##### <span id="pid740481962">11.[0] \<pid:740481962\> 2024-01-29 19:17:16 by 辰彭车乙仲赵</span>
+>[jump](#pid740480893) 巴耶黎(2024-01-29 19:10):
+
+对对就是这事。因为xxn身上有米桑梦寐以求的社区热度呗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)缺了这口尖叫抓挠，猛桑还怎么活下去啊。估计是觉得八城大屏奶窗太子都写烂了还有那么多忠实腐粉，那可不得把这些不挑的厕妹可持续发展么![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+
+----
+
+##### <span id="pid740483364">12.[0] \<pid:740483364\> 2024-01-29 19:25:44 by 巴耶黎</span>
+>[jump](#pid740481962) 辰彭车乙仲赵(2024-01-29 19:17) 说: 
+>
+>对对就是这事。因为xxn身上有米桑梦寐以求的社区热度呗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)缺了这口尖叫抓挠，猛桑还怎么活下去啊。估计是觉得八城大屏奶窗太子都写烂了还有那么多忠实腐粉，那可不得把这些不挑的厕妹可持续发展么![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+
+2.0不是猛桑写的啊他在抓挠纳塔呢(听说)，烧鸡传闻是须弥3.0~3,2的编剧，结尾南桐吵架也是他写的，这么一看崩铁南桐又对味了，同一盘shi的作者二次贩卖![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
+

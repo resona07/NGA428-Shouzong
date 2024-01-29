@@ -431,3 +431,17 @@ xxn粥批权限狗4000+
 
 也兴许是帕鲁救了你![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
 
+----
+
+##### <span id="pid740481734">61.[0] \<pid:740481734\> 2024-01-29 19:15:49 by darbox</span>
+我还以为你说的是棉花大哥哥呢
+
+----
+
+##### <span id="pid740482756">62.[5] \<pid:740482756\> 2024-01-29 19:21:53 by 小汤圆109</span>
+>[jump](#pid740479642) 技竜(2024-01-29 19:03) 说: 
+>
+>明明能用一句话说完的事，粥人偏偏要写小作文![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)没人在前面当肉盾的时候委屈的很吧![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+这应该是某个群体的习惯了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

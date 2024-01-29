@@ -464,3 +464,13 @@ ml大战时期隔三差五就有皱指导来发帖指导![哭笑](https://img4.n
 
 卧槽，这么乐的吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740481681">59.[1] \<pid:740481681\> 2024-01-29 19:15:28 by 技竜</span>
+纯良?我浏览涩图的时候还刷到过粥人为原皮创作的归途![冷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_31.png)这种群体也能纯良?
+
+----
+
+##### <span id="pid740482899">60.[0] \<pid:740482899\> 2024-01-29 19:22:47 by oldcatmcg</span>
+纯良的皱皮肯定是有的，不过已经和手综老哥一起被割头皮了，比如我![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
