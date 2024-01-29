@@ -904,3 +904,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740542146">118.[0] \<pid:740542146\> 2024-01-30 07:28:40 by 彻木</span>
 够实，我现在已经看不懂了，只能相信那几个熟人头像了
 
+----
+
+##### <span id="pid740542944">119.[0] \<pid:740542944\> 2024-01-30 07:43:04 by 夜用加长型黑又硬</span>
+竟能如此相像
+

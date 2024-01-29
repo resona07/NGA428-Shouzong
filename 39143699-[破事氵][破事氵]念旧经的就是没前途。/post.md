@@ -339,3 +339,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740541827">44.[1] \<pid:740541827\> 2024-01-30 07:22:20 by old_driver</span>
 ![img](./44_6e935a5d.gif)
 
+----
+
+##### <span id="pid740542461">45.[0] \<pid:740542461\> 2024-01-30 07:35:00 by mxjv5</span>
+骑鬼火骑得![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

@@ -322,3 +322,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 哈哈对对对，还有圆周率这个词![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740542826">48.[0] \<pid:740542826\> 2024-01-30 07:40:56 by 彻木</span>
+这个同盟确实存在的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)双方心照不宣罢了，并且这个同盟我预测所有一般向二游都会添上一把火，算了关我屁事，有男不玩
+

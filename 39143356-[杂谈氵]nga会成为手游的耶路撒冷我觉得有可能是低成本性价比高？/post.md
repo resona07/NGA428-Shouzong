@@ -168,3 +168,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 贴吧算了吧，滑稽明明深得人心结果出个动画就是一坨，真是滑天下之大稽。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740542499">20.[0] \<pid:740542499\> 2024-01-30 07:35:50 by 专注教育顽固中二侥幸心理青年三十年</span>
+你这信息茧房茧子有点厚了
+

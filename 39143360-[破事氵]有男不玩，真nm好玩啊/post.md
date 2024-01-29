@@ -517,3 +517,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 刚在隔壁瓜版的白荆帖子里被集美们建议回手综，只能说有男不玩的圣言录含金量确实高![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)，石砸狗叫
 
+----
+
+##### <span id="pid740542261">64.[0] \<pid:740542261\> 2024-01-30 07:31:16 by 咿呀呀哈呀哈</span>
+确实，打击感太爽了。没想到现在了手综一天不看都要跟不上版本了，真的急了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+但是我有男不玩![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+
