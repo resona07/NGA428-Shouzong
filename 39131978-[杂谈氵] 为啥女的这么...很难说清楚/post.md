@@ -317,3 +317,19 @@ xxn逻辑：
 
 ![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)打错了，梅梅名字一直不太记得清
 
+----
+
+##### <span id="pid740486863">45.[0] \<pid:740486863\> 2024-01-29 19:46:40 by 化骨咩咩掌</span>
+因为身材臃肿难以代入
+
+----
+
+##### <span id="pid740490620">46.[0] \<pid:740490620\> 2024-01-29 20:09:42 by 快快快快乐</span>
+>[jump](#pid740332075) 七十二处女(2024-01-29 00:37) 说: 
+>
+>![img](./20_87e272l9.jpg)
+>这是米家那个乙游的节奏图。顺便一说，这位是乙游女主![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>至于说到底是美术恶心玩家还是玩家过度解读，自行体会![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+米家这乙游是唯一一个女主党压着梦女党打的![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

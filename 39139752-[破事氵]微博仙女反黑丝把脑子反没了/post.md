@@ -309,3 +309,8 @@ y1s1，这个确实比眼镜大妈好看
 ##### <span id="pid740488279">49.[0] \<pid:740488279\> 2024-01-29 19:55:28 by Nekonya_</span>
 这不挺好的，支持xxn![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740491161">50.[0] \<pid:740491161\> 2024-01-29 20:13:06 by searchnone</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)问题建模4.3活动已经出现过了，只能说龟龟开心就好
+
