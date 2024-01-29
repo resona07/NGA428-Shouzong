@@ -176,3 +176,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你猜到底是不是杂音呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740448414">23.[0] \<pid:740448414\> 2024-01-29 16:28:53 by azae</span>
+我15年就有男不玩，fgo只看过几集动漫游戏至今没入坑
+

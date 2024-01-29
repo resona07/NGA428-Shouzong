@@ -686,3 +686,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 重点是tm骂不到点子上, 尬黑等于洗这话又不是没见过, 你越尬黑(甚至还是被嚼过的烂梗), 越让人觉得海猫仿佛是个正常人![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 建议大家学习炎枪哥的美德
 
+----
+
+##### <span id="pid740448248">90.[1] \<pid:740448248\> 2024-01-29 16:28:09 by 逆飞的磐岩</span>
+>[jump](#pid740446012) 胜利的誓约(2024-01-29 16:18):
+
+好一个尬黑!主楼不就一个钩子吗？这是尬黑吗？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+怎么洗地的都去洗另外的事情了，另外一件事可能是尬黑等于全都在尬黑？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

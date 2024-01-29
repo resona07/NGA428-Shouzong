@@ -27,3 +27,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)我不好说
 
+----
+
+##### <span id="pid740446445">4.[0] \<pid:740446445\> 2024-01-29 16:20:22 by 咸心蘸大酱</span>
+你们说仙蛆里会不会也有串子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是专门往毁灭努纳克和天华这种人身上泼脏水的串子
+
+----
+
+##### <span id="pid740447065">5.[1] \<pid:740447065\> 2024-01-29 16:23:11 by 剑已归</span>
+>[jump](#pid740446445) 咸心蘸大酱(2024-01-29 16:20) 说: 
+>
+>你们说仙蛆里会不会也有串子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是专门往毁灭努纳克和天华这种人身上泼脏水的串子
+
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)那可太搞笑了
+
+----
+
+##### <span id="pid740447420">6.[0] \<pid:740447420\> 2024-01-29 16:24:45 by Dorothy_Goddess</span>
+>[jump](#pid740446445) 咸心蘸大酱(2024-01-29 16:20) 说: 
+>
+>你们说仙蛆里会不会也有串子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是专门往毁灭努纳克和天华这种人身上泼脏水的串子
+
+那整天看着纳努克和天华语录不出来分享真是最大恶极![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
+
+----
+
+##### <span id="pid740448455">7.[0] \<pid:740448455\> 2024-01-29 16:29:05 by 彼养的卡丘</span>
+纳说话方式和行为风格  有一种早年贴吧冥川七夜的美   不过区别在于纳有自己的小群拉人头和他一起过家家了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
