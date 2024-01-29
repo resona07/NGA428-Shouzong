@@ -116,3 +116,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 想撩妹，众所周知二游的社交性几乎是0
 有什么理由玩二游呢，玩蛋仔农药好歹真能连麦女大学生
 
+----
+
+##### <span id="pid740535462">14.[2] \<pid:740535462\> 2024-01-30 03:03:40 by 白夜凛音不堕乐园</span>
+想多了，我20年前玩A3玩天堂2之类的也不影响我现在玩媚宅手游喊有男不玩啊，更别说手游这块我还是从灵异阴阳录开始玩起的，现在那些当厂商孝子的脑回路我也看不明白![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
