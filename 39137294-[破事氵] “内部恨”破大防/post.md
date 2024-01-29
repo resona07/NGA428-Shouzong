@@ -621,3 +621,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 推其他的都是麻辣xxn，但是米哈游已经好几次暗戳戳卖和草神的cp(官方ep，活动剧情)，然后双卡池的另一个是她们“对家”的新五星辅助。偏偏卡池四星是对其他提升最大的辅助，要是麻辣仙女去为了四星抽卡很有可能会不小心抽出这俩五星![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，看见卡池我就已经开始准备狠狠看乐子了。
 
+----
+
+##### <span id="pid740493421">91.[0] \<pid:740493421\> 2024-01-29 20:28:46 by 在纽约的企鹅</span>
+>[jump](#pid740465321) 尤琪亚(2024-01-29 17:48) 说: 
+>所以我就纳闷了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>米桑在女性这边也没什么好口碑啊。
+>男的觉得他在巴结女的。
+>女的觉得他在巴结男的。
+>米桑到底在巴结谁啊？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>到......
+
+女的不如说本身就很难讨好，姿态越低越看不起![img](./59_3283bd31.png)，不如另一个养的钓鱼
+

@@ -130,3 +130,56 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 你说这个大家看不懂的，反正给两风男的辅助都是女的也挺幽默的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 平等的恶心男的和xxn，米桑永远这么幽默![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740491582">18.[1] \<pid:740491582\> 2024-01-29 20:15:57 by CyC1323</span>
+退坑好久了，才发现是个下落攻击拐
+这尼玛4.X 出个1.X的专拐？ 也太抽象了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740491705">19.[0] \<pid:740491705\> 2024-01-29 20:16:52 by telref</span>
+有一说一，头还可以，但脖子以下怎么像蟑螂...
+
+----
+
+##### <span id="pid740491933">20.[2] \<pid:740491933\> 2024-01-29 20:18:19 by aisqgl</span>
+一个不受太多制约的策划真是最快乐的职业呼哈哈哈。
+
+----
+
+##### <span id="pid740492237">21.[2] \<pid:740492237\> 2024-01-29 20:20:21 by aisqgl</span>
+>[jump](#pid740490693) 断罪之末日(2024-01-29 20:10) 说: 
+>
+>你们原神玩家连角色进同一个池子都能撕起来吗![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+你要理解，饭圈是这样的，理查大战的时候甚至有人拿角色在主线的台词数拉踩撕逼呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740492374">22.[0] \<pid:740492374\> 2024-01-29 20:21:21 by 神圣的卡苟斯</span>
+>[jump](#pid740490316) fervent987(2024-01-29 20:07) 说: 
+>
+>右下角这个新角色的脸怎么这么唐啊，而且感觉还有点眼熟
+
+唐狮少年，就是草稿里抄了粥的角色![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740492431">23.[2] \<pid:740492431\> 2024-01-29 20:21:47 by vicdf</span>
+后排提一句：珐露珊的设计是yomi(韩国女拳画师)![img](./23_3283bd31.png)
+
+----
+
+##### <span id="pid740492432">24.[0] \<pid:740492432\> 2024-01-29 20:21:47 by 月是故乡明a</span>
+闲云这设计是真丑，跟个黑耗子一样油油的感觉
+
+----
+
+##### <span id="pid740493412">25.[0] \<pid:740493412\> 2024-01-29 20:28:42 by 黑社会与美食家</span>
+>[jump](#pid740492431) vicdf(2024-01-29 20:21) 说: 
+>
+>后排提一句：珐露珊的设计是yomi(韩国女拳画师)![img](./23_3283bd31.png)
+
+这就不奇怪了(刨饭)，这就不奇怪了
+

@@ -63,3 +63,27 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./8_495fd1lc.jpg)
 
+----
+
+##### <span id="pid740492596">9.[0] \<pid:740492596\> 2024-01-29 20:22:52 by aisqgl</span>
+>[jump](#pid740491364) 我不会。(2024-01-29 20:14) 说: 
+>
+>编辑：点错了，本来想直接回复的。
+>
+>这是2024年的建树吗？太喜欢了，多来点。
+>
+>![img](./8_495fd1lc.jpg)
+
+握草，猛盒犹也只是在角落偷偷加，藤子直接放画面中间？![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid740492735">10.[0] \<pid:740492735\> 2024-01-29 20:23:50 by 别大珂</span>
+好光荣啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)腾讯的游戏发家史，是怎么一步一步走到今天来着
+![img](./10_3ee3be4j.jpg)
+
+----
+
+##### <span id="pid740493366">11.[0] \<pid:740493366\> 2024-01-29 20:28:21 by daxi101</span>
+自研IP没戏了，接着买新的外国IP乖乖上供版权费吧![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

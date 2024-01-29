@@ -325,3 +325,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ~~哦我就是喜欢玩傻逼飞机游戏的傻逼玩家啊，那没事了~~
 
+----
+
+##### <span id="pid740491545">49.[1] \<pid:740491545\> 2024-01-29 20:15:43 by aisqgl</span>
+倒不是指导什么的，但是反正号都不要了，卖了回点血不好吗？
+
+----
+
+##### <span id="pid740492155">50.[1] \<pid:740492155\> 2024-01-29 20:19:49 by fervent987</span>
+>[jump](#pid740491008) 西行妖上西行果(2024-01-29 20:12) 说: 
+>
+>太对了，stg就是孤儿游戏，这逼弹幕游戏没点特殊癖好真吸引不了人。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>~~哦我就是喜欢玩傻逼飞机游戏的傻逼玩家啊，那没事了~~
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)给你点个赞，我对每一个打stg的大触都是包含敬意的，除了魔魔丸
+
+----
+
+##### <span id="pid740492466">51.[0] \<pid:740492466\> 2024-01-29 20:22:00 by 流火火</span>
+东方还有格斗游戏嘞，我觉还挺好玩的
+
+----
+
+##### <span id="pid740492629">52.[4] \<pid:740492629\> 2024-01-29 20:23:01 by 萧西落</span>
+>[jump](#pid740489559) 明天就卸载(2024-01-29 20:03) 说: 
+>
+>最近发生啥了，有链接可以看看吗![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+没有链接，毕竟这个版提这个的都没了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+近期手综不是在讨论有男不玩吗，结果前天XXXX版一个没有在手综说过话的人说了一句“男不练”被光速达成手综人，XXXX版立马称是被手综进攻，于此同时手综车XXXX的贴很快被删，洗的都是基本被留了下来![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)
+
