@@ -332,3 +332,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)收到，以后岁月史书就是3+5的大药投下去，不是很喜欢玩时光机器吗，纯良粥友
 
+----
+
+##### <span id="pid740536826">42.[0] \<pid:740536826\> 2024-01-30 03:55:42 by 迷蟹江</span>
+题外话问问lz头像是？印象里有，想不起来![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid740536855">43.[0] \<pid:740536855\> 2024-01-30 03:57:13 by 对对双双</span>
+>[jump](#pid740535128) Mortalwisdom(2024-01-30 02:54):
+
+是我之前没仔细看史书，想当然的脑补专版指导了，如果那人确实没手综成分，那这事情不应该让手综背锅![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+

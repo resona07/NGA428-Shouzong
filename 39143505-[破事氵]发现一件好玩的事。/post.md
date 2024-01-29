@@ -85,3 +85,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 女6一共68个
 粥6星以下绝大部分没啥用
 
+----
+
+##### <span id="pid740536909">14.[0] \<pid:740536909\> 2024-01-30 03:59:05 by 鬼岛巨人一米四</span>
+>[jump](#pid740535851) sbsx123(2024-01-30 03:15) 说: 
+>
+>原版我以前真待过，女不练点赞多，男不练会被踩+yygq，不过确实没到粥版那种会被斩杀的程度。然后还有原版特色的男不练然后点开有钟离万叶![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这不也是钟离万叶教大家的有男不玩吗
+
+强度绑定，你不玩她家咯咯都不行
+

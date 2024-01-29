@@ -546,3 +546,21 @@ yysy 剧情很低能 到处致敬抄袭
 
 欢迎楼主看完发表看法![jojo立5](https://img4.nga.178.com/ngabbs/post/smile/a2_40.png)
 
+----
+
+##### <span id="pid740536782">72.[0] \<pid:740536782\> 2024-01-30 03:53:37 by 鬼岛巨人一米四</span>
+>[jump](#pid740521919) 弗罗西诺内(2024-01-30 00:03) 说: 
+>
+>舟版集美标记，出现7次
+
+big brother is watching u![jojo立2](https://img4.nga.178.com/ngabbs/post/smile/a2_38.png)
+
+劝诸位谨言慎行，断头台可不跟你讲道理![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)
+
+----
+
+##### <span id="pid740536807">73.[0] \<pid:740536807\> 2024-01-30 03:54:37 by sotath</span>
+>[jump](#pid740516068) 蓝冰·白夜(2024-01-29 23:16):
+
+早期评价比较好的单剧应该有&quot;沃伦姆德的薄雾&quot;，说是很有舟味儿
+
