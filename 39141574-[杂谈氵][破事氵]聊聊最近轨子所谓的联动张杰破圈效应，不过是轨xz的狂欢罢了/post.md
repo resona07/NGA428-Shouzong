@@ -143,3 +143,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740511746">24.[0] \<pid:740511746\> 2024-01-29 22:42:18 by 深夜孤岛</span>
 买量仙人![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)![img](./24_4b05622h.jpg)![img](./24_2570182h.jpg)
 
+----
+
+##### <span id="pid740512396">25.[0] \<pid:740512396\> 2024-01-29 22:47:23 by 巴耶黎</span>
+>[jump](#pid740505724) FeliciaStacy(2024-01-29 21:57) 说: 
+>
+>轨子毕竟指着2.0咸鱼翻身拼死一搏呢嘛![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)不惜从皮套俱乐部星核猎手里挑一个给灰毛当老婆，还调来了龟龟们最喜欢的二次元意义兼男同海卡编剧，想必一定是要起死回生27国登顶了![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)
+
+当年海一把钥匙骂了26万，今天海咔2.0直接巴掌糊脸上结果评论500+转发300+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+这不但缩水几十倍，评论全是厕妹腐女辱骂乙大妈滚去玩乙游，米哈游多卖南桐爱看，和当年海咔一模一样
+我们崩铁真的有福了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

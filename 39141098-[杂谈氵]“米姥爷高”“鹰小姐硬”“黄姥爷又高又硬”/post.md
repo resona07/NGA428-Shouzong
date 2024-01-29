@@ -49,3 +49,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740507365">7.[0] \<pid:740507365\> 2024-01-29 22:09:29 by 笑死我了AAA</span>
 黄姥爷是羽中吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740512435">8.[0] \<pid:740512435\> 2024-01-29 22:47:34 by 发人深思</span>
+楼主调子起的太高了，后面众兄弟实在是跟不上啊，鄙人就在这里喊一句口号，捧个人场
+有男不玩
+![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)
+
