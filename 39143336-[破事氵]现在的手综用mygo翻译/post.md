@@ -124,3 +124,14 @@ go友能不能回猴区发癫，真当每个人都理解你们二刺螈女同偶
 ##### <span id="pid740535582">17.[2] \<pid:740535582\> 2024-01-30 03:07:12 by 影响567</span>
 不是所有人都看过你mygo，何况还是暗语![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740536129">18.[0] \<pid:740536129\> 2024-01-30 03:25:24 by cav_ly</span>
+>[jump](#pid740532915) yukitsuki(2024-01-30 02:07) 说: 
+>
+>![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)mygo河豚的攻击性也不低倒是真的，我是真想把mygo开除邦籍，河豚天天拿mygo嘬邦邦奶嘴  
+>邦邦时期起码音游门槛死了一批河豚，大家聊的也都是打音游的事情![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+>mygo一火全在ky，河豚也不知道哪里冒出来这么多
+
+答案是全部入坑音游了，入坑就要入全套，甚至还要购入cd谷子。起码我身边全都是的 一夜之间全部变成邦多利老手了
+
