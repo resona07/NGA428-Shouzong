@@ -316,3 +316,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 别走啊姐，再唠会儿呗，给大家讲讲新经![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740539146">41.[6] \<pid:740539146\> 2024-01-30 06:01:11 by mianmi123</span>
+>[jump](#pid740539077) kissmaass(2024-01-30 05:57):
+
+你要真被砍头了，你猜砍你头的是手综老哥还是你的主子![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
