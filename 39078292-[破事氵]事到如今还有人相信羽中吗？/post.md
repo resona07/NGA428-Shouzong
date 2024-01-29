@@ -195,3 +195,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740482504">32.[0] \<pid:740482504\> 2024-01-29 19:20:30 by 慕顾ovo</span>
 翀这是第几度背叛了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740503443">33.[0] \<pid:740503443\> 2024-01-29 21:39:52 by 齐布_</span>
+我相信他啊
+
+我相信他一定会把自己作死![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+

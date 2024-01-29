@@ -275,3 +275,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740500999">45.[1] \<pid:740500999\> 2024-01-29 21:21:39 by 热刀天</span>
 ![img](./45_0b5c79lc.jpg)
 
+----
+
+##### <span id="pid740501785">46.[0] \<pid:740501785\> 2024-01-29 21:27:30 by 魔域真主</span>
+>[jump](#pid740487762) 有冇搞錯(2024-01-29 19:52) 说: 
+>
+>![img](./41_e3ed11g0.jpg)
+>过几天出的
+
+怎么感觉画风像朝凪？
+

@@ -229,3 +229,21 @@ zsbd，这怎么还有mxz啊 艹![喷](https://img4.nga.178.com/ngabbs/post/smil
 牢盆这人对某些伏地魔的厌恶一直都有![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 目前看他就是粥米69太先进了，被粥人批臭了
 
+----
+
+##### <span id="pid740502877">35.[1] \<pid:740502877\> 2024-01-29 21:35:44 by 辰栾邓戊古于</span>
+>[jump](#pid740497387) 穿上马甲就不认识了(2024-01-29 20:57) 说: 
+>
+>临死前开了两枪，还真让它蒙着了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我怎么记得他上次被封就是因为这个话题，因为同一个话题连续被bw殺两次的含金量好吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740503686">36.[0] \<pid:740503686\> 2024-01-29 21:41:31 by 黑社会与美食家</span>
+>[jump](#pid740496132) UID65550053(2024-01-29 20:48) 说: 
+>
+>被标记了又能怎样？你以为谁都和你一样连自己喜欢的游戏都不敢说出来，被人看到成分就害怕地恨不得钻地里？
+
+拔出萝卜带出泥了属于是。不对，你不会就是大西大佐吧？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

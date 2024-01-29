@@ -85,3 +85,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 手游，战旗，米池。这三个东西摆在这，，还有人觉得能复活，鸡吧都要笑裂了。 ![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
 
+----
+
+##### <span id="pid740504141">14.[0] \<pid:740504141\> 2024-01-29 21:44:51 by 咸鱼君乙</span>
+解神者游戏本体比土豆2还拉，能活那么久也算是结晶给面子
+

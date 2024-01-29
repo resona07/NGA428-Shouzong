@@ -132,3 +132,62 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740502028">20.[0] \<pid:740502028\> 2024-01-29 21:29:17 by AyPete</span>
 讲真，你这个让我回想起古早粥版某乌冬节奏，带都带不明白。不如继续骂xxn
 
+----
+
+##### <span id="pid740502240">21.[0] \<pid:740502240\> 2024-01-29 21:30:48 by 福利接收人</span>
+峰......峰？
+攀登纳罗达峰！！！
+你说这个我就来劲了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740502301">22.[0] \<pid:740502301\> 2024-01-29 21:31:15 by Mélusine003</span>
+>[jump](#pid740500959) nextGenerationBell(2024-01-29 21:21) 说: 
+>
+>不就是日俄战争吗
+>
+>友商都直接和日俄战争的日本旗舰联动了，到头来除了孝子岁来岁去也没铁拳。说难听的现在日俄战争本身就是舆论尴尬点，咱要骂肯定要日俄一起骂，然后就涉及友好睦邻的远东领土归属了，怎么扯都是烂账
+>
+>![img](./17_e73723a3.jpg)
+
+都和姚老板有关系啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740502361">23.[1] \<pid:740502361\> 2024-01-29 21:31:44 by 蓝色猫头</span>
+早就改的面目全非了。 现在连龙门，炎国都少谈了不知道吗。![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid740502559">24.[0] \<pid:740502559\> 2024-01-29 21:33:16 by Dorothy_Goddess</span>
+>[jump](#pid740502240) 福利接收人(2024-01-29 21:30) 说: 
+>
+>峰......峰？
+>攀登纳罗达峰！！！
+>你说这个我就来劲了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+玩红龙玩的.jpg
+
+----
+
+##### <span id="pid740503013">25.[0] \<pid:740503013\> 2024-01-29 21:36:36 by 好累，想睡</span>
+方舟这种各个国家隐喻还掺和到各国政治内容，遍地都是雷点，不怂早炸了 ，东国剧情到现连个影都没有
+
+----
+
+##### <span id="pid740503182">26.[0] \<pid:740503182\> 2024-01-29 21:37:50 by nextGenerationBell</span>
+现在设定的地图，东国和乌萨斯之间可能争夺土地的地方，离炎国距离挺远。
+
+但是毕竟是早就被molun时代的nga车过的瓜，所以是提前留后路还是后来补设定，见仁见智吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./26_0dd268sg.jpg)
+
+----
+
+##### <span id="pid740503263">27.[0] \<pid:740503263\> 2024-01-29 21:38:25 by 蒼月流雲</span>
+我觉得你不如直接去复制明日方舟支持xx独立比较简单![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+
+----
+
+##### <span id="pid740503918">28.[0] \<pid:740503918\> 2024-01-29 21:43:10 by Zhaozige</span>
+我觉得太复杂了，不如龙门xx简单明了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

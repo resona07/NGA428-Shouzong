@@ -219,3 +219,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 确实，那几个淋吧很怪，一边喜欢说什么女特务仙女琴贵人我狸我寡妇走地破尖叫破好像喜欢女角色，一边又喜欢各种男角色什么男枪卡牌乱七八糟的最喜欢让男角色cao 烂他们，给我看傻了都
 
+----
+
+##### <span id="pid740502969">31.[0] \<pid:740502969\> 2024-01-29 21:36:21 by fnvv</span>
+>[jump](#pid740500328) 梦与纸(2024-01-29 21:16) 说: 
+>
+>不带入主角带入卡池角色是我没想到的![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+据我在微博观察到的，那些赛博女同一但发现游戏出现黑丝、乳摇这些媚宅的元素，她们就会立刻出警，骂角色被男凝。
+而她们在意二游女角色男凝的一部分原因，就是她们把已经完全把角色当成自己本人，如果厂商把角色媚给宅男看，她们接受不了。
+

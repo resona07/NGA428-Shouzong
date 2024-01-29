@@ -126,3 +126,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740501700">19.[3] \<pid:740501700\> 2024-01-29 21:26:52 by SAKURA*</span>
 失踪士兵罢了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740503391">20.[2] \<pid:740503391\> 2024-01-29 21:39:23 by frolicest</span>
+顶一下，虽然很显然打起来之后真相是什么并不重要
+
+----
+
+##### <span id="pid740503486">21.[2] \<pid:740503486\> 2024-01-29 21:40:07 by jerry233</span>
+支持史官
+
+----
+
+##### <span id="pid740503544">22.[1] \<pid:740503544\> 2024-01-29 21:40:32 by 伤逝遐汐</span>
+那这么说粥也属于手综![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)凭什么用去手综发癫这种理由把人ban了
+
