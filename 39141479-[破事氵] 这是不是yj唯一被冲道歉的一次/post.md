@@ -116,3 +116,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 如果这个也算的话上面的几次抄袭修正声明都算了，还有几次顽子发布的声明也算，这就不是第一次了
 
+----
+
+##### <span id="pid740508917">14.[0] \<pid:740508917\> 2024-01-29 22:20:39 by 我不会。</span>
+真是令人感叹了。
+
+----
+
+##### <span id="pid740509539">15.[1] \<pid:740509539\> 2024-01-29 22:25:36 by I防御之王I</span>
+四张红纸已经算是变相滑跪了吧，但直接道歉的确实没啥印象，毕竟“高冷的鹰小姐”呢![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

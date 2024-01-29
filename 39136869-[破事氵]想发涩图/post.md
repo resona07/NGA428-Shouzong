@@ -285,3 +285,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 怎么感觉画风像朝凪？
 
+----
+
+##### <span id="pid740508418">47.[0] \<pid:740508418\> 2024-01-29 22:16:55 by 有冇搞錯</span>
+>[jump](#pid740501785) 魔域真主(2024-01-29 21:27) 说: 
+>
+>怎么感觉画风像朝凪？
+
+因为真的是朝凪
+

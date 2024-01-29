@@ -1405,3 +1405,22 @@ who cares？
 
 别挖坟。
 
+----
+
+##### <span id="pid740508493">183.[1] \<pid:740508493\> 2024-01-29 22:17:28 by 旋律臆想</span>
+>[jump](#pid740497338) 轮回转动(2024-01-29 20:56) 说: 
+>
+>尬黑等于洗，有些乱七八糟就别提了。还不如看点老乐子，起码是真事![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 也别光顾看yj，当年的米家学长们也是很重量级的。
+>
+>[url](https://ngabbs.com/read.php?tid=27962203)
+>
+>[url](https://nga.178.com/read.php?tid=27970629)
+>
+>[url](https://nga.178.com/read.php?tid=27992170)
+>
+>别挖坟。
+
+观光完毕，果然所有交流多的社群运营都是爆典屎山![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+但是不交流又没意思，我选择继续屎里蝶泳![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

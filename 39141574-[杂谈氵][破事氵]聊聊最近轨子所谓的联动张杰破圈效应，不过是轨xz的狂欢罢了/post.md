@@ -113,3 +113,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 听歌跟玩游戏没什么关系
 指望歌引流想多了
 
+----
+
+##### <span id="pid740508367">19.[0] \<pid:740508367\> 2024-01-29 22:16:35 by limao527</span>
+2.0大版本更新日服直播才6万人在线，ba的fes前直播11万马娘今天的月常直播9万多
+
+----
+
+##### <span id="pid740509564">20.[0] \<pid:740509564\> 2024-01-29 22:25:45 by emiyacynthia</span>
+宣发吃饱就完事了，潭U天天骂盒厂死都不如内部大聪明这么折腾几下来的快。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

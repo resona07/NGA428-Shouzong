@@ -178,3 +178,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740507864">27.[0] \<pid:740507864\> 2024-01-29 22:12:59 by 技竜</span>
 什么传话太监，就这点事把大伙叫出来?![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740508823">28.[0] \<pid:740508823\> 2024-01-29 22:19:48 by 役满演舞</span>
+![img](./28_2613fc34.jpg)
+你说得对，但这就是过去一年出典王夫妇拖鞋老头黑皮弱鸡邪教韩女一喷妖王午餐肉应得的福报
+
