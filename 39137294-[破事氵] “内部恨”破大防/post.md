@@ -478,3 +478,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我一个当时喜欢魈的路人粉都不知道那时原来那么腥风血雨，感谢切瓜。
 还好退坑了，前段时间看有瓜写说流云和魈炒CP，只能说米你喜欢就好![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)早退早解脱，男角色也好女角色也好，一个也别想跑![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740458625">73.[0] \<pid:740458625\> 2024-01-29 17:16:16 by 懂道理的兰百梨迦</span>
+>[jump](#pid740439160) 厄咒(2024-01-29 15:47) 说: 
+>
+>找到了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>![img](./51_28d86c2e.png)
+
+乐子人好期待啊。
+
+----
+
+##### <span id="pid740458976">74.[0] \<pid:740458976\> 2024-01-29 17:17:44 by beekinee</span>
+前面的解释真的让我笑死了，那按你们这说法，这个女角色是啥来头啊，不得被猛猛喷啊
+
+----
+
+##### <span id="pid740459488">75.[0] \<pid:740459488\> 2024-01-29 17:20:08 by 化骨咩咩掌</span>
+散失利还不是臭亩苟门光浪叫不流水，导致流水难看，小螺号失利，珐露珊去跟别人不是理所应当，这一切都怪亩勾不支持散
+
+----
+
+##### <span id="pid740460876">76.[0] \<pid:740460876\> 2024-01-29 17:26:44 by 厄咒</span>
+>[jump](#pid740445543) 在纽约的企鹅(2024-01-29 16:16):
+
+我也不太清楚，这位第一次爆料那段时间我没逛nga![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)很多人说博士可能本体死，切片进池，不知道真假反正![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
