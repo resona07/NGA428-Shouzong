@@ -662,3 +662,9 @@ KY？K你麻痹Y，在原版老子对着萝莉发癫我可没见到有人尊重�
 
 杀了我！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740540631">84.[0] \<pid:740540631\> 2024-01-30 06:48:04 by 雨后池上</span>
+太早了太早了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)你发的太早了。
+但凡你晚点发你头皮就没了，哪还有你出来挖坟的时间
+
