@@ -53,3 +53,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740433108">7.[0] \<pid:740433108\> 2024-01-29 15:18:42 by 吃掉咸鱼</span>
 建议回到有男不玩版本
 
+----
+
+##### <span id="pid740434233">8.[17] \<pid:740434233\> 2024-01-29 15:23:59 by Mortalwisdom</span>
+![img](./8_4cce088k.jpg)![img](./8_38fb3e3i.jpg)![img](./8_1a45ffqz.jpg)
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)割完原住民头皮后发现别人打过来了，就质问原住民你们怎么不帮我们打回去.你们原住民肯定和他们是一伙的
+我的评价是，废物![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
+----
+
+##### <span id="pid740434749">9.[5] \<pid:740434749\> 2024-01-29 15:26:12 by Asahi丶Minato</span>
+现在是自由搏击的版本，什么一直都是自由搏击吗![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+那现在是手综沙包的版本![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
