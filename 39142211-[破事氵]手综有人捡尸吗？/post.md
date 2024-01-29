@@ -411,3 +411,37 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740531004">45.[2] \<pid:740531004\> 2024-01-30 01:38:56 by Dorothy_Goddess</span>
 E2244也是给舟版说话的，我有点印象
 
+----
+
+##### <span id="pid740531971">47.[2] \<pid:740531971\> 2024-01-30 01:51:58 by fervent987</span>
+很遗憾，我从来都没参与过这些故事会，可能捡不到我的尸体了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+不过我知道的是新注册的号虽然有48小时发言限制，但是还是有点赞权限的。
+
+----
+
+##### <span id="pid740531975">48.[3] \<pid:740531975\> 2024-01-30 01:52:05 by YezHiWeIMu</span>
+我草打个游戏回来似了这么多人，还有不少眼熟的，ykh恐怖如斯啊![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+----
+
+##### <span id="pid740532104">49.[2] \<pid:740532104\> 2024-01-30 01:53:56 by 一曲浮生</span>
+我去，这个点了是哪个bw还在，那个心语mm发癫帖子被隐藏了。
+没噶头皮应该是其他bw吧？我先run了
+
+----
+
+##### <span id="pid740532187">50.[0] \<pid:740532187\> 2024-01-30 01:55:11 by mianmi123</span>
+>[jump](#pid740529192) skq000(2024-01-30 01:15):
+
+搞笑的是，这个直接骂人各种ooxx的家伙。
+一直活到了今天下午。
+
+比榜上大多数人坚挺不知道多少倍![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740532199">51.[0] \<pid:740532199\> 2024-01-30 01:55:19 by CourierSix</span>
+现在想起来我当时被连着锁了三帖居然没死![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+
+编辑：第四贴是复读有那个不玩，这下有那个不玩救了我一命了
+

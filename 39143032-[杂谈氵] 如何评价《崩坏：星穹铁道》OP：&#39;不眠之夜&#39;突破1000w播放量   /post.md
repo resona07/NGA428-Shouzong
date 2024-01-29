@@ -167,3 +167,8 @@ op不眠之夜关我什么事？我又不是op
 ##### <span id="pid740530606">28.[1] \<pid:740530606\> 2024-01-30 01:33:31 by 诸爱得彼福</span>
 哇好厉害(无感情) 能让下个新角色池子不挂0吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740532159">29.[0] \<pid:740532159\> 2024-01-30 01:54:47 by 在纽约的企鹅</span>
+op睡不着觉了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

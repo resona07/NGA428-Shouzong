@@ -461,3 +461,32 @@ have man no play
 ##### <span id="pid740531475">72.[0] \<pid:740531475\> 2024-01-30 01:45:05 by illyfhy</span>
 有男不玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid740531589">73.[0] \<pid:740531589\> 2024-01-30 01:46:27 by 一曲浮生</span>
+为什么不呢。我倒要看看xxn们还会来噶几次
+
+----
+
+##### <span id="pid740531820">74.[0] \<pid:740531820\> 2024-01-30 01:49:49 by 稻花香里说丰年123</span>
+有男不玩
+
+----
+
+##### <span id="pid740531993">75.[1] \<pid:740531993\> 2024-01-30 01:52:24 by 哒哒块2号机</span>
+先不爬楼，让我看看几楼出现不等式棉花![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+
+爬完了，咋不来刷不等式了![衰](https://img4.nga.178.com/ngabbs/post/smile/pg04.png)没意思
+
+最后，有男不玩![严肃](https://img4.nga.178.com/ngabbs/post/smile/pg07.png)
+
+----
+
+##### <span id="pid740532208">76.[0] \<pid:740532208\> 2024-01-30 01:55:24 by 我老婆是个死宅</span>
+>[jump](#pid740527900) 弗罗西诺内(2024-01-30 00:59) 说: 
+>
+>![img](./67_14618f-y.jpg)
+>今日工作结束，祝大家晚安
+
+偷偷问下我有标记不![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

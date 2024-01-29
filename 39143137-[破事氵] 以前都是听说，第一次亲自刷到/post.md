@@ -92,3 +92,8 @@ ba我玩了一周，起码后续色图和同人我都在看，~~我是真不喜�
 
 不是很懂为什么会被你打成拉踩，原视频我看完了，up主一句话也没说，视频展示的内容也没有出现游戏里不好的事情。难道一个人玩了一款游戏就要玩一辈子吗？
 
+----
+
+##### <span id="pid740531730">14.[0] \<pid:740531730\> 2024-01-30 01:48:29 by 清风挽伈</span>
+唉，炼铜![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)<div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>点击展开 ...</div><span class="collapse_content" id="foldCnt">![img](./14_b40b21no.jpg)</span></div>照咸叶粽这说法泛式也炼铜了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![img](./14_acd5fasg.png)
+
