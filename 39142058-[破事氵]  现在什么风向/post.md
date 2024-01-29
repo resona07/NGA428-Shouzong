@@ -118,3 +118,8 @@ cp达到了微妙的平衡![哭笑](https://img4.nga.178.com/ngabbs/post/smile/a
 米x粥  散x魈
 何等荣幸，竟能同时嗑这两对CP，锁死！必须锁死！
 
+----
+
+##### <span id="pid740527192">18.[1] \<pid:740527192\> 2024-01-30 00:51:59 by 哈士奇油蜡</span>
+米粥69！给我嗑！为什么不嗑![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+

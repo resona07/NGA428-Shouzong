@@ -87,3 +87,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740524295">14.[0] \<pid:740524295\> 2024-01-30 00:24:34 by 弈宸。</span>
 ![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)好活，无头骑士继续冲锋
 
+----
+
+##### <span id="pid740526826">15.[0] \<pid:740526826\> 2024-01-30 00:47:59 by 哈士奇油蜡</span>
+![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)老哥好文采 标记 清除！
+

@@ -229,3 +229,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)很像未成年能说的话——自家因为查成分偷偷查也就罢了
 拿出来就是公共事件这货完全不懂勒
 
+----
+
+##### <span id="pid740527655">37.[1] \<pid:740527655\> 2024-01-30 00:56:46 by ninesky1985</span>
+他家里人知道他这句话吗
+
