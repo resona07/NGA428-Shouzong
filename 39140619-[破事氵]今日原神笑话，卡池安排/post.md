@@ -183,3 +183,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这就不奇怪了(刨饭)，这就不奇怪了
 
+----
+
+##### <span id="pid740494496">26.[0] \<pid:740494496\> 2024-01-29 20:36:07 by 单手杰斯</span>
+好难看的东西，真有智商正常的人花钱抽这玩意![恨](https://img4.nga.178.com/ngabbs/post/smile/a2_21.png)
+
+----
+
+##### <span id="pid740495085">27.[0] \<pid:740495085\> 2024-01-29 20:40:30 by 7X28X9</span>
+无法理解在吵什么？是谁的辅助，不是应该从游戏机制来分析吗，怎么搞得好像在争论是谁的cp一样？
+

@@ -97,3 +97,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740492943">15.[0] \<pid:740492943\> 2024-01-29 20:25:24 by Shanger5124</span>
 不知道为什么看到这标题就犯恶心![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)不针对楼主
 
+----
+
+##### <span id="pid740494526">16.[1] \<pid:740494526\> 2024-01-29 20:36:26 by 鸭梨果汁</span>
+你这标题太眼熟了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740495068">17.[4] \<pid:740495068\> 2024-01-29 20:40:24 by ZYQGZENX</span>
+yys这事也是挺搞笑的
+当时棉花独断万古，大手一挥开除其二游籍，成功登顶流水之巅
+然而当综u批判他是第一个混厕xxn游戏时，又要拿yys出来拄拐![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)
+
+----
+
+##### <span id="pid740495072">18.[2] \<pid:740495072\> 2024-01-29 20:40:25 by 手机里有一款游戏</span>
+>[jump](#pid740494526) 鸭梨果汁(2024-01-29 20:36):
+
+之前粥友总是扣我川人帽子，我不得不发个粥版专属标题来自证清白了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

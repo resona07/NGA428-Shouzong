@@ -276,3 +276,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 其实事情也简单就一个有开炮权力的挑拨然后向自己最讨厌的群体开炮
 开始最无辜的肯定是手综版的吧
 
+----
+
+##### <span id="pid740494996">33.[0] \<pid:740494996\> 2024-01-29 20:39:57 by Jasun030</span>
+>[jump](#pid740488811) 你不知道屏幕那边到底是谁(2024-01-29 19:58):
+
+当时一堆说加一键摸头，收东西会毁灭游戏体验
+说一键扫荡就是会让人退坑
+鹰角装了一键摸头之后，也没看到那群人出来喷鹰角![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -37,3 +37,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 要真的暗示这个，我只能说骑士哥说得太对啦。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740495477">5.[0] \<pid:740495477\> 2024-01-29 20:43:30 by RavenFubuki</span>
+雷霆骑士能和羽中搭上线全靠死蝴蝶做中间人的，所以之前雷霆骑士真是在代表羽中爆典的话那多半意味死蝴蝶卷土重来了
+
+----
+
+##### <span id="pid740495617">6.[0] \<pid:740495617\> 2024-01-29 20:44:29 by duqlwx</span>
+>[jump](#pid740489222) asd92570689(2024-01-29 20:01) 说: 
+>
+>羽中另外一个穴兄弟，具体事迹有点过于离谱所以建议去看史官![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+穴兄弟？干过同一个批？
+
