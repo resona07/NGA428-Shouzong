@@ -503,3 +503,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 还是那句话，凡是否定扭曲解构怀疑“有男不玩”的，成份大概率有问题![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740541990">63.[0] \<pid:740541990\> 2024-01-30 07:25:41 by 科尔斯·斯林顿</span>
+>[jump](#pid740534759) 对对双双(2024-01-30 02:44) 说: 
+>
+>“从未对外指导，只是对内要求”
+>指去专版狠狠的指导被怒喷滚回手综么![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+>
+>------------
+>白天没仔细看，刚刚细细看了下史书，才发现以上发言是我没细看史书误判了，是该被楼下的坛友喷。
+>史书里说被怒斥的人没有手综发言记录？那感觉那边有点太敏感了，换个角度就是口号现在的威力这么强大？现在只要说话带有男就会被认为是手综出品？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+刚在隔壁瓜版的白荆帖子里被集美们建议回手综，只能说有男不玩的圣言录含金量确实高![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)，石砸狗叫
+
