@@ -226,3 +226,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740519623">34.[0] \<pid:740519623\> 2024-01-29 23:44:34 by 潜水企鹅</span>
 棉花会吃人，反麻辣火锅简直有毛病，不是四川人，有男不玩。
 
+----
+
+##### <span id="pid740520218">35.[3] \<pid:740520218\> 2024-01-29 23:49:36 by 就是百宝袋</span>
+米鹰锁死，仙粥69![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740521065">36.[3] \<pid:740521065\> 2024-01-29 23:56:21 by HEARTUNDERBLΛDE</span>
+原来还是有人发现了，很欣慰。
+感兴趣的去瓜版BA国服修改翻译的楼看看，嘲讽ml人的一点一个准![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)可惜第一个楼被隐了
+

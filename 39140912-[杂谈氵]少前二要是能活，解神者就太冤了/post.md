@@ -129,3 +129,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 虽然后来改了，但是彻底打消了那些还在观望的人的信心，纷纷跑路。我当时没跑纯粹是因为送得多+肉鸽割草还行，后来数值膨胀太厉害，肉不动鸽了我也跑了。
 
+----
+
+##### <span id="pid740520010">21.[0] \<pid:740520010\> 2024-01-29 23:47:57 by 泡沫attack</span>
+解神者没牛也活不了多久![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740520194">22.[0] \<pid:740520194\> 2024-01-29 23:49:23 by 幻想乡花开</span>
+说起来解牛者是真的牛吗？
+我云了一下怎么感就是个舔狗的故事，有牛吗？
+而且最近看贴吧也有说
+少昊这个角色改之前对主角也并不好![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

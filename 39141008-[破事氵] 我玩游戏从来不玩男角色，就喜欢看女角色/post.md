@@ -45,3 +45,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我记得很久之前手游都是有男不练，有男不玩的。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)  
 不知道到方舟怎么就就不行了还出刀的，大概是憋坏了，被手游综破防很久了，终于有机会能杀人了索性不装了。
 
+----
+
+##### <span id="pid740520334">7.[0] \<pid:740520334\> 2024-01-29 23:50:34 by 老猫饼又贩了</span>
+我倒没那么极端，(以前是，现在能接受了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png))但是还是得看哪种男人，阴湿的那种是真的和吃了蟑螂一样恶心![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+

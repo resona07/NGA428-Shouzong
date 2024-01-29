@@ -267,3 +267,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这真的炼起来了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740520224">39.[0] \<pid:740520224\> 2024-01-29 23:49:38 by DevGrinch</span>
+饭圈营销手段吧。这些人骂了还不是照样玩，锁死别跑出来最好。
+
+----
+
+##### <span id="pid740520330">40.[0] \<pid:740520330\> 2024-01-29 23:50:33 by 火前流明</span>
+这波啊，这波是花式爆集美金币
+
+----
+
+##### <span id="pid740521431">41.[0] \<pid:740521431\> 2024-01-29 23:59:09 by 炎弹</span>
+丑，生理不适的丑，米哈游美术继续这么糊弄真以为信徒们能吃一辈子屎啊![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

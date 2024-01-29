@@ -323,3 +323,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我看不够，他们那结晶要是够还至于在专版那个没两个人的地方有时还能被狠狠踩头![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740520040">47.[1] \<pid:740520040\> 2024-01-29 23:48:12 by bwbbs</span>
+我说实话，tnl的性质完全没二手烟严重
+
+结果散爆比米桑还能作死，又没有原神输血，这要能救回来米桑高低得找翀桑取经![img](./47_3283bd31.png)
+

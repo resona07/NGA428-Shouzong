@@ -173,3 +173,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740518609">26.[0] \<pid:740518609\> 2024-01-29 23:35:54 by ZGDX夜</span>
 还刘呢这啥都没有啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)是卖草鞋时期的刘吗
 
+----
+
+##### <span id="pid740519872">27.[0] \<pid:740519872\> 2024-01-29 23:46:50 by HEARTUNDERBLΛDE</span>
+越来越期待一年半载以后了，届时kl、yj、网易的新开放世界大作，与米mhy的新游戏都该齐聚一堂，在早已进入存量市场的“一般向”游戏中，尽情厮杀吧![奸笑](https://img4.nga.178.com/ngabbs/post/smile/)
+看戏看戏![喘](https://img4.nga.178.com/ngabbs/post/smile/)
+

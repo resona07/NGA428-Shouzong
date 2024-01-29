@@ -266,3 +266,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740518540">39.[0] \<pid:740518540\> 2024-01-29 23:35:19 by 善恶天平</span>
 我感觉少前二的整活还在继续，根本停不下来![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740521191">40.[0] \<pid:740521191\> 2024-01-29 23:57:23 by Leloucho</span>
+>[jump](#pid740511911) 音无园香丶(2024-01-29 22:43) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我本来想弄完戒指成就就润的，然后被那边皮肤礼包化搞的直接不玩了
+>![img](./30_0ba88bd5.jpg)
+>![img](./30_bf7339d5.jpg)
+>![img](./30_9f6c0fd5.jpg)
+>[img]./mon_202
+
+差不多也是我的退坑助力之一，决定性的一击是屎山客户端，稳定10分钟闪退是玩不了一点，后面看消息好像过了一个多月才修。
+刚上去看了眼发现我退了这么久家具排行还在前50只能说应得的，看什么时候能上坟了，现在这局面应该快了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
