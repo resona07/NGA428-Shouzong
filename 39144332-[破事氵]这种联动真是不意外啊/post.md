@@ -27,3 +27,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740553706">4.[0] \<pid:740553706\> 2024-01-30 09:14:39 by 墨缱绻</span>
 这不让散兵连动个震动棒？一边震动一边语音“就凭你也配直视我”，xxn们肯定买疯了
 
+----
+
+##### <span id="pid740554012">5.[0] \<pid:740554012\> 2024-01-30 09:16:20 by 细雪之上</span>
+很正常的联动吧
+其他游戏也有
+
+----
+
+##### <span id="pid740554422">6.[6] \<pid:740554422\> 2024-01-30 09:18:53 by 焚心绚华绘</span>
+>[jump](#pid740554012) 细雪之上(2024-01-30 09:16) 说: 
+>
+>很正常的联动吧
+>其他游戏也有
+
+你是？![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)![img](./6_3a7d32sg.jpg)
+

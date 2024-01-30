@@ -174,3 +174,47 @@ iOS的话弄个外服号有不少买断单机，国内的因为没有版号的�
 ##### <span id="pid740551744">28.[0] \<pid:740551744\> 2024-01-30 09:02:31 by beast_lV</span>
 那必然是泰坦之旅
 
+----
+
+##### <span id="pid740553432">29.[0] \<pid:740553432\> 2024-01-30 09:12:54 by MBT96B</span>
+那可太多了。
+安卓:
+太空刑警(space marshals)3部曲_45度俯视角射击，潜行。
+忍者神龟:施莱德的复仇(TMNT:shredder&#39;s revenge)_横版动作。
+Huntdown_横版射击，赛博朋克。
+勇敢的哈克_银河恶魔城，废土。
+ATOM:rpg与ATOM:rpg trudograd_CRPG，废土，俄罗斯游戏。
+
+安卓战棋:
+XCOM:enemy within
+XCOM2
+这是警察2(this is the police 2)
+义警(rebel cops)
+陷阵之志into the breach
+战锤40K:机械神教warhammer40k:mechanicus
+克苏鲁的呼唤：失落之地Call of Cthulhu:Wasted Land_一战，克苏鲁
+shadowrun:dragonfall暗影狂奔：龙陨_赛博朋克，奇幻。
+《Shadowrun Returns》(暗影狂奔：归来)_赛博朋克，奇幻。
+ios:
+死亡守望:泰伦入侵_战锤40k,战棋
+《光环：斯巴达突袭(Halo： Spartan Assault)》:45度俯视角射击
+《光环：斯巴达进攻(Halo： Spartan Strike)》:45度俯视角射击
+
+----
+
+##### <span id="pid740554575">30.[0] \<pid:740554575\> 2024-01-30 09:19:53 by 无寿之梦</span>
+舟游![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![img](./30_e999faer.jpg)
+
+----
+
+##### <span id="pid740554796">31.[0] \<pid:740554796\> 2024-01-30 09:21:10 by TachibanaClover</span>
+吸血鬼幸存者，本体免费dlc收费，不过也是买断制
+
+----
+
+##### <span id="pid740555474">32.[0] \<pid:740555474\> 2024-01-30 09:25:03 by i8ygqwd</span>
+部落与弯刀  剧情还蛮有意思的，还有mod，不过后期跑商有点无聊
+tap上的黎明前20分钟，不是买断制，但是玩下来感觉和买断差不多了，割草游戏
+
