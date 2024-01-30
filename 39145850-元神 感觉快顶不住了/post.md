@@ -242,3 +242,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 个人觉得元梦就是单纯的入场晚了，这个类型的游戏社交性太强很难拉用户的
 至于本身质量，没有那么大的差距
 
+----
+
+##### <span id="pid740592532">33.[0] \<pid:740592532\> 2024-01-30 12:17:24 by Red二媚</span>
+>[jump](#pid740590665) WTzl(2024-01-30 12:08) 说: 
+>
+>安卓苹果不互通还能找个借口，比如很少有人双持2个设备![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+><span style="font-size:300%;line-height:183%"><b>怎么还有QQ区微信区不互通的上古煞笔操作</b></span>
+>![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)<b>搁这我Q区朋友微信我拉他玩还得分享二维码去扫不能游戏内直接不煞笔吗</b>![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
+>腾讯之前有个优势就是怎么下都是官服![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+>现在人家冈易蛋仔![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)ios安卓账号互通可以无缝切换![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)官渠可以游戏内直接加好友一起玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)[b]你狗
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)张小龙罪大恶极啊罪大恶极
+
+----
+
+##### <span id="pid740592558">34.[0] \<pid:740592558\> 2024-01-30 12:17:32 by a1385782946</span>
+猪场一直擅长的是做出一个带社交因素的手游爆款，但是过去一直在长线运营上出问题，这次的逆水寒和蛋仔如果能兜住，确实能给企鹅一定打击
+
+通俗来说，就是以前藤子觉得自己是靠自己的渠道，但是实际上猪场自己作死也占了不小的比重
+
+----
+
+##### <span id="pid740594117">35.[0] \<pid:740594117\> 2024-01-30 12:24:49 by 葉凡</span>
+还是出的太晚了，说不定能看到腾讯的滑铁卢
+

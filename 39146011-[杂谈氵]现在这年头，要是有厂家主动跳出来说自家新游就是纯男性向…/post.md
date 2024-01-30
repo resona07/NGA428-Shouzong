@@ -305,3 +305,24 @@ nikke和大碧蓝版，是我目前为止仅见过的，看见河豚就杀的板
 ##### <span id="pid740591673">39.[0] \<pid:740591673\> 2024-01-30 12:13:12 by 对对双双</span>
 俩乙女游戏开服一周流水合计差不多3e，如果真出个高品质乙男游戏，流水能比肩那俩乙女游戏不![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740593552">40.[1] \<pid:740593552\> 2024-01-30 12:21:58 by 苍月de镇魂曲</span>
+你这个打算，我建议你玩外服游戏，国内你是欠xxn举报了
+
+----
+
+##### <span id="pid740594061">41.[0] \<pid:740594061\> 2024-01-30 12:24:34 by 苍月de镇魂曲</span>
+>[jump](#pid740589256) 帝辛子受(2024-01-30 12:01) 说: 
+>
+>有一说一，nga的大碧蓝版还相对温和，河豚去碧蓝航线吧说两句，直接骷髅王的晚钟就响了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)<div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>点击展开 ...</div><span class="collapse_content" id="foldCnt">反观ba版，我不好说</span></div>
+
+ba吧咋样不好说，但是大部分ba外服玩家都是坚定的反河豚的
+
+----
+
+##### <span id="pid740594658">42.[0] \<pid:740594658\> 2024-01-30 12:27:25 by 帝辛子受</span>
+>[jump](#pid740594061) 苍月de镇魂曲(2024-01-30 12:24):
+
+你看看ba版那个七曜还活着就知道什么德行了，和贴吧的夜大佐同流合污的玩意
+

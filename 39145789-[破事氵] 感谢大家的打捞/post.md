@@ -186,3 +186,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 人教人百次不会，事教人一次就行![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
 
+----
+
+##### <span id="pid740592300">24.[1] \<pid:740592300\> 2024-01-30 12:16:13 by 超越型莫德雷德</span>
+>[jump](#pid740589558) 朱月枫子(2024-01-30 12:02) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)明日……是不好惹的
+
+搁以前我会说谁家小孩还不写作业去
+但是现在我只会说米粥99![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740592706">25.[0] \<pid:740592706\> 2024-01-30 12:18:11 by malsjkpo</span>
+唉，在我似了的时候白白看着大伙似
+现在复活了老哥们还没长回来头皮
+
+----
+
+##### <span id="pid740593080">26.[0] \<pid:740593080\> 2024-01-30 12:19:53 by 弗罗西诺内</span>
+>[jump](#pid740592706) malsjkpo(2024-01-30 12:18) 说: 
+>唉，在我似了的时候白白看着大伙似
+>现在复活了老哥们还没长回来头皮
+
+欢迎你,名人堂传奇
+

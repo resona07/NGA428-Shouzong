@@ -47,3 +47,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 他们真正想写的是角色都有自己的性生活![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740592138">7.[0] \<pid:740592138\> 2024-01-30 12:15:24 by 蓝梦公司</span>
+角色有自己的生活我干嘛不去玩《模拟人生》
+
+----
+
+##### <span id="pid740592274">8.[0] \<pid:740592274\> 2024-01-30 12:16:04 by 五枝星穗</span>
+角色真有生活吗？有个屁的生活！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+不喜欢你要喜欢别人，这叫自己的生活？怎么纸片人除了谈恋爱生活里没别的东西？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740593081">9.[0] \<pid:740593081\> 2024-01-30 12:19:53 by 无寿之梦</span>
+所有三流写手都会在反主流的过程中产生一种莎翁式的错觉，所以它们热衷于此，尽管它们仅仅是在喂屎而已。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740595234">10.[0] \<pid:740595234\> 2024-01-30 12:30:14 by diuren</span>
+>[jump](#pid740584409) 雨后池上(2024-01-30 11:39) 说: 
+>
+>真能写出角色有自己生活的都去写网文了，为啥要在二游厂当文案受气
+
+能写出角色有自己生活的网文作者，个个都能从读者手上爆到米，只能说有的人没本事写，卡在那里了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+

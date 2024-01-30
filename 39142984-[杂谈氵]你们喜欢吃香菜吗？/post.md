@@ -187,3 +187,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 凡是总是误加香菜的店，我不会去第三次。我不去并不会影响老板挣钱
 但如果老板跑到饭馆外的大街上，说所有人都得吃香菜，这是老板脑子有泡了
 
+----
+
+##### <span id="pid740593484">23.[1] \<pid:740593484\> 2024-01-30 12:21:38 by 冰心如狱锁千秋</span>
+单纯聊香菜的话，我非常喜欢，但是老板不放我也不会特意让他再加
+
+----
+
+##### <span id="pid740594801">25.[0] \<pid:740594801\> 2024-01-30 12:28:08 by warland</span>
+有男不玩会被割赛博头皮，有香菜不吃会被……![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740594826">26.[2] \<pid:740594826\> 2024-01-30 12:28:17 by 泡泡猪酱</span>
+“老板，面不要了，把钱全折算成香菜，塞她嘴里去”![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740594944">27.[0] \<pid:740594944\> 2024-01-30 12:28:50 by 无寿之梦</span>
+有香菜不吃，我去别家馆子了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
