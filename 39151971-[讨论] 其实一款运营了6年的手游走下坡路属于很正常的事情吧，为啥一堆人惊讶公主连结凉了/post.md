@@ -450,3 +450,13 @@ CC是我第一个入坑的二游，原来已经十年半了啊
 
 因为都喜欢佑树啊没啥问题啊，毕竟前作老御三家
 
+----
+
+##### <span id="pid740708523">66.[0] \<pid:740708523\> 2024-01-30 22:32:22 by Alice_Carroll</span>
+![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)5周年的活太烂了，看看六周年如何吧
+
+----
+
+##### <span id="pid740708800">67.[0] \<pid:740708800\> 2024-01-30 22:34:23 by Nekonya_</span>
+pcr玩了几年了那玩法再喜欢都顶不住了退了，我需要一个公主连结 relink![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

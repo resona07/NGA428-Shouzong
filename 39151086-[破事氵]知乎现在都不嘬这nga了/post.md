@@ -59,3 +59,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740705354">8.[0] \<pid:740705354\> 2024-01-30 22:10:36 by 神圣的卡苟斯</span>
 散畜的敌人是魈畜和背后的钟王爷畜，有你们啥事![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740708678">9.[0] \<pid:740708678\> 2024-01-30 22:33:30 by 我不会。</span>
+其实有个问题我不太敢在里茶问![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在里茶还有散厨吗？厨子大战之后感觉还是有股味儿。
+
