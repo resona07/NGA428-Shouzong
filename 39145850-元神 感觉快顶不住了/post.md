@@ -376,3 +376,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740621233">51.[0] \<pid:740621233\> 2024-01-30 14:46:11 by 4feefdf2433ed58a</span>
 果然社交游戏的先发优势还是很大的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740625089">52.[0] \<pid:740625089\> 2024-01-30 15:04:41 by 化骨咩咩掌</span>
+元梦组队进自定义地图好多进不去 当晚就卸了
+
+----
+
+##### <span id="pid740625391">53.[0] \<pid:740625391\> 2024-01-30 15:06:05 by 请叫我RMB</span>
+>[jump](#pid740581867) 岩之柱(2024-01-30 11:28) 说: 
+>
+>怎么有点另一条世界线lol打不过dota2的感觉？
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)~~~~
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)先发优势大过天呀看来，王者海外版不也是一直打不过另一个谁来着吗
+

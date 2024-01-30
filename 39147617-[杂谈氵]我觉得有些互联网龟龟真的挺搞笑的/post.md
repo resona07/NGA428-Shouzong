@@ -53,3 +53,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740622799">8.[0] \<pid:740622799\> 2024-01-30 14:54:05 by 矿泉水放生大师</span>
 舔狗的骄傲
 
+----
+
+##### <span id="pid740625122">9.[0] \<pid:740625122\> 2024-01-30 15:04:49 by 惊异灵摆</span>
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)说了这么多，啥时候组织冲下xxn啊。
+

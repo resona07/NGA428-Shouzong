@@ -93,3 +93,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740623624">9.[0] \<pid:740623624\> 2024-01-30 14:58:08 by 幽行鶴羽</span>
 先把联动pv给我发了，经典有的没的环节太傻批了
 
+----
+
+##### <span id="pid740626764">10.[0] \<pid:740626764\> 2024-01-30 15:12:12 by 飞雪小狂</span>
+>[jump](#pid740620471) 放生才是真理(2024-01-30 14:42):
+
+屁，剧情根本没丰富到能说角色有没有自己生活上![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)那点剧情量你能看出来什么。没什么cp描写，也没什么ml描写，着墨比较多的只有正牌女友莎莉ml描写，其他所有人就只有主线剧情里的剧情根本没有多少私人剧情![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+剩下的就是好感度通信这种不做数的剧情了，通信全ml![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

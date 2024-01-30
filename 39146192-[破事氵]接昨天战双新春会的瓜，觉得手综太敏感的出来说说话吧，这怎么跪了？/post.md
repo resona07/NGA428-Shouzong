@@ -233,3 +233,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 所以有少2当祭品是好事，各公司的985们并不蠢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740626319">28.[0] \<pid:740626319\> 2024-01-30 15:10:10 by 黄前久美子子</span>
+>[jump](#pid740621032) 快快快快乐(2024-01-30 14:45):
+
+U1S1，我也希望是双男，反正我投nikke了，我支持所有混厕学习米利坚出一年男的拉平男女比例
+

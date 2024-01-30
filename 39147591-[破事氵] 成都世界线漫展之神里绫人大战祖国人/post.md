@@ -85,3 +85,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740622852">14.[1] \<pid:740622852\> 2024-01-30 14:54:20 by 梦与光的尽头</span>
 光看一楼的图，我还以为两人是在表演呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740625771">15.[1] \<pid:740625771\> 2024-01-30 15:07:55 by 为爽而战斗</span>
+可惜少了阿祖经典台词：我tm想干什么就干什么
+

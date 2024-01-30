@@ -60,3 +60,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740622383">8.[1] \<pid:740622383\> 2024-01-30 14:52:03 by 快快快快乐</span>
 坐看粥祭狗咬狗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740623370">9.[0] \<pid:740623370\> 2024-01-30 14:56:53 by DGVHJKCX</span>
+其实是快雪粥处联合恶俗大手子净化网络联盟一起讨伐主祭的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./9_d3c9ecd2.jpg)
+
