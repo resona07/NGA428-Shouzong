@@ -85,3 +85,8 @@ mmr没见过暗区是这样的。
 ##### <span id="pid740604374">14.[0] \<pid:740604374\> 2024-01-30 13:17:35 by 黑社会与美食家</span>
 我什么时候看到海虎梗能不笑啊![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 
+----
+
+##### <span id="pid740611603">15.[6] \<pid:740611603\> 2024-01-30 13:56:14 by 木之白</span>
+我发现总有人要求对待违规者的人必须公正廉明没有一丝污点，搁漂亮国直接就一梭子突突了，哪有这么多屁话，散兵cos就是违规活该被骂，录视频骂散兵的再双标也是散兵cos有错在先
+

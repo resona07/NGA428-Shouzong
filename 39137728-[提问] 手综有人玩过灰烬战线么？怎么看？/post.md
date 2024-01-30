@@ -458,3 +458,21 @@ ps.是thebinary粉吗
 
 这个up可惜没群，不过也推荐py，终局关研究出一星低练无伤的杂技可太强了
 
+----
+
+##### <span id="pid740609866">56.[0] \<pid:740609866\> 2024-01-30 13:47:16 by ズルくてすごい</span>
+>[jump](#pid740601656) 上月弦(2024-01-30 13:02) 说: 
+>
+>保真，主体成都万华镜，办CD的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>15年就在CD开官摊的含金量，官群群主在门口验票![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+>
+>ps.是thebinary粉吗
+
+卧槽 亲人啊 卧槽 我bnry每一张专都买了![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+
+----
+
+##### <span id="pid740610225">57.[0] \<pid:740610225\> 2024-01-30 13:49:07 by 炽天使の心</span>
+开服玩过角色立绘不够精致，玩法没意思，一天都没坚持住就卸载了
+

@@ -281,3 +281,8 @@ mtf羽中与姚老板的恋爱物语，连载开始！![goodjob](https://img4.ng
 
 ~~羽中是gay~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740612162">43.[0] \<pid:740612162\> 2024-01-30 13:59:08 by Kneegrows</span>
+一个信奉极端女拳的男的，抽象
+

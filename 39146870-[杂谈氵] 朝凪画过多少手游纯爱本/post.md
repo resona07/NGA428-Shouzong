@@ -247,3 +247,35 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740608758">40.[0] \<pid:740608758\> 2024-01-30 13:41:17 by 救济的魔女</span>
 笑点解析:朝凪最喜欢ntr向
 
+----
+
+##### <span id="pid740609346">41.[0] \<pid:740609346\> 2024-01-30 13:44:32 by 渣渣非洲提督</span>
+虽然详细不知道，但是朝凪钱给够应该啥都会画，例如舰R空想
+![img](./41_c6f6b7sg.jpg)
+
+----
+
+##### <span id="pid740609541">42.[0] \<pid:740609541\> 2024-01-30 13:45:37 by CrniBombarderi</span>
+纯爱？朝凪？要么是你对纯爱的理解出现了错乱要么就是我跟不上时代了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，大凪老师那不纯纯的母猪调教。行吧，母猪找到了适合自己的主人确实也是一种纯爱![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，ba那本我不好评，太创了，但这剧情其实我觉得就是类似舰b肥恐龙那本
+
+----
+
+##### <span id="pid740610057">43.[7] \<pid:740610057\> 2024-01-30 13:48:13 by nextGenerationBell</span>
+>[jump](#pid740609541) CrniBombarderi(2024-01-30 13:45):
+
+是不是纯爱还可以有争议，但“都是ntr”肯定不成立，这复活钢盆有点搞笑了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740611501">44.[2] \<pid:740611501\> 2024-01-30 13:55:46 by nextGenerationBell</span>
+>[jump](#pid740609346) 渣渣非洲提督(2024-01-30 13:44):
+
+这倒是，但要说为了照顾ba画纯爱就搞笑了
+
+他不一直都是那股特色“纯爱”吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740612183">45.[0] \<pid:740612183\> 2024-01-30 13:59:14 by 佩韦</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)说真的，这种人就特别像有些科普up主，看着引经据典侃侃而谈，貌似很有道理，直到他评论到你熟悉的领域。
+

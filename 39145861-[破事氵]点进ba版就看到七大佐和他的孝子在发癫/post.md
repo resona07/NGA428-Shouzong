@@ -233,3 +233,32 @@ rosmontis07065
 ![img](./31_27bbff3k.jpg)![img](./31_bb2d923k.jpg)
 42个赞，ba版果然百合畜多![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)。都是贱狗玩意。
 
+----
+
+##### <span id="pid740609449">32.[4] \<pid:740609449\> 2024-01-30 13:45:07 by 奸奇至尊巫师</span>
+>[jump](#pid740602645) Ain-Void(2024-01-30 13:08) 说: 
+>
+>锁隐了，专栏说了一堆东西他只敢回个占坑![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)是洗不动吗？![img](./20_f701303i.jpg)
+
+怎么和他跑ex发本子一个德行，我可以理解为除了这条之外的指控全部接受咯？
+
+----
+
+##### <span id="pid740609618">33.[6] \<pid:740609618\> 2024-01-30 13:45:58 by 友邦惊诧bot</span>
+>[jump](#pid740603266) 友邦惊诧bot(2024-01-30 13:11) 说: 
+>
+>七大佐b吧升堂的贴好像也被删了吧![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+>可以多去大佐贴子底下发钢鳄武神
+
+14赞两个提醒，河豚这么阴湿啊，出来说两句呗![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740609817">34.[0] \<pid:740609817\> 2024-01-30 13:47:01 by sumire191</span>
+>[jump](#pid740609272) 一剑凌尘世(2024-01-30 13:44) 说: 
+>
+>![img](./31_27bbff3k.jpg)![img](./31_bb2d923k.jpg)
+>42个赞，ba版果然百合畜多![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)。都是贱狗玩意。
+
+我刚看的时候50个![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  被师生关系限制死了，但凡能上几个能吓跑一大半。
+

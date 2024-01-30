@@ -127,3 +127,63 @@ molunankh是莫伦的完整ID
 ##### <span id="pid740609443">20.[0] \<pid:740609443\> 2024-01-30 13:45:05 by 清风挽伈</span>
 ![img](./20_f68b6ccv.gif)
 
+----
+
+##### <span id="pid740609862">21.[1] \<pid:740609862\> 2024-01-30 13:47:14 by 幻，灭</span>
+看戏![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+----
+
+##### <span id="pid740609972">22.[2] \<pid:740609972\> 2024-01-30 13:47:46 by 白川付田</span>
+别裁啊![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+给大批员工发工资还赚不到钱多是一件美事啊![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740610086">23.[1] \<pid:740610086\> 2024-01-30 13:48:23 by 快捷键将２２２</span>
+暴雪裁了一堆亩的，沪上暴雪是不是也要学习先进经验了![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+----
+
+##### <span id="pid740610703">24.[4] \<pid:740610703\> 2024-01-30 13:51:40 by 白月凌洲</span>
+有米选米的浪潮过去后的互联网寒冬，其实这种裁员早预料到了，希望当初搞优化算法，做图形学，自愿投身游戏行业的老哥们还能有好的出路吧。
+
+----
+
+##### <span id="pid740610718">25.[0] \<pid:740610718\> 2024-01-30 13:51:43 by Mélusine003</span>
+>[jump](#pid740607778) Dorothy_Goddess(2024-01-30 13:36) 说: 
+>
+>跟你一个信源的？
+
+最近咱们这儿真是人头滚滚啊![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740611150">26.[7] \<pid:740611150\> 2024-01-30 13:53:52 by 神圣的卡苟斯</span>
+>[jump](#pid740610086) 快捷键将222(2024-01-30 13:48) 说: 
+>
+>暴雪裁了一堆亩的，沪上暴雪是不是也要学习先进经验了![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+新上任还是亩的，大秘境2层枯，蒸啊
+
+----
+
+##### <span id="pid740611440">27.[0] \<pid:740611440\> 2024-01-30 13:55:25 by 我爱说石化</span>
+太吓人了，我还以为米哈游没有人员流动呢![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740611712">28.[0] \<pid:740611712\> 2024-01-30 13:56:45 by Mélusine003</span>
+>[jump](#pid740611440) 我爱说石化(2024-01-30 13:55) 说: 
+>
+>太吓人了，我还以为米哈游没有人员流动呢![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+那这段时间大概就是开闸泄洪了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740612202">29.[0] \<pid:740612202\> 2024-01-30 13:59:20 by 遥かな空</span>
+可惜被裁的大部分应该还都是基层员工
+
+真正电阻高的阴虱之物还在高位养着
+
