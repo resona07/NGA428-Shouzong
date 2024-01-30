@@ -31,3 +31,43 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740718659">4.[0] \<pid:740718659\> 2024-01-30 23:43:39 by 请问你是老娘的Master吗</span>
 我能说就这点字让我看的都浑身难受么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，感觉非常的脑残且刻意，特别是最后瘸指突然出现之后，G36的发言充满了那种偷吃后不知道苦主发没发现，疯狂刻意示好找补的感觉![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740718840">5.[4] \<pid:740718840\> 2024-01-30 23:44:59 by 茂盛的植物</span>
+>[jump](#pid740717160) hanruiwow(2024-01-30 23:32) 说: 
+>
+>951字，我不明白为什么不到千字也能写的这么烂![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这破公司不会700人里面一个文案一个策划一个美术一个运营一个程序，然后剩下695人看着他们尖叫抓挠吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+干的事情没有一样是碳基生物能干的
+
+----
+
+##### <span id="pid740719431">6.[0] \<pid:740719431\> 2024-01-30 23:49:04 by 起名困难症晚期</span>
+>[jump](#pid740717160) hanruiwow(2024-01-30 23:32) 说: 
+>
+>951字，我不明白为什么不到千字也能写的这么烂![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+啊，多少字？怪不得舅舅说是正确的决定啊![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740719607">7.[0] \<pid:740719607\> 2024-01-30 23:50:15 by JAPGoroshi</span>
+隔壁瓜版把今天少前2的瓜删完了，特别是提到三组裁员的贴
+
+----
+
+##### <span id="pid740720058">8.[0] \<pid:740720058\> 2024-01-30 23:53:39 by JAPGoroshi</span>
+>[jump](#pid740719431) 起名困难症晚期(2024-01-30 23:49) 说: 
+>
+>啊，多少字？怪不得舅舅说是正确的决定啊![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+那个舅舅今天好像被裁了，石英队长的贴里出现了
+
+----
+
+##### <span id="pid740720279">9.[0] \<pid:740720279\> 2024-01-30 23:55:15 by 无花果的夏天</span>
+>[jump](#pid740718659) 请问你是老娘的Master吗(2024-01-30 23:43):
+
+瘸指走路一瘸一拐，G36下面白汁一滴一滴落是吧
+

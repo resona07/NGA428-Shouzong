@@ -223,3 +223,38 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 你这话说的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 nga还收了米的钱呢，你总不能把nga卸了吧
 
+----
+
+##### <span id="pid740718926">28.[0] \<pid:740718926\> 2024-01-30 23:45:33 by 叶湖EricWho</span>
+>[jump](#pid740718053) dengzhuowei22(2024-01-30 23:39) 说: 
+>
+>你说的对但是吉卡哇伊联动了鬼子学院。
+
+好家伙，查了一下确实是……
+
+这年头粉日系ip，都不得不经历这一环吗![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+有时候真搞不懂日本人，那时候的事情这么耿耿于怀，怎么后来美国佬故意戳他们经济泡沫的事就没见有人明里暗里提起啊(更不用说肥仔和正太了)……
+
+----
+
+##### <span id="pid740719182">29.[0] \<pid:740719182\> 2024-01-30 23:47:21 by dengzhuowei22</span>
+>[jump](#pid740718627) 夕无餍(2024-01-30 23:43) 说: 
+>
+>你这话说的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>nga还收了米的钱呢，你总不能把nga卸了吧
+
+这句话的重点从来不是我认为，而是你认为？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740719755">30.[0] \<pid:740719755\> 2024-01-30 23:51:22 by 夕无餍</span>
+>[jump](#pid740719182) dengzhuowei22(2024-01-30 23:47) 说: 
+>
+>这句话的重点从来不是我认为，而是你认为？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+看漏了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)没看到你是楼主
+还以为你在准备扣帽子
+反正我觉得这事没什么问题
+毕竟我玩的一个游戏还同时联动了ggst，鲁鲁修和holo
+

@@ -288,3 +288,8 @@ galgame
 朝光迈进的猎人
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740720764">47.[0] \<pid:740720764\> 2024-01-30 23:59:04 by 诸爱得彼福</span>
+欧卡，模拟类游戏yyds![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

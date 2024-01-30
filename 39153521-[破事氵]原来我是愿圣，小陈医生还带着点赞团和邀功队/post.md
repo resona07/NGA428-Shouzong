@@ -49,3 +49,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)自撰一良方是吧
 
+----
+
+##### <span id="pid740719969">8.[0] \<pid:740719969\> 2024-01-30 23:53:00 by 阐述你的夢</span>
+先别发这些对线了，等大功告成的那天再一口气发吧
+
+----
+
+##### <span id="pid740720208">9.[0] \<pid:740720208\> 2024-01-30 23:54:44 by 重装坑货</span>
+他都是仙了，纯傻逼罢了
+

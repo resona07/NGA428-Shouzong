@@ -172,3 +172,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740691670">24.[0] \<pid:740691670\> 2024-01-30 20:39:04 by DGVHJKCX</span>
 这位仙蛆中医可能是真的脑子不好使，不做评价了
 
+----
+
+##### <span id="pid740720113">25.[0] \<pid:740720113\> 2024-01-30 23:54:07 by Mélusine003</span>
+>[jump](#pid740676090) 木之白(2024-01-30 19:03) 说: 
+>
+>再补一条![img](./23_058ebd3m.jpg)
+
+这大哥怎么亲自下场，连个传话小弟都没有，这么没面子的嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
