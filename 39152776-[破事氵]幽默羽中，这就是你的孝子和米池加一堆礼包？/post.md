@@ -54,3 +54,32 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740710180">9.[0] \<pid:740710180\> 2024-01-30 22:43:56 by Alice_Carroll</span>
 ![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)“少前2是给麻辣最后的机会”
 
+----
+
+##### <span id="pid740710402">10.[4] \<pid:740710402\> 2024-01-30 22:45:27 by 哒哒块2号机</span>
+>[jump](#pid740709196) LACTaurus(2024-01-30 22:37) 说: 
+>
+>碧蓝航线到底是什么做到出那么涩的皮还在铁拳面前稳如泰山的？
+
+作为一名火鸡科学家，我总结出了以下规律
+
+1、新游会被特别盯着
+2、靠近年底会抓指标  
+3、小心清朗
+
+----
+
+##### <span id="pid740710504">11.[0] \<pid:740710504\> 2024-01-30 22:46:03 by 神代Loga</span>
+节后涨，指商单价格![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740710886">12.[0] \<pid:740710886\> 2024-01-30 22:48:17 by 挽歌哀</span>
+一想到碧蓝版一堆玩家吐槽这个熊小那个平，我就想到这要是在隔壁硬核不媚宅和午餐肉，早就被吹爆了
+只能说，玩点好的
+
+----
+
+##### <span id="pid740711312">13.[0] \<pid:740711312\> 2024-01-30 22:50:55 by 黎明星hai</span>
+现在只不过是小小的，海军大人还没使出全力![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

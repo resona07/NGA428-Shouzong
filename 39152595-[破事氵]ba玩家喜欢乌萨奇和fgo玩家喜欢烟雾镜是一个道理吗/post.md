@@ -146,3 +146,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 顺便一说影之诗官方频道播放最高的是乌萨奇PV，想想到底是哪个流量更高
 
+----
+
+##### <span id="pid740710318">20.[0] \<pid:740710318\> 2024-01-30 22:44:56 by dengzhuowei22</span>
+>[jump](#pid740708550) 冬空11(2024-01-30 22:32) 说: 
+>
+>冷知识，szb官方频道播放量最高的是乌萨奇皮肤![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+冷知识三丽鸥和吉卡哇咿共同联动的二游只有szb![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740711661">21.[0] \<pid:740711661\> 2024-01-30 22:53:05 by Valano</span>
+>[jump](#pid740706333) dengzhuowei22(2024-01-30 22:17) 说: 
+>
+>冷知识szb第一播放量是ba二创，那么问题来了乌萨奇播放量第一也是ba二创，所以结论不是很明显吗？
+
+我宣布你的冷知识不通过![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./21_f339222i.jpg)  
+上面截掉了俩，一个是水无月的游戏王，一个是万宁象棋，不知道为啥搜出来了
+

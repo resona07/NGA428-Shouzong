@@ -199,3 +199,28 @@ pcr应该很ml,放在如今的环境里真得加分![上](https://img4.nga.178.c
 ![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)gbf玩了一年多，pcr台服四五年了，傻之逼几个月，龙约一年多，赛马娘日服到北黑活动结束不知道几个月，弹珠国服浅尝辄止但是日服还有热度的时候吃瓜无数，
 我的暴论就是cy的游戏都是闻着香吃着臭的答辩夹心糖
 
+----
+
+##### <span id="pid740712335">37.[0] \<pid:740712335\> 2024-01-30 22:57:34 by sad0312</span>
+>[jump](#pid740699034) 理塘弦一郎(2024-01-30 21:27) 说: 
+>
+>游戏性一坨，良心没用，公会战竞技场不如直接买喜欢角色的手办，反正cy自己有ssf，可以直接出![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+ssf的定价和质量比起来 突出一个迷之自信![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+如果市集上腰斩的话 当我没说还是香的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./37_8f68d93i.jpg)![img](./39_d3af023i.jpg)
+
+----
+
+##### <span id="pid740712415">38.[0] \<pid:740712415\> 2024-01-30 22:58:03 by 阿特拉斯院长</span>
+如果我没有因为没抽到春黑当了一整年公会战人下人之后，在第二年春黑复刻前夕连吃两井并在震撼我妈4up池里铩羽而归愤而弃坑的话我可能就信了
+
+----
+
+##### <span id="pid740712620">39.[0] \<pid:740712620\> 2024-01-30 22:59:19 by 理塘弦一郎</span>
+>[jump](#pid740712335) sad0312(2024-01-30 22:57) 说: 
+>
+>ssf的定价和质量比起来 突出一个迷之自信![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+>如果市集上腰斩的话 当我没说还是香的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./37_8f68d93i.jpg)![img](./39_d3af023i.jpg)
+
+我在集市上1050收的，应该差不多了，毕竟特效件看着不错![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

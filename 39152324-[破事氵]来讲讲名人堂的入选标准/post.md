@@ -141,3 +141,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740710105">19.[0] \<pid:740710105\> 2024-01-30 22:43:31 by 94646843z</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只能说有当年tb十循那味了，其实到哪都有权限，只是拿着权限的人g点不同
 
+----
+
+##### <span id="pid740712501">20.[0] \<pid:740712501\> 2024-01-30 22:58:36 by 帝辛子受</span>
+那我这个屹立不倒的是个什么奖啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740712643">21.[0] \<pid:740712643\> 2024-01-30 22:59:27 by 丢人玩家</span>
+名人堂？手综宗祠！
+

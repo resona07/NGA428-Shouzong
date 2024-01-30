@@ -90,3 +90,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740709997">10.[0] \<pid:740709997\> 2024-01-30 22:42:49 by 阿博茨德厄艾弗戈</span>
 学习瘤萎癞特的品德，留好后路，猜上半10下半0，加起来就是100，再创辉煌![jojo立2](https://img4.nga.178.com/ngabbs/post/smile/a2_38.png)
 
+----
+
+##### <span id="pid740711268">11.[0] \<pid:740711268\> 2024-01-30 22:50:39 by 挽歌哀</span>
+魈战老婆+瘤子老婆双UP，池子里还有小男孩，直接无敌了
+龟男们爱死了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740711339">12.[0] \<pid:740711339\> 2024-01-30 22:51:04 by 在纽约的企鹅</span>
+不看好，雷神都0了，草神剧情崩了，乌鸡又是小男孩的辅助![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740712313">13.[0] \<pid:740712313\> 2024-01-30 22:57:22 by 我想静静2023</span>
+看到出来是真的急了，两个人气女角皮肤，水龙、水神下面强度上最值得抽的草神陪跑，连乌鸡都想方设法的吹和洗.....十个小时吧，龟男还是有的，皮肤还是能赚一笔的。
+
+----
+
+##### <span id="pid740712488">14.[0] \<pid:740712488\> 2024-01-30 22:58:31 by 火前流明</span>
+超过20h就是胜利![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

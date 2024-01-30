@@ -50,3 +50,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740708634">7.[0] \<pid:740708634\> 2024-01-30 22:33:10 by 神代Loga</span>
 这真不是米出钱的吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740712490">8.[0] \<pid:740712490\> 2024-01-30 22:58:32 by aisqgl</span>
+商单里直接说自己不玩还行，这洗地水平我也行，翀要不考虑一下？
+
