@@ -103,3 +103,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 所以说啊，羽中赶紧做几个男人放卡池里还有救![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740678893">13.[1] \<pid:740678893\> 2024-01-30 19:20:06 by 冠位章鱼丸子</span>
+说得好，但是我有男不玩，作为我的有男不玩信条里面的优秀作品举例子，女装学院里面6条线三个娚主和主角的互动也不是一开始就建立起来的啊。。
+
+----
+
+##### <span id="pid740679464">14.[1] \<pid:740679464\> 2024-01-30 19:23:26 by rream_kly</span>
+这下不得不支持国乙法了，有些人就是下贱瞧不起自己，连被爱的渴求都不敢正大光明的表达出来，还要否决别人对被爱的渴求。![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

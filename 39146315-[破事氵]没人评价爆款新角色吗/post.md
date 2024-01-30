@@ -407,3 +407,28 @@ emmmmmmmm，滚回原版发癫？毕竟有人说你们的版务都是一伙的
 ##### <span id="pid740677670">73.[0] \<pid:740677670\> 2024-01-30 19:12:49 by 弗蕾雅</span>
 立绘欺诈
 
+----
+
+##### <span id="pid740678228">74.[0] \<pid:740678228\> 2024-01-30 19:15:56 by 团子A</span>
+我是北齋厨，零分![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740678539">75.[0] \<pid:740678539\> 2024-01-30 19:17:44 by __唐紫陌</span>
+这位姐姐是？神里夫人？![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740678723">76.[0] \<pid:740678723\> 2024-01-30 19:18:59 by IDA_2</span>
+你说的对，但是织绫99
+
+----
+
+##### <span id="pid740679908">77.[0] \<pid:740679908\> 2024-01-30 19:25:47 by 荆条花3</span>
+大王花在背后![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740680546">78.[0] \<pid:740680546\> 2024-01-30 19:29:36 by yahewei</span>
+指背后背着个大王花的恶心设计么![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

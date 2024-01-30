@@ -329,3 +329,12 @@ play商店 正版土豆兄弟![哭笑](https://img4.nga.178.com/ngabbs/post/smil
 
 那没事了，润！  我就是要手机上玩的，结果手机不能打枪
 
+----
+
+##### <span id="pid740679958">44.[0] \<pid:740679958\> 2024-01-30 19:26:13 by 露露缇雅丨泽金</span>
+>[jump](#pid740611852) 群星闪耀之时(2024-01-30 13:57) 说: 
+>
+>dota2也是手游吗？
+
+你可以在steam deck上玩，四舍五入等于手游![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+

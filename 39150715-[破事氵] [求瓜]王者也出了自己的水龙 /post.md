@@ -56,3 +56,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 希望能开点王者荣耀的人员。设计就是一坨。
 
+----
+
+##### <span id="pid740678074">9.[0] \<pid:740678074\> 2024-01-30 19:15:07 by hantangmeng1</span>
+>[jump](#pid740674684) 壹壹肆伍壹肆(2024-01-30 18:55):
+
+手瓜就是粥版分版啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)去那等着被割头皮吗
+
+----
+
+##### <span id="pid740678346">10.[0] \<pid:740678346\> 2024-01-30 19:16:43 by hantangmeng1</span>
+moba类游戏，应该没有哪个的平衡能比绝京还烂了，一个英雄ban率70%+还能好好的活了快两年。
+
+----
+
+##### <span id="pid740679513">11.[0] \<pid:740679513\> 2024-01-30 19:23:43 by sarin2022</span>
+技能有点像月男
+网红脸欣赏不来但是反正本来女玩家占比就高，各取所需呗
+
