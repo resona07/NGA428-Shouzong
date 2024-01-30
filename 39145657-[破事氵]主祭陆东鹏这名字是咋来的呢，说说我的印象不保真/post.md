@@ -19,3 +19,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 但是大多数知道ldp这个名字是在主机被抓之后诶)
 (包括我)难不成是我村通网了？
 
+----
+
+##### <span id="pid740578627">2.[0] \<pid:740578627\> 2024-01-30 11:15:26 by 贝斯提尔</span>
+>[jump](#pid740577965) 齐布_(2024-01-30 11:12):
+
+通知不是陆某某吗
+
+----
+
+##### <span id="pid740581437">3.[0] \<pid:740581437\> 2024-01-30 11:27:14 by 手当其冲</span>
+其实还有件事，仙驱很喜欢说的b2开盒原神2吧，这事应该在20年12月后，而20年11月原神2吧黄牌兼前半雪吧务堂岛之龙(苍海巨蛟)先后开盒异色格松鼠过江、m吧吧务鬼畜王等人、快雪吧主拉胯子。好像这事才是鬼畜王请盒勾回击的原因，小仙子们的《历史记录》疑似没提过这事啊[url](https://tieba.baidu.com/p/7086829801?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=09D666EDED61A0B56E9C8286725BF795&amp;st=1706585227&amp;client_type=1&amp;client_version=12.49.3.0&amp;sfc=copy&amp;share_from=post)
+

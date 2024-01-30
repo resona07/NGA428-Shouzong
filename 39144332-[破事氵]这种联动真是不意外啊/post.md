@@ -99,3 +99,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)fgo联动过钟薛高，黑暗之神，联动餐厅都是食品分不了男女。碧蓝航线上年的巧克力联动，明日方舟开服KFC联动。谁联动化妆品啊是不知道自己游戏玩家群体吗？
 
+----
+
+##### <span id="pid740579842">15.[0] \<pid:740579842\> 2024-01-30 11:20:40 by 花不溜秋</span>
+>[jump](#pid740574018) 月酱月酱(2024-01-30 10:55) 说: 
+>
+>![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)fgo联动过钟薛高，黑暗之神，联动餐厅都是食品分不了男女。碧蓝航线上年的巧克力联动，明日方舟开服KFC联动。谁联动化妆品啊是不知道自己游戏玩家群体吗？
+
+其实这种联动还挺正常的，吃鸡联动过ysl口红，lol手游联动过lm精粹水，阴阳师联动过欧莱雅…
+本子那边jojo这种ip还会联动内衣这种东西…
+
+----
+
+##### <span id="pid740579848">16.[0] \<pid:740579848\> 2024-01-30 11:20:42 by 海豹嘴里的咸鱼</span>
+>[jump](#pid740574018) 月酱月酱(2024-01-30 10:55):
+
+我记得O联动过 但是都是盒厂的，没区别
+
+----
+
+##### <span id="pid740582277">17.[0] \<pid:740582277\> 2024-01-30 11:30:42 by StrayEgo</span>
+![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+

@@ -61,3 +61,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740574793">7.[0] \<pid:740574793\> 2024-01-30 10:59:11 by 安塞腰鼓对</span>
 好好好，多点男凝视角，看看仙女社管忍不忍的住![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740579620">8.[0] \<pid:740579620\> 2024-01-30 11:19:38 by 荆条花3</span>
+>[jump](#pid740572240) Voute(2024-01-30 10:48):
+
+真难为你从这么多帖子里找到这些玩意
+![img](./8_48c43ahs.jpg)
+
+![img](./8_d0d3d2sb.jpg)
+![img](./8_270f2ew0.jpg)
+顺便我也去搜了一下，只能说很符合我对数值吵架的想象。。。你能找到那两个贴真是不容易
+![img](./8_c5b85ar0.jpg)
+

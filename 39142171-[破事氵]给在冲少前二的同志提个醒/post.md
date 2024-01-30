@@ -385,3 +385,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740571567">57.[0] \<pid:740571567\> 2024-01-30 10:44:57 by ve99997</span>
 现在的问题是基本盘都在骂，真的有用吗？
 
+----
+
+##### <span id="pid740578562">58.[0] \<pid:740578562\> 2024-01-30 11:15:10 by CrniBombarderi</span>
+>[jump](#pid740514019) 即逝的幻影(2024-01-29 23:00) 说: 
+>
+>看这致信都有异曲同工异曲同工之妙
+>![img](./22_9d1306oz.jpg)
+
+这个动态没删，你可以去看看最新的评论，古战场永远不少人
+
+----
+
+##### <span id="pid740579365">59.[0] \<pid:740579365\> 2024-01-30 11:18:38 by 暗影观察者</span>
+感觉被拉出来的会是416，这种事情上老劳模了![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
