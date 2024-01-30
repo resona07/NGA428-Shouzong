@@ -19,3 +19,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740738777">2.[0] \<pid:740738777\> 2024-01-31 05:07:48 by 纯路人，有一说一</span>
 因为就是烂啊，我记得复苏的魔女是他家的吧？开服那会还挺火的，没多久就数值膨胀+bug频出凉了
 
+----
+
+##### <span id="pid740741174">3.[0] \<pid:740741174\> 2024-01-31 07:06:50 by 忘れられた人</span>
+雷霆游戏你可以把他当阉割版的网易，初见的时候玩着还行，时间长了就问题频发![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
