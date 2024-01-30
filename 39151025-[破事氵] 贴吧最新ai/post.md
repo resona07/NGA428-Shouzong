@@ -54,3 +54,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740681987">8.[0] \<pid:740681987\> 2024-01-30 19:38:04 by 雨中樱花</span>
 龟仙人这就很应景了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740707217">9.[0] \<pid:740707217\> 2024-01-30 22:23:19 by HE01942529</span>
+像啊 很像啊(喜
+
+----
+
+##### <span id="pid740707911">10.[0] \<pid:740707911\> 2024-01-30 22:28:08 by 叶楼坛浩</span>
+为爱结扎可不能漏了
+

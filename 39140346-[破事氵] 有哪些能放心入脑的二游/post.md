@@ -436,3 +436,9 @@ NEW!新世界一章直接关联8周年连续剧,追8周年连续剧之前建议�
 ##### <span id="pid740702750">55.[0] \<pid:740702750\> 2024-01-30 21:52:19 by UnrealTime</span>
 真有时间那真不如去装点黄色废料只能说![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)除非，除非你是真看腻了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740708105">56.[0] \<pid:740708105\> 2024-01-30 22:29:25 by cv-16列克星敦</span>
+入脑建议入脑点其他东西，例如高等数学，线性代数，微积分，概率论，数理统计，四六级词汇之类的吗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+  电子盆栽推荐碧蓝航线和战舰少女r，没太多问题![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
