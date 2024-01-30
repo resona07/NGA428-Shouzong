@@ -916,3 +916,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 大家伙可没忘了是谁在二游里挑起争端，率先动用核武器的呢![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 有男不玩，正义反击![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid740544563">121.[1] \<pid:740544563\> 2024-01-30 08:05:34 by 零之使魔怪</span>
+>[jump](#pid740406202) Mach1ave111(2024-01-29 13:02) 说: 
+>
+>真有人信仙蛆那套开盒反击论？那手游综的天是真的要变了![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+为什么不信，都是不明生物占主导的玩家群体，大量迫不及待表现的龟男理中客？
+
+----
+
+##### <span id="pid740545051">122.[0] \<pid:740545051\> 2024-01-30 08:10:46 by 鸭梨果汁</span>
+![img](./122_e71cf83i.jpg)
+这个算吗？粥内战？
+

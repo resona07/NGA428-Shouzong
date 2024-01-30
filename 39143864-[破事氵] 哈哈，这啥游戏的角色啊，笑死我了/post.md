@@ -248,3 +248,66 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740544028">35.[0] \<pid:740544028\> 2024-01-30 07:58:38 by nanimonoK</span>
 好笑们，这不孩子
 
+----
+
+##### <span id="pid740544258">36.[5] \<pid:740544258\> 2024-01-30 08:01:30 by 符可香</span>
+不是说没什么攻击力吗
+这是不演了吗
+
+----
+
+##### <span id="pid740544347">37.[10] \<pid:740544347\> 2024-01-30 08:02:42 by 重装坑货</span>
+>[jump](#pid740543887) 恰克恰克(2024-01-30 07:56) 说: 
+>
+>那这行为谁比较像红色高棉我不好说了
+
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)好岁不愧是和米处一卵同胞的高棉，岁月史书当平a的样子真是一模一样，太好磕了，你们有没有像米绵这样好嗑的cp啊？真是米米又绵绵啊![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740544380">38.[3] \<pid:740544380\> 2024-01-30 08:03:15 by 理塘弦一郎</span>
+It&#39;s been a long day without you, my friend
+
+And I&#39;ll tell you all about it when I see you again![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740544618">39.[1] \<pid:740544618\> 2024-01-30 08:06:09 by 来自AK47的问候</span>
+>[jump](#pid740542543) 致命投球手(2024-01-30 07:36) 说: 
+>
+>重生之我在nba打篮球
+
+~~“nga”~~~~“这片大地”~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740545138">40.[4] \<pid:740545138\> 2024-01-30 08:11:40 by 命之歧路</span>
+高压之下就是这个样子的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+当一句“不可说”比直说看着还阴阳怪气，
+迟早有一天手综转发一张全白图也会有人愤怒地指责。
+
+----
+
+##### <span id="pid740545153">41.[0] \<pid:740545153\> 2024-01-30 08:11:48 by 逍遥学者学千秋</span>
+>[jump](#pid740543958) 北辰琉歌(2024-01-30 07:57) 说: 
+>
+>都已经是塑料球泳池的人头滚滚了，还要装桶嘛
+
+你对“木桶里的贤人”第欧根尼有什么意见？
+
+
+原来手综的人连这点典故都不知道啊。
+
+----
+
+##### <span id="pid740545180">42.[2] \<pid:740545180\> 2024-01-30 08:12:09 by 某块面包</span>
+>[jump](#pid740543221) 北辰琉歌(2024-01-30 07:47):
+
+你特么别说出来呀，我也开始疼了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740545383">43.[0] \<pid:740545383\> 2024-01-30 08:14:19 by 圣光钻头</span>
+骗我们说You know who然后让食屎徒过来割我们头皮是吧![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
+

@@ -636,3 +636,10 @@ RNG丶逆羽茶颜 邀请您加入RNG丶逆羽茶颜的个人会议室
 
 有男不玩![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740545256">79.[0] \<pid:740545256\> 2024-01-30 08:12:58 by 丁霍乙包辛</span>
+每有一只匿名牡勾气急败坏的解构帆船，越能证明有男不玩的含金量，你们推起来的嘛集美![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+至于为什么匿名，因为蛆蛆匿名小鬼不配让我展示ID![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
+

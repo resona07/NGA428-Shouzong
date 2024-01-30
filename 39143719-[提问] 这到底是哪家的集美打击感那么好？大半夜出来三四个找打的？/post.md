@@ -73,3 +73,12 @@ rbq瘾犯了是这样的
 
 她真的，我哭死![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
 
+----
+
+##### <span id="pid740544826">12.[0] \<pid:740544826\> 2024-01-30 08:08:29 by coconautlau</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就身边统计学来说，玩米的大多是rz和低龄，玩粥的基本跟xxn、男同、lgbt支持者沾点边
+
+事实证明，xxn等群体惯用的扭曲逻辑、岁月史书等手段在rz小学生大军面前是屁用没有的，但对付正常人还是效果拔群
+
+所以有男不玩
+

@@ -553,3 +553,9 @@ have man no play
 ##### <span id="pid740544144">89.[0] \<pid:740544144\> 2024-01-30 08:00:02 by 碳基猴子与猫猫</span>
 有男不玩，祝YJ原地解散![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)
 
+----
+
+##### <span id="pid740544954">90.[0] \<pid:740544954\> 2024-01-30 08:09:48 by 大地震撼者</span>
+![img](./90_a5bc3bg0.jpg)
+有男不玩
+
