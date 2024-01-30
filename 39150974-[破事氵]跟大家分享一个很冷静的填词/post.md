@@ -23,3 +23,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740679540">1.[0] \<pid:740679540\> 2024-01-30 19:23:52 by 怎么样都好了</span>
 在战锤40k念经或许会有帝皇庇护，在3k念经的嘛![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
 
+----
+
+##### <span id="pid740680722">2.[0] \<pid:740680722\> 2024-01-30 19:30:33 by 明日下山</span>
+>[jump](#pid740679540) 怎么样都好了(2024-01-30 19:23) 说: 
+>
+>在战锤40k念经或许会有帝皇庇护，在3k念经的嘛![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+？我没太理解你的意思，好像跟主楼关系不算太大
+

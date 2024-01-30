@@ -97,3 +97,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740679046">15.[2] \<pid:740679046\> 2024-01-30 19:20:58 by 手机里有一款游戏</span>
 米粥69，仙舟联盟，我们联合！![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
 
+----
+
+##### <span id="pid740682472">16.[0] \<pid:740682472\> 2024-01-30 19:41:13 by 雨中樱花</span>
+这证明了米桑孝子绝大部分还都是初中生，这也是孝子的黄金年龄，成年了还跑去当孝子那就更逆天了
+

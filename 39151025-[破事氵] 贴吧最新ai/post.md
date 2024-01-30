@@ -10,3 +10,47 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./0_48d57ag.jpeg)
 ![img](./0_d73737g.jpeg)
 
+----
+
+##### <span id="pid740680700">1.[8] \<pid:740680700\> 2024-01-30 19:30:25 by mr4648932</span>
+不愧为龟仙人![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740680883">2.[0] \<pid:740680883\> 2024-01-30 19:31:30 by 锍年</span>
+这是哪个吧的AI![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740680981">3.[4] \<pid:740680981\> 2024-01-30 19:32:02 by saluttunny</span>
+不觉得很酷吗 很符合我对龟男的想象
+
+----
+
+##### <span id="pid740681083">4.[0] \<pid:740681083\> 2024-01-30 19:32:42 by fervent159</span>
+看着都忍俊不禁![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740681248">5.[0] \<pid:740681248\> 2024-01-30 19:33:47 by 处理事务小号</span>
+最大的悲哀就是现实中真有这种龟男
+
+----
+
+##### <span id="pid740681303">6.[0] \<pid:740681303\> 2024-01-30 19:34:05 by LiVE＆EViL</span>
+感觉还不够绿毛龟，多学习一下土豆版
+
+----
+
+##### <span id="pid740681728">7.[4] \<pid:740681728\> 2024-01-30 19:36:32 by 我是社管有男不玩</span>
+这个龟不正宗 光剩绿了 壳子是一点没用上
+
+没写就是没发生 没看到就是没有 前作设定不能怀孕就不会怀 头像像是情头就出轨吗你不要太魔怔了
+
+这要素要全套安排上
+
+----
+
+##### <span id="pid740681987">8.[0] \<pid:740681987\> 2024-01-30 19:38:04 by 雨中樱花</span>
+龟仙人这就很应景了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

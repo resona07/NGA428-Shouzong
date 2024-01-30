@@ -427,3 +427,13 @@ P蜜这就去出巨象 研究闪电风暴
 ##### <span id="pid740676909">62.[0] \<pid:740676909\> 2024-01-30 19:08:25 by 西行妖上西行果</span>
 那当然是学习真实大帝的美好品德了，你看那一排排的行星要塞和防空塔。只要不想赢就不会输![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)，牛狗毒爆大龙飞蛇冲不下来，越着急尿意越急，矿越少，很委屈吧![认真](https://img4.nga.178.com/ngabbs/post/smile/a2_48.png)
 
+----
+
+##### <span id="pid740678847">63.[0] \<pid:740678847\> 2024-01-30 19:19:47 by gjsg666</span>
+毒爆只能依靠自爆提供伤害，正如虫虫最喜欢充人头提供支持，虽然自家厂商月流水经常不过百万声优都请不起了、逃税被罚四十万、周边店被玩家起诉、自家画师疫情期间拿不到工资还转发对家画师收到物资的微博，但是牌面不能丢嘴不能软![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740682705">64.[0] \<pid:740682705\> 2024-01-30 19:42:43 by Corrugated</span>
+![认真](https://img4.nga.178.com/ngabbs/post/smile/a2_48.png)智力低下，建议丢进，蟑螂巢穴
+

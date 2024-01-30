@@ -338,3 +338,21 @@ play商店 正版土豆兄弟![哭笑](https://img4.nga.178.com/ngabbs/post/smil
 
 你可以在steam deck上玩，四舍五入等于手游![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid740680920">45.[0] \<pid:740680920\> 2024-01-30 19:31:42 by 老北京育马王</span>
+二游算了吧 一坨比一坨大 等2号有persona3 reload 不过据偷跑说 阿特拉斯纯懒狗后面有点对付 当然肯定游玩比原版好 xgp首发可以试试
+
+----
+
+##### <span id="pid740681358">46.[0] \<pid:740681358\> 2024-01-30 19:34:24 by IsabellTan</span>
+![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)喜欢什么玩什么 这版里你找不出没有黑历史的二游
+
+----
+
+##### <span id="pid740682141">47.[0] \<pid:740682141\> 2024-01-30 19:39:00 by w11458</span>
+>[jump](#pid740614846) 乐瓜瓜1111(2024-01-30 14:13):
+
+限定手机的话………应该没有
+独游要么pc要么ns，愿意做个手机版的很少
+
