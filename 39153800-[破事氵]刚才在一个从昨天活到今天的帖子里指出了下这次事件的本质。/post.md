@@ -441,3 +441,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740733556">57.[0] \<pid:740733556\> 2024-01-31 02:16:55 by 辛程孟壬龚邝</span>
 到现在连导火索是哪个()都不清楚![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)以前就有过pg在老家生活那的()了。只能说()就没好的
 
+----
+
+##### <span id="pid740734501">58.[0] \<pid:740734501\> 2024-01-31 02:35:53 by aglandy</span>
+不知道这里还有多少人记得辉哥？
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+反正最近确实能看到不少人，看见匿名洗米就说米社管来了，看见匿名洗粥就说粥社管来了，看见匿名洗少前就说散爆社管来了，只记得匿名可以藏屁股，忘了匿名也是串子最常用的手段。
+到底是真从历史中学不会一点，还是有人引导，暂且蒙古。
+![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+

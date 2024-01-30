@@ -82,3 +82,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740733194">11.[0] \<pid:740733194\> 2024-01-31 02:09:30 by lucifiniczw</span>
 聊着聊着人没了算恐怖游戏嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740734245">12.[0] \<pid:740734245\> 2024-01-31 02:29:59 by 灵魂大批量生产</span>
+>[jump](#pid740733059) bsbot(2024-01-31 02:07) 说: 
+>
+>尸体派对，二次元，恐怖，完美符合![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+行我去试试![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

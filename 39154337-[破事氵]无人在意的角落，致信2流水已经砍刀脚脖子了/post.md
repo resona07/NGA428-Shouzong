@@ -55,3 +55,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740732142">9.[0] \<pid:740732142\> 2024-01-31 01:51:31 by 皇族再临</span>
 真高啊
 
+----
+
+##### <span id="pid740734270">10.[1] \<pid:740734270\> 2024-01-31 02:30:30 by 出云琥珀</span>
+优势还不够啊，我现在就想看到散爆基地爆炸
+

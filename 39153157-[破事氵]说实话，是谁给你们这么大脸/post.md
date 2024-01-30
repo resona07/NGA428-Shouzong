@@ -809,3 +809,16 @@ zsbd
 ##### <span id="pid740734020">127.[0] \<pid:740734020\> 2024-01-31 02:25:56 by 学园长很忙</span>
 是四字玩家最喜欢的匿名发帖![img](./24_f832e367.png)
 
+----
+
+##### <span id="pid740734462">128.[2] \<pid:740734462\> 2024-01-31 02:34:57 by 暗辰灭斩</span>
+双向门搭起来，“说一句不如二游不玩都要被喷”
+[url](https://bbs.nga.cn/read.php?tid=39094756)
+
+----
+
+##### <span id="pid740734679">129.[1] \<pid:740734679\> 2024-01-31 02:39:44 by wzcwild</span>
+为什么只敢匿名啊![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)扣个“二游娇妻”的帽子——是怕被查成分，发现自己其实也是个又爱又恨、又玩又喷的“二游娇妻”回旋镖打得自己血马痛吗![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)敢说就要敢承担，你这样只能算是阴湿的小丑![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
+
+别说我们脸大了，你甚至小丑一样的脸都不敢露——<b>匿名</b>![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
