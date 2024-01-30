@@ -167,3 +167,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740676090">23.[1] \<pid:740676090\> 2024-01-30 19:03:56 by 木之白</span>
 再补一条![img](./23_058ebd3m.jpg)
 
+----
+
+##### <span id="pid740691670">24.[0] \<pid:740691670\> 2024-01-30 20:39:04 by DGVHJKCX</span>
+这位仙蛆中医可能是真的脑子不好使，不做评价了
+

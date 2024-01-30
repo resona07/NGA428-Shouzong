@@ -153,3 +153,11 @@ yhm:“雅蠛蝶，亚达，达咩”
 然后插一下要女方说一声“好”
 女方一开始还以为是什么情趣玩法，后来才知道，男方辅修了法学![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740692041">24.[0] \<pid:740692041\> 2024-01-30 20:41:18 by 大魔王喵帕斯</span>
+虽然感觉奇点时代在手综的名声不太好，
+但是
+[url](https://www.bilibili.com/video/BV1Hz4y1j7m8)  
+![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

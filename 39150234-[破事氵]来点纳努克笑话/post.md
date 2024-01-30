@@ -102,3 +102,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740682472">16.[0] \<pid:740682472\> 2024-01-30 19:41:13 by 雨中樱花</span>
 这证明了米桑孝子绝大部分还都是初中生，这也是孝子的黄金年龄，成年了还跑去当孝子那就更逆天了
 
+----
+
+##### <span id="pid740690790">17.[0] \<pid:740690790\> 2024-01-30 20:33:42 by DGVHJKCX</span>
+这不是毁灭那努克吗，下次请标明出处
+
+----
+
+##### <span id="pid740691111">18.[0] \<pid:740691111\> 2024-01-30 20:35:37 by 蓝梦公司</span>
+>[jump](#pid740682472) 雨中樱花(2024-01-30 19:41):
+
+但是以纳努克的参团率，只有可能是成年人![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+----
+
+##### <span id="pid740691194">19.[0] \<pid:740691194\> 2024-01-30 20:36:06 by mp36969</span>
+搬个小板凳看戏![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

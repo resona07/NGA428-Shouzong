@@ -63,3 +63,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740690037">10.[0] \<pid:740690037\> 2024-01-30 20:29:11 by 单手杰斯</span>
 听说鸡厂因为缴税超10亿被发奖表扬了，这按观圣的流水统计是不是偷税不少![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740690164">11.[0] \<pid:740690164\> 2024-01-30 20:29:53 by 矿泉水放生大师</span>
+>[jump](#pid740682041) 点得着火的折子(2024-01-30 19:38) 说: 
+>
+>![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![img](./2_aebbcefm.jpg)
+
+好图![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740690717">12.[0] \<pid:740690717\> 2024-01-30 20:33:16 by 一曲浮生</span>
+>[jump](#pid740686908) rr想氪金(2024-01-30 20:10) 说: 
+>
+>已经来了
+>你上面那个id就是
+
+他是说bw，不是说xz![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -24,3 +24,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740677357">3.[0] \<pid:740677357\> 2024-01-30 19:10:59 by RavenFubuki</span>
 单纯IP不太行，现在哪还有个人用公网IP，只能看到ISP出口机房，还需要机器码等手机号一些独特信息
 
+----
+
+##### <span id="pid740691454">4.[0] \<pid:740691454\> 2024-01-30 20:37:50 by DGVHJKCX</span>
+应该不太行。
+但如果游戏是b服的话，b站账号就和游戏账号绑定了，那么大概率查得到。
+
