@@ -35,3 +35,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 怎么回事呢，昨天还在聊天的哥们
 今天起来发现只剩一张头皮了，这是恐怖游戏综合版块？![奸笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740630619">6.[3] \<pid:740630619\> 2024-01-30 15:30:27 by zclh</span>
+摸不着头皮了吧![img](./6_3283bd31.png)
+

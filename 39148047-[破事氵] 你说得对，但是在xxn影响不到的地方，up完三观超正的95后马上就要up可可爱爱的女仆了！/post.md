@@ -138,3 +138,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740629451">23.[0] \<pid:740629451\> 2024-01-30 15:25:08 by 潘纳科特福葛</span>
 su再弄它那个小丑黑深残就真该配它邻居去了
 
+----
+
+##### <span id="pid740630801">24.[5] \<pid:740630801\> 2024-01-30 15:31:19 by 小町Sama</span>
+有的游戏里是越来越大，有的游戏里是越来越小，这到底是怎么回事呢？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./24_32d86fn3.jpg)
+![img](./24_f7c5c5lf.jpg)
+
+----
+
+##### <span id="pid740631154">25.[1] \<pid:740631154\> 2024-01-30 15:32:53 by 今日鸽</span>
+继牡丹后的又一好活，藤子杀疯了![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+----
+
+##### <span id="pid740631391">26.[0] \<pid:740631391\> 2024-01-30 15:33:55 by neveg</span>
+我去，初音未来！
+

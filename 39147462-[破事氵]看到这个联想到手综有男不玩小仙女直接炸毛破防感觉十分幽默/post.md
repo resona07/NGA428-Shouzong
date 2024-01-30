@@ -562,3 +562,22 @@ zsbd
 ##### <span id="pid740630444">76.[0] \<pid:740630444\> 2024-01-30 15:29:41 by fangxinqq</span>
 石砸狗叫，略略略![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
 
+----
+
+##### <span id="pid740630590">77.[5] \<pid:740630590\> 2024-01-30 15:30:20 by tigrexknight</span>
+粥处确实是一聊就跳脚
+
+----
+
+##### <span id="pid740631646">78.[1] \<pid:740631646\> 2024-01-30 15:35:00 by lolireactor</span>
+好强的打击感![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740631775">79.[0] \<pid:740631775\> 2024-01-30 15:35:33 by 肝功能障碍</span>
+>[jump](#pid740622525) 阿荠赛(2024-01-30 14:52) 说: 
+>
+>有人回我他要栓女人啊![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
+
+你们不是喜欢叫手综太ky了吗，那不真搞点ky的不是亏了吗
+

@@ -214,3 +214,11 @@ pc的话可以试试骑砍，从小兵干到领主国王，打上mod也可以有
 ##### <span id="pid740628869">29.[0] \<pid:740628869\> 2024-01-30 15:22:26 by 小汤圆109</span>
 我进猴区了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740632655">30.[0] \<pid:740632655\> 2024-01-30 15:39:23 by EliSnake</span>
+如果不介意PC的话
+中土世界暗影摩多+战争之影![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+塔里昂的故事我吹爆
+败于接正史，却也成于接正史
+
