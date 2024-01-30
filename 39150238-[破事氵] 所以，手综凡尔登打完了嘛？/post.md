@@ -108,3 +108,8 @@ mxz就是mxz，谁急谁就是mxz
 ##### <span id="pid740668862">19.[0] \<pid:740668862\> 2024-01-30 18:21:47 by megaMona</span>
 凡尔登？不是一营平推吗![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740675393">21.[0] \<pid:740675393\> 2024-01-30 18:59:53 by 上课上课经常</span>
+老哥发生啥了，这几天在玩元气骑士前传，看到你这句话就知道自己错过了一个大瓜，来个大佬总结一下呗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

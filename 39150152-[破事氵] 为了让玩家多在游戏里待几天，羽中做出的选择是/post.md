@@ -44,3 +44,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740667496">5.[0] \<pid:740667496\> 2024-01-30 18:14:27 by 包团老板</span>
 多好，轻量化，春节大活第一天15分钟自律打完下线![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740674905">6.[0] \<pid:740674905\> 2024-01-30 18:57:05 by 大狗跳小狗叫</span>
+>[jump](#pid740665262) 笑死我了AAA(2024-01-30 18:03):
+
+对潭友的爱是如此的深沉![是在下输了](https://img4.nga.178.com/ngabbs/post/smile/a2_51.png)
+
