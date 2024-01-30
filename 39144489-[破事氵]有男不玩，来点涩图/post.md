@@ -54,3 +54,64 @@ galgame里的魔物娘不香吗
 ##### <span id="pid740558921">12.[0] \<pid:740558921\> 2024-01-30 09:43:47 by Shanger5124</span>
 碧蓝的色图发不出来![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我也没办法
 
+----
+
+##### <span id="pid740559377">13.[0] \<pid:740559377\> 2024-01-30 09:46:04 by kirue</span>
+>[jump](#pid740558076) 无寿之梦(2024-01-30 09:39) 说: 
+>
+>忽然感觉，能把怎么看都能画的很涩的角色画的一点都不涩也是一种技术
+>
+>![img](./8_a3f409g4.jpg)
+
+那不如月计呗，我只记得中指还是无名指那个劲爆音乐了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740559752">14.[0] \<pid:740559752\> 2024-01-30 09:47:58 by Z1zzz1</span>
+>[jump](#pid740556994) 壹壹肆伍壹肆(2024-01-30 09:33) 说: 
+>
+>涩图还要全女的吗？![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+>![img](./5_238d951w.jpg)
+
+灰了
+
+----
+
+##### <span id="pid740560502">17.[0] \<pid:740560502\> 2024-01-30 09:51:48 by gymandyou</span>
+![img](./17_5f8f18sg.jpg)
+![img](./17_5c6631sg.jpg)
+![img](./17_9defc7sg.jpg)
+![img](./17_3cee9blc.jpg)
+![img](./17_1ce173sg.jpg)
+![img](./17_a89e48lc.jpg)
+![img](./17_2c2405sg.jpg)
+![img](./17_976a2dsg.jpg)
+![img](./17_d6b350sg.jpg)
+![img](./17_fbbef8sg.jpg)泥潭限制图片上限唉
+
+----
+
+##### <span id="pid740560979">18.[0] \<pid:740560979\> 2024-01-30 09:54:18 by 平原兆力使</span>
+不知道为啥这第三方app发不出图
+
+----
+
+##### <span id="pid740561103">19.[0] \<pid:740561103\> 2024-01-30 09:54:55 by 平原兆力使</span>
+>[jump](#pid740556994) 壹壹肆伍壹肆(2024-01-30 09:33) 说: 
+>涩图还要全女的吗？![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+>![img](./5_238d951w.jpg)
+
+世阿弥，狗k说了是女孩
+
+----
+
+##### <span id="pid740561279">20.[0] \<pid:740561279\> 2024-01-30 09:55:49 by ★星の在り処☆</span>
+屎黄色论坛真难用，啥图都发不出来![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid740561515">21.[0] \<pid:740561515\> 2024-01-30 09:57:02 by 无寿之梦</span>
+>[jump](#pid740559377) kirue(2024-01-30 09:46):
+
+这图就是月计的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

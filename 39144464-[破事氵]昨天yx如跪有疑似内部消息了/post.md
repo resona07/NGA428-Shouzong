@@ -88,3 +88,21 @@ QQ截图，就图一乐不知道真假，但是以牢翀的操作感觉干的出
 ##### <span id="pid740557188">13.[0] \<pid:740557188\> 2024-01-30 09:34:21 by 泡泡猪酱</span>
 我建议烧钱1和云图立马准备年后停服，拖后腿的东西留着做什么，是吧？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740559758">14.[1] \<pid:740559758\> 2024-01-30 09:47:59 by Molotov鸡尾酒</span>
+要是别的帖子我会回复
+“是聊天记录！这下不得不信了”![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+但这个人是yz，随便你们怎么滑坡天然都带三分可信度 太离谱了
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)~~这就是信任崩塌带来的恶果啊~~
+
+----
+
+##### <span id="pid740560614">15.[0] \<pid:740560614\> 2024-01-30 09:52:25 by windspirit</span>
+>[jump](#pid740555607) XXXXXXXXpk(2024-01-30 09:25) 说: 
+>
+>啊，纪晓岚和刘墉也不是好东西
+
+要这么说最坏的是乾隆了![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+翀把自己开了吧
+

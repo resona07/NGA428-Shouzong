@@ -232,3 +232,24 @@ tap上的黎明前20分钟，不是买断制，但是玩下来感觉和买断差
 
 尽量入正，下架买不到的yandex搜英文名。
 
+----
+
+##### <span id="pid740560550">35.[0] \<pid:740560550\> 2024-01-30 09:52:04 by satzbatz</span>
+YGOpro![img](./35_3283bd31.png)
+
+----
+
+##### <span id="pid740560849">36.[0] \<pid:740560849\> 2024-01-30 09:53:38 by hhss左左右右</span>
+>[jump](#pid740554575) 无寿之梦(2024-01-30 09:19) 说: 
+>
+>舟游![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>![img](./30_e999faer.jpg)
+
+这个舟游上手机了吗![壁咚](https://img4.nga.178.com/ngabbs/post/smile/a2_32.png)
+
+----
+
+##### <span id="pid740561885">37.[0] \<pid:740561885\> 2024-01-30 09:59:06 by xfdjtjxrj</span>
+神界原罪2
+

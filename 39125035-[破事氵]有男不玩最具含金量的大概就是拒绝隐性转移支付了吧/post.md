@@ -87,3 +87,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 哥们，你快说话，我害怕![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740560402">14.[3] \<pid:740560402\> 2024-01-30 09:51:17 by Guidetowel-MK4</span>
+当你为了支持游戏交的钱，
+大部分时候只能换到裹成粽子、手感垃圾、数值感人的劣质花瓶，
+并且社区还女厕所臭不可闻的时候，
+
+你就会明白赛博彩礼的可恶了。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740561777">15.[1] \<pid:740561777\> 2024-01-30 09:58:24 by 岩之柱</span>
+氪金不仅给怪物加血量，还增加ai批量创造奶窗男产能
+

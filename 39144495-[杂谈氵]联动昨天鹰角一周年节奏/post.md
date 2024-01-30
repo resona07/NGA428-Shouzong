@@ -18,3 +18,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740558804">2.[0] \<pid:740558804\> 2024-01-30 09:43:06 by A_sys</span>
 这不731嘛，帅不帅啊人体实验，太帅了
 
+----
+
+##### <span id="pid740559547">3.[4] \<pid:740559547\> 2024-01-30 09:46:53 by nextGenerationBell</span>
+日内瓦公约的战俘条款吧？
+
+![img](./3_a60baa0o.jpg)
+

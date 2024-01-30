@@ -59,3 +59,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740558651">9.[0] \<pid:740558651\> 2024-01-30 09:42:16 by Buss123</span>
 这不很精准吗，你买了送女朋友，周边拿去卖了回一部分血，双赢。
 
+----
+
+##### <span id="pid740560905">10.[0] \<pid:740560905\> 2024-01-30 09:53:56 by 二刺螈之王师傅</span>
+看了眼内容，保湿霜、爽肤水也不是什么太“女性”的东西吧。~~男性不用护肤品也是种规训~~
+但价格真贵啊，特别是对我一个日用品买试用装的人来说。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
