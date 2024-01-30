@@ -379,3 +379,12 @@ play商店 正版土豆兄弟![哭笑](https://img4.nga.178.com/ngabbs/post/smil
 
 作为二游来说，尘白除了手机没有电脑玩的舒服之外，但是完美符合你的要求![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我每月七八百，玩的挺爽。。但是手机我确实没体验过，就不推荐了
 
+----
+
+##### <span id="pid740721451">50.[0] \<pid:740721451\> 2024-01-31 00:04:01 by 群星闪耀之时</span>
+>[jump](#pid740686705) ee艺术家～(2024-01-30 20:08) 说: 
+>
+>作为二游来说，尘白除了手机没有电脑玩的舒服之外，但是完美符合你的要求![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我每月七八百，玩的挺爽。。但是手机我确实没体验过，就不推荐了
+
+去试了试尘白，二弟让我交了2k,这下不得不玩了
+

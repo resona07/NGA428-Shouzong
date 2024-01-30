@@ -48,3 +48,27 @@ ps：好像没有完全解决，应该是只加了个氪条，不乐意的可以
 ##### <span id="pid740702781">7.[0] \<pid:740702781\> 2024-01-30 21:52:32 by 蹦哒的鱼鱼</span>
 也不知道当初我对这游戏宽容是怎么想的，果然，无论什么时候，这些家伙都不值得一点信任![凌乱](https://img4.nga.178.com/ngabbs/post/smile/ac6.png)
 
+----
+
+##### <span id="pid740721591">8.[0] \<pid:740721591\> 2024-01-31 00:04:56 by Ayakacess</span>
+>[jump](#pid740698446) 第十九扇门的背后(2024-01-30 21:23) 说: 
+>
+>卡拉彼丘，是那个看见贴吧男用户反串女玩家发言立刻滑跪的那个游戏吗![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+草，这游戏这么幽默吗![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)甚至不是真的女玩家发言
+
+----
+
+##### <span id="pid740721940">9.[0] \<pid:740721940\> 2024-01-31 00:07:22 by ZGDX夜</span>
+别的先不说哦卡拉比丘光速滑轨赛博仙女暗改svp动画和皮肤的事有说法了吗![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+
+----
+
+##### <span id="pid740721985">10.[0] \<pid:740721985\> 2024-01-31 00:07:43 by Calliope-Ange</span>
+“哥们”还可以用不要看说了什么，要看以后做了什么掩盖过去。这首充的事也叫解决？最新动态是最火的一条为什么不知道么？
+
+----
+
+##### <span id="pid740722977">11.[0] \<pid:740722977\> 2024-01-31 00:14:32 by CosmosWatcher</span>
+这位更是重量级，也不知道还能整出什么好活![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)反正氪的我当喂狗了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

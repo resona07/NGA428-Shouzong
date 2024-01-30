@@ -181,3 +181,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这大哥怎么亲自下场，连个传话小弟都没有，这么没面子的嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740722420">26.[0] \<pid:740722420\> 2024-01-31 00:10:48 by 木之白</span>
+>[jump](#pid740720113) Mélusine003(2024-01-30 23:54) 说: 
+>
+>这大哥怎么亲自下场，连个传话小弟都没有，这么没面子的嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+小弟没有，但是有传话小妹，小陈医生是你惹不起的人！![img](./26_5bb43c3m.jpg)
+
