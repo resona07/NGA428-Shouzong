@@ -577,3 +577,8 @@ big brother is watching u![jojo立2](https://img4.nga.178.com/ngabbs/post/smile/
 
 登临意  春分  银心湖列车
 
+----
+
+##### <span id="pid740589452">76.[0] \<pid:740589452\> 2024-01-30 12:01:57 by 贫乳傲娇夜樱子</span>
+标记是啥意思，类似之前那个nga摸鱼脚本吗(反正按那个算我是有赛博案底的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png))？有没有老哥看看我，好奇我这个混沌乐子人有什么标记(标记只看哪发帖还是看回复内容？)
+

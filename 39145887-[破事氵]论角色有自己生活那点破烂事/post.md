@@ -22,3 +22,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 但即使是滚5，抓根宝也是故事的核心是解决问题的那个，而不是没事就神隐，况且DLC的大小姐也不是解决事件后自己找个吸血鬼凑cp去了
 
+----
+
+##### <span id="pid740591485">3.[0] \<pid:740591485\> 2024-01-30 12:12:13 by walkerASH</span>
+我持否定
+什么狗屁“角色有自己的生活”
+笔在文案手里
+文案想要角色有什么生活就有什么生活
+取决于文案究竟是想取悦自己还是取悦客户而已
+既然文案想取悦自己整“角色有自己的生活”
+那我作为客户也有我自己的生活，你取悦不了我，代表你不想赚这钱![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid740591743">4.[0] \<pid:740591743\> 2024-01-30 12:13:32 by mianmi123</span>
+其实哪怕是二次元宅男，只要涉猎范围不局限于手游
+
+都知道角色有自己的生活和媚宅完全不冲突![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740591925">6.[0] \<pid:740591925\> 2024-01-30 12:14:23 by yaoguanh</span>
+角色有自己的生活就是那帮废物编剧的一个幌子
+
+他们真正想写的是角色都有自己的性生活![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

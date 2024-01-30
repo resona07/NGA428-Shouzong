@@ -216,3 +216,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 瓦纯纯是活该，啥b运营就使劲藏皮肤，在国际服当日常的夜市，放国服成他妈福利了，皮肤还那么贵，我为啥不去马来啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740589209">29.[0] \<pid:740589209\> 2024-01-30 12:00:55 by 卫星露天咖啡座</span>
+只能说好死
+
+----
+
+##### <span id="pid740590665">30.[1] \<pid:740590665\> 2024-01-30 12:08:02 by WTzl</span>
+安卓苹果不互通还能找个借口，比如很少有人双持2个设备![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+<span style="font-size:300%;line-height:183%"><b>怎么还有QQ区微信区不互通的上古煞笔操作</b></span>
+![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)<b>搁这我Q区朋友微信我拉他玩还得分享二维码去扫不能游戏内直接不煞笔吗</b>![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
+腾讯之前有个优势就是怎么下都是官服![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+现在人家冈易蛋仔![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)ios安卓账号互通可以无缝切换![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)官渠可以游戏内直接加好友一起玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)<b>你狗腾讯还活在2020年前啊</b>![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)互通下会死啊![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)之前安卓创的号打算用ipad冲段位结果进去p都没有![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740591574">31.[0] \<pid:740591574\> 2024-01-30 12:12:39 by Buss123</span>
+看腾讯有没有持续投入改进的决心了，这种强社交的游戏，坐拥渠道的腾讯还是很有优势的，荒野行动也比腾讯那两个吃鸡动作快，最后还是被用渠道干飞了
+
+----
+
+##### <span id="pid740591892">32.[0] \<pid:740591892\> 2024-01-30 12:14:13 by 墨缪</span>
+两个游戏都玩过的表示元梦的交互和操作要舒适很多，蛋仔玩多了有种烦躁感
+个人觉得元梦就是单纯的入场晚了，这个类型的游戏社交性太强很难拉用户的
+至于本身质量，没有那么大的差距
+

@@ -267,3 +267,17 @@ mtf羽中与姚老板的恋爱物语，连载开始！![goodjob](https://img4.ng
 ##### <span id="pid740586383">40.[0] \<pid:740586383\> 2024-01-30 11:47:57 by 银月永存</span>
 不像假的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740589348">41.[0] \<pid:740589348\> 2024-01-30 12:01:31 by 善恶天平</span>
+绝妙，精彩![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740590383">42.[0] \<pid:740590383\> 2024-01-30 12:06:38 by 叶公好龙娘</span>
+世人只知三黑框
+而阁下这篇给他附上了lgbt产能
+一切问题迎刃而解
+
+~~羽中是gay~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
