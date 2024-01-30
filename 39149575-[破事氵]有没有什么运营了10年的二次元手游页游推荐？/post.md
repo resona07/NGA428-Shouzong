@@ -334,3 +334,52 @@ pad(智龙迷城)  cc(锁链战记)  有条件去淘宝买个石头号 能爽一
 
 快跑！![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740717000">52.[0] \<pid:740717000\> 2024-01-30 23:31:09 by 拜拜白白摆</span>
+东方![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740717106">53.[0] \<pid:740717106\> 2024-01-30 23:31:52 by 必不能大败而归</span>
+>[jump](#pid740656777) jbwww(2024-01-30 17:23) 说: 
+>
+>对魔忍rpgx吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>先不说游戏体验和贷魔忍
+>起码你抽出来的角色都能看到她被狠狠鸿儒
+>(当然有可能是被你鸿儒，也有可能是兽人)
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这东西是不是有单机版？我看那惊人的包体大小就知道这玩意不简单。
+话说这东西我记得以前看他们说停服了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740717195">54.[0] \<pid:740717195\> 2024-01-30 23:32:38 by 尚未转职枪兵的幸运E</span>
+>[jump](#pid740717106) 必不能大败而归(2024-01-30 23:31) 说: 
+>
+>这东西是不是有单机版？我看那惊人的包体大小就知道这玩意不简单。
+>话说这东西我记得以前看他们说停服了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不是开着吗，可能是另外一个对魔忍的企划吧
+
+----
+
+##### <span id="pid740717286">55.[0] \<pid:740717286\> 2024-01-30 23:33:21 by 悬崖边的不倒翁</span>
+舰C最大的问题是沉船 别的都还好
+
+----
+
+##### <span id="pid740717520">56.[0] \<pid:740717520\> 2024-01-30 23:35:04 by 必不能大败而归</span>
+>[jump](#pid740717195) 尚未转职枪兵的幸运E(2024-01-30 23:32) 说: 
+>
+>不是开着吗，可能是另外一个对魔忍的企划吧
+
+噢噢这样吗
+
+----
+
+##### <span id="pid740718186">57.[0] \<pid:740718186\> 2024-01-30 23:40:08 by 二刺螈之王师傅</span>
+最近刚回坑舰c，白屏我的解决方法是用poi浏览器，然后网址用http。我朋友上述步骤以后还白屏，就让他在poi浏览器再装了插件poi-plugin-let-me-in就好了。
+另外如果等两年的话fgo也十周年了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

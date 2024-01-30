@@ -35,3 +35,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 技能点养成要素(毫无疑问)
 塔防(公会战)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740718384">5.[0] \<pid:740718384\> 2024-01-30 23:41:39 by 真实之幻梦</span>
+地牢战争2(Dungeon Warfare2)倒是能爆装备合装备，还可以刷符文调难度。就是优化不太行，打无尽怪多了怎么都会卡。![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)
+塔防游戏最大的问题还是流程毕业之后就失去大部分可玩性了，单纯刷资源挺无聊的。不过像隔壁infinitode2那样毕业难上天也不太可取。![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

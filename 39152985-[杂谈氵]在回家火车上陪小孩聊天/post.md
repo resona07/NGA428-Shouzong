@@ -136,3 +136,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740715366">21.[0] \<pid:740715366\> 2024-01-30 23:18:40 by 夕无餍</span>
 这是什么新定型文吗
 
+----
+
+##### <span id="pid740718254">22.[0] \<pid:740718254\> 2024-01-30 23:40:36 by Koko2048</span>
+真正的小孩哥：原神？早腻了，不如蛋仔一根毛
+
+----
+
+##### <span id="pid740718476">23.[0] \<pid:740718476\> 2024-01-30 23:42:23 by jljhu</span>
+我觉得原神不如明日方舟
+

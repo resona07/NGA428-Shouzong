@@ -350,3 +350,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我就是那时候发现不对的，只是没想到暴露的这么快。雪花变棉花。
 
+----
+
+##### <span id="pid740718319">59.[0] \<pid:740718319\> 2024-01-30 23:41:07 by 银月永存</span>
+今天发生什么事了吗？下午没逛手综跟不上趟了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid740718724">60.[0] \<pid:740718724\> 2024-01-30 23:44:07 by 月华丛云</span>
+这帖子的艺术性在我几年的nga生涯里也是能排进前10的存在
+

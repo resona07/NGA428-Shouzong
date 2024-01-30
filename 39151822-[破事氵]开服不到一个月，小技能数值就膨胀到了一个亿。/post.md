@@ -71,3 +71,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这是5星开服角色打出的输出，最高是6星
 
+----
+
+##### <span id="pid740718719">11.[0] \<pid:740718719\> 2024-01-30 23:44:06 by 爪子超凶</span>
+>[jump](#pid740698370) 浅殇刷7(2024-01-30 21:22) 说: 
+>
+>这是5星开服角色打出的输出，最高是6星
+
+那看起来没啥问题啊![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)大概数值就是这么设置的。
+位数多看起来吓人而已？
+
