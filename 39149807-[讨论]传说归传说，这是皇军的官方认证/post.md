@@ -190,3 +190,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 小弟没有，但是有传话小妹，小陈医生是你惹不起的人！![img](./26_5bb43c3m.jpg)
 
+----
+
+##### <span id="pid740726128">27.[0] \<pid:740726128\> 2024-01-31 00:40:09 by 羽烈丶</span>
+>[jump](#pid740722420) 木之白(2024-01-31 00:10) 说: 
+>
+>小弟没有，但是有传话小妹，小陈医生是你惹不起的人！![img](./26_5bb43c3m.jpg)
+
+有一说一这个斗鸡眼表情太弱智了，我现在看谁用这个默认为弱智![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

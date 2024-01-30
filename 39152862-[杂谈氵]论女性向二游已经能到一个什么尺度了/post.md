@@ -158,3 +158,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740723670">27.[1] \<pid:740723670\> 2024-01-31 00:20:12 by dsf5510</span>
 不折叠你今晚跟他们一起睡![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740725108">28.[1] \<pid:740725108\> 2024-01-31 00:31:28 by darbox</span>
+我发现一般向游戏里已经看不到一个沟了
+

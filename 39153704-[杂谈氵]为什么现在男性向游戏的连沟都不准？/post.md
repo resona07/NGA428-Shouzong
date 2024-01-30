@@ -28,3 +28,36 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740724027">4.[0] \<pid:740724027\> 2024-01-31 00:22:54 by 没活了硬整是吧？</span>
 有没有一种可能，在国内这种女性向才是异常。
 
+----
+
+##### <span id="pid740725792">5.[4] \<pid:740725792\> 2024-01-31 00:37:16 by 咸菜白肚鱼</span>
+女性露沟：物化女性，色情眼光
+全身包裹：封建思想，打压个性
+不出女角色：歧视女性，性别歧视
+女角色太好看：差别待遇，挑起内部分歧
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+来，你说说，怎么才能对呢？
+
+----
+
+##### <span id="pid740726154">6.[0] \<pid:740726154\> 2024-01-31 00:40:23 by 魔域真主</span>
+>[jump](#pid740725792) 咸菜白肚鱼(2024-01-31 00:37) 说: 
+>
+>女性露沟：物化女性，色情眼光
+>全身包裹：封建思想，打压个性
+>不出女角色：歧视女性，性别歧视
+>女角色太好看：差别待遇，挑起内部分歧
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>来，你说说，怎么才能对呢？
+
+版本答案是午餐肉铁T，集美太飒啦![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740726504">8.[0] \<pid:740726504\> 2024-01-31 00:43:29 by 乌拉旗舰号</span>
+折叠喵，折叠喵，快睡觉了不想看到鬼图![doge](https://img4.nga.178.com/ngabbs/post/smile/)
+

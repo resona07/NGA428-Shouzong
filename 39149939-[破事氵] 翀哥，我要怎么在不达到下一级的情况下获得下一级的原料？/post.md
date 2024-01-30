@@ -360,3 +360,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740718724">60.[0] \<pid:740718724\> 2024-01-30 23:44:07 by 月华丛云</span>
 这帖子的艺术性在我几年的nga生涯里也是能排进前10的存在
 
+----
+
+##### <span id="pid740726193">61.[0] \<pid:740726193\> 2024-01-31 00:40:50 by 迷星叫</span>
+太血腥啦![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+

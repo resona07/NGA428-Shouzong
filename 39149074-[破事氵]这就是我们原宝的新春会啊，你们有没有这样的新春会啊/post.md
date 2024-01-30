@@ -234,3 +234,23 @@ xxn：卧槽超神！这CP我磕到了![嘲笑1](https://img4.nga.178.com/ngabbs
 
 ![img](./39_ca70c8gd.png)
 
+----
+
+##### <span id="pid740718394">40.[0] \<pid:740718394\> 2024-01-30 23:41:45 by Mélusine003</span>
+>[jump](#pid740716376) 小心冬瓜强(2024-01-30 23:26) 说: 
+>
+>一共五张就单拿一张是吧，你坛黑原的水平越来越低了，这让人一查就露馅了，不知道的还以为是反串
+>![img](./36_8abbf63i.jpg)![img](./36_555e863i.jpg)![img](./36_83fc963i.jpg)[img]./mon_202401/30/bwQ2t-4zxzZbT1kShs-13i.jp
+
+谢谢你帮我把剩下的男同女同CP补上![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+![img](./40_c63fc1bs.jpg)
+
+----
+
+##### <span id="pid740725881">41.[1] \<pid:740725881\> 2024-01-31 00:38:03 by 小心冬瓜强</span>
+>[jump](#pid740718065) 风一样的猪G(2024-01-30 23:39) 说: 
+>
+>![img](./39_ca70c8gd.png)
+
+这下成分最明确的一集了???
+

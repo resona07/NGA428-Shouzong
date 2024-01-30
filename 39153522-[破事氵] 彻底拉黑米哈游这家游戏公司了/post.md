@@ -113,3 +113,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./16_a098e03p.jpg)
 ![img](./16_8ba5623p.jpg)
 
+----
+
+##### <span id="pid740724950">17.[0] \<pid:740724950\> 2024-01-31 00:30:07 by pok568945</span>
+>[jump](#pid740724504) glotia(2024-01-31 00:26):
+
+我想吐槽的是改密码要身份证，不是卖号要身份证
+
+----
+
+##### <span id="pid740725469">18.[0] \<pid:740725469\> 2024-01-31 00:34:31 by pok568945</span>
+>[jump](#pid740719189) NablaDelta(2024-01-30 23:47):
+
+1我一分钱没给散爆冲过 2游戏我早删了 3玩过少前确实和我给米哈游冲过钱一样是赛博案底 已悔改
+

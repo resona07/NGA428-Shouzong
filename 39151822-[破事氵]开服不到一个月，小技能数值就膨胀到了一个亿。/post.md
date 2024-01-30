@@ -81,3 +81,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 那看起来没啥问题啊![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)大概数值就是这么设置的。
 位数多看起来吓人而已？
 
+----
+
+##### <span id="pid740725285">12.[0] \<pid:740725285\> 2024-01-31 00:32:54 by Carol骨头</span>
+你再看看boss的血条？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
