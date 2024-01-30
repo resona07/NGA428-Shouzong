@@ -156,3 +156,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740730613">26.[0] \<pid:740730613\> 2024-01-31 01:28:02 by 巴耶黎</span>
 看过光夜吗，那个直接R17++,要不是不准露关键部位，他们肯定画给你看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740731429">27.[0] \<pid:740731429\> 2024-01-31 01:39:28 by カメハメハ</span>
+>[jump](#pid740693404) 顺劈带暴击(2024-01-30 20:50) 说: 
+>
+>点什么裸男举办，给混厕游戏女角色都举办了，处理快多了还能干死混厕厂商![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+清除混厕，都提纯到烧鸭游戏![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+

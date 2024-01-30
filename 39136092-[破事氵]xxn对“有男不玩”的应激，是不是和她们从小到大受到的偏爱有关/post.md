@@ -474,3 +474,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 匿名幕刃差不多得了，文娱市场绕着消费者转才是主流，你是想说主流人群都是破防？
 
+----
+
+##### <span id="pid740731523">64.[1] \<pid:740731523\> 2024-01-31 01:41:00 by 叶公好龙娘</span>
+>[jump](#pid740619165) 壬龙申庚沈简(2024-01-30 14:35) 说: 
+>
+>“有男不玩”出了手综这个厕所
+>
+>正常人不是都觉得是死肥宅对这个世界上，只要没围着他们转，就破防表现之一吗？
+
+![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)我把这个和没接触过二游的老朋友也聊过 烧钱的情况
+人家第一反应 这不是诈骗？![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

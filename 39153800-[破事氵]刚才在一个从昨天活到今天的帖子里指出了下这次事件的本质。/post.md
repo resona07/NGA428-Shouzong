@@ -417,3 +417,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 天天放集美过来当木婉清,匿上名看一眼就死。不愧是秦红棉的女儿嘛,毒药袖箭!
 
+----
+
+##### <span id="pid740730998">54.[0] \<pid:740730998\> 2024-01-31 01:33:19 by will苏莲托</span>
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)从有含金量的东西我已经不咋上NGA了，只想等蓝底白字……
+至于什么有X不玩的个人选择，关我p事看都懒得看辩论，但是看每天首页标题和第一页大概能看出来每天讨论主题，这也就是最后那点乐趣了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+反正吵翻天也就是流量罢了，啥事没有，但是总有乐此不疲吵的
+

@@ -124,3 +124,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740730324">18.[0] \<pid:740730324\> 2024-01-31 01:24:29 by 彻木</span>
 鉴定为太闲导致的
 
+----
+
+##### <span id="pid740730994">19.[1] \<pid:740730994\> 2024-01-31 01:33:17 by Katyushagent</span>
+遂学医，自撰一良方，服之，卒![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
