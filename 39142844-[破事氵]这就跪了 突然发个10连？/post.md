@@ -85,3 +85,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 玩法一坨，剧情有前科不会去看，唯一的出路是当抽卡模拟器+轻量化盆栽
 不能白嫖摆烂全图鉴，不能爽抽，连蝗都懒得蝗
 
+----
+
+##### <span id="pid740546240">16.[0] \<pid:740546240\> 2024-01-30 08:23:01 by 渣渣非洲提督</span>
+>[jump](#pid740523641) 新水良真黑(2024-01-30 00:18):
+
+能自选95的话，我立马下载，自选95，脑残箭噜一发，蟹仔
+
+----
+
+##### <span id="pid740546339">17.[0] \<pid:740546339\> 2024-01-30 08:23:55 by inficyclone</span>
+一帖号是因为家里只有一个人么![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740546476">18.[0] \<pid:740546476\> 2024-01-30 08:25:01 by 荆条花3</span>
+>[jump](#pid740543792) 我想静静2023(2024-01-30 07:55):
+
+居然有新角色了吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这下真无人在意的角落了
+
+----
+
+##### <span id="pid740546683">19.[0] \<pid:740546683\> 2024-01-30 08:26:42 by wolfforest</span>
+![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)这游戏一个十连下去就是各种时尚小垃圾，但凡发个五星自选我都相信跪了
+
+----
+
+##### <span id="pid740546816">20.[0] \<pid:740546816\> 2024-01-30 08:27:54 by sz233000</span>
+发帖1![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+不会是收到羽中信息，然后注册个号跑来手综通知大伙吧？
+

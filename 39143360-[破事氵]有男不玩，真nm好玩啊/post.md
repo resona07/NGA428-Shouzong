@@ -523,3 +523,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 确实，打击感太爽了。没想到现在了手综一天不看都要跟不上版本了，真的急了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 但是我有男不玩![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
 
+----
+
+##### <span id="pid740546483">65.[1] \<pid:740546483\> 2024-01-30 08:25:03 by 随机生成的id</span>
+有男不玩
+
+----
+
+##### <span id="pid740546834">66.[0] \<pid:740546834\> 2024-01-30 08:28:02 by 帝辛子受</span>
+>[jump](#pid740532909) mianmi123(2024-01-30 02:07) 说: 
+>
+>话说没看过原作不懂。
+>圣言录光是念俩句就能伤害到敌人的么？
+>我之前以为只是用来区分敌我的东西来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+战锤的圣言录和有男不玩比只能说是圣言录高攀了，战锤的圣言录都没有念叨就能产生杀伤效果的程度![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

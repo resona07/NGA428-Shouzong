@@ -471,3 +471,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 标记了400多个，都要超过手综常驻非棉花人口了
 脑子快要炸了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid740546420">62.[0] \<pid:740546420\> 2024-01-30 08:24:32 by jerry233</span>
+支持史官
+

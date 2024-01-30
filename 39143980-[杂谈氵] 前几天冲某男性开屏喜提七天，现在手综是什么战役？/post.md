@@ -7,3 +7,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid0">0.[0] \<pid:0\> 2024-01-30 08:14:07 by 云藤</span>
 如题，有没有幸存者讲讲，![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740546178">1.[17] \<pid:740546178\> 2024-01-30 08:22:22 by 化腐朽为腐烂</span>
+哪有什么战役
+却看到华盛顿拨马向前，甩出一截麻绳，这麻绳现在天上晃了一晃，便化做一道金光直冲老酋长，那印第安老酋长叫一声:“苦也” 便被捉了回去，剥了头皮做了一对靴子。
+
+----
+
+##### <span id="pid740547048">2.[0] \<pid:740547048\> 2024-01-30 08:29:53 by 矿泉水放生大师</span>
+![img](./2_27fc25qz.jpg)![img](./2_ee4b4fsg.jpg)![img](./2_d6f7302i.jpg)![img](./2_3c3525kv.jpg)![img](./2_4ba8ce3i.jpg)
+

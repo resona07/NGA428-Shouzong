@@ -189,3 +189,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 相比wy这两年的新作不断，tx确实很慢，更别说wy在单机和网游都有发力，多面开花，反观tx还在吃剩饭![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740546610">28.[0] \<pid:740546610\> 2024-01-30 08:26:06 by zwh51262</span>
+能看出藤子有点急了，农最近换了一批策划，更新速度就像打了鸡血一样，别管好活烂活总之相比以前至少是在做了，评价为还不错，加大力度
+
