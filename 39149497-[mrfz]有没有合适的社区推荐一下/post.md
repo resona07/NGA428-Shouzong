@@ -159,3 +159,13 @@ SKD，想看什么看什么呗
 
 ![img](./26_11c34e2h.jpg)
 
+----
+
+##### <span id="pid740669347">27.[0] \<pid:740669347\> 2024-01-30 18:24:28 by pafeng</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我给你推荐个地方，兔头直播间
+
+----
+
+##### <span id="pid740669753">28.[1] \<pid:740669753\> 2024-01-30 18:26:53 by eversefmn</span>
+如果可以上Discord可以推薦你來AKCN的伺服器
+

@@ -118,3 +118,41 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740667532">18.[0] \<pid:740667532\> 2024-01-30 18:14:39 by LiVE＆EViL</span>
 这下在现场了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740667666">19.[0] \<pid:740667666\> 2024-01-30 18:15:22 by 开胃骑兵</span>
+>[jump](#pid740662145) 爱吃菠萝披萨的永乐(2024-01-30 17:48) 说: 
+>
+>你怎么还在玩啊，话说你居然真的一直没被砍头，挺离谱的![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+似了啦，都怪你了啦!
+
+----
+
+##### <span id="pid740668633">20.[0] \<pid:740668633\> 2024-01-30 18:20:37 by whois48</span>
+十分钟就给隐刀了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid740669075">21.[0] \<pid:740669075\> 2024-01-30 18:22:56 by 柴刀鸣泣之时</span>
+什么赛博弃市
+
+----
+
+##### <span id="pid740669272">22.[0] \<pid:740669272\> 2024-01-30 18:24:04 by Dorothy_Goddess</span>
+>[jump](#pid740662765) 爱吃菠萝披萨的永乐(2024-01-30 17:51) 说: 
+>
+>红色高棉砍了一堆头，真正给粥女加冕红色高棉的~~航空母舰~~装甲空母居然没被报复，我不理解![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+死了啦，都怪你啦！
+
+----
+
+##### <span id="pid740669923">23.[0] \<pid:740669923\> 2024-01-30 18:27:45 by skq000</span>
+砍了几天了这刀锋利如新
+
+----
+
+##### <span id="pid740670206">24.[0] \<pid:740670206\> 2024-01-30 18:29:17 by 迷糊的小闲酱</span>
+沃趣，红色高棉砍头现场
+

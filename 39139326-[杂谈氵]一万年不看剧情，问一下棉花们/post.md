@@ -493,3 +493,17 @@ woc，给你点的赞秒没![img](./41_be11e23i.jpg)
 
 太惨了![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
 
+----
+
+##### <span id="pid740668376">71.[0] \<pid:740668376\> 2024-01-30 18:19:09 by 夏幻竹AC</span>
+现在不知道，我退坑那会好像是要竞争大炎皇位的气势
+
+----
+
+##### <span id="pid740669833">72.[1] \<pid:740669833\> 2024-01-30 18:27:17 by cvolser</span>
+>[jump](#pid740532688) kyuenysomenm(2024-01-30 02:03):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我来帮你解密
+因为车米车川你都无所谓，车到舟这你就急了
+怎么好多舟友连这点自知都没有
+
