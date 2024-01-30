@@ -41,3 +41,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740731392">4.[3] \<pid:740731392\> 2024-01-31 01:39:03 by 星河夜遥</span>
 仙也中真不小心啊，头上偷偷长出来的蟑螂须被看见啦![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
 
+----
+
+##### <span id="pid740736935">5.[0] \<pid:740736935\> 2024-01-31 03:45:09 by 挖鼻孔的大英雄</span>
+最好笑的一集。。。
+
