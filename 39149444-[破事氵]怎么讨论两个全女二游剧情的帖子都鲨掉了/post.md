@@ -102,3 +102,8 @@ you know who
 ##### <span id="pid740674699">15.[0] \<pid:740674699\> 2024-01-30 18:55:42 by therenotYuri</span>
 是说我那个帖子吗？刚热火朝天就突然被干掉了![冷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_31.png)
 
+----
+
+##### <span id="pid740675483">16.[0] \<pid:740675483\> 2024-01-30 19:00:24 by sxfx5251</span>
+灯光下也会有阴影，邪恶，一直存在于我们身边
+

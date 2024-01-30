@@ -98,3 +98,8 @@ ym怎么看都不配和米粥比啊，就跟mhy和腾讯网易放一块对比一
 ##### <span id="pid740660002">12.[0] \<pid:740660002\> 2024-01-30 17:37:47 by 万钟0418</span>
 淘米 腾讯 百田![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740675623">13.[0] \<pid:740675623\> 2024-01-30 19:01:07 by 猛干的小号</span>
+跟我想的一样![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+

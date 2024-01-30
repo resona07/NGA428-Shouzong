@@ -157,3 +157,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740673851">21.[2] \<pid:740673851\> 2024-01-30 18:50:49 by 猛干的小号</span>
 盒狗打反盒牌，太乐了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740675520">22.[0] \<pid:740675520\> 2024-01-30 19:00:34 by 善恶天平</span>
+不知道是编的还是真事，只能说很符合原神玩家的脑子
+
+----
+
+##### <span id="pid740676090">23.[1] \<pid:740676090\> 2024-01-30 19:03:56 by 木之白</span>
+再补一条![img](./23_058ebd3m.jpg)
+

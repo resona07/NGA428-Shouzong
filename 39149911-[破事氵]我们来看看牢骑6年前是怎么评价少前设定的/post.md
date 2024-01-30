@@ -30,3 +30,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)厂商学长的无脑爆典能力永远是第一位，当年川友爆的典可惜真找不到了。当年你在各个社区只要看见擦了土豆的边，立马一堆人跟蟑螂一样跑出来刷药丸要火，现在既火又似也算是合了他们的意了  
 吹硬核只是无数典里比较普遍的一环
 
+----
+
+##### <span id="pid740677059">5.[0] \<pid:740677059\> 2024-01-30 19:09:14 by 想康小仓父子本</span>
+媚宅不硬核的话，少女前线的世界观会被破坏的
+

@@ -237,3 +237,20 @@ M来承担 M来背负
 用平台来区分人，和玩什么游戏区分人
 是一样的傻逼
 
+----
+
+##### <span id="pid740675615">35.[0] \<pid:740675615\> 2024-01-30 19:01:05 by 平原兆力使</span>
+>[jump](#pid740665283) 吾王的骑士ll(2024-01-30 18:03):
+
+怎么还在嗦ml和塞尔达啊![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid740675622">36.[0] \<pid:740675622\> 2024-01-30 19:01:07 by Yosoroみお</span>
+![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)感谢搬运
+
+----
+
+##### <span id="pid740675731">37.[0] \<pid:740675731\> 2024-01-30 19:01:47 by UID3244105</span>
+这群人怎么还在麻辣啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

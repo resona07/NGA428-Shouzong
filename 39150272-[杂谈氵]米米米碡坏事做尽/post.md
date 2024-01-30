@@ -28,3 +28,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740666716">1.[2] \<pid:740666716\> 2024-01-30 18:10:31 by 肯定是假的</span>
 都怪MXZ都怪MXZ
 
+----
+
+##### <span id="pid740676975">2.[0] \<pid:740676975\> 2024-01-30 19:08:45 by 贝斯提尔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)mm99
+

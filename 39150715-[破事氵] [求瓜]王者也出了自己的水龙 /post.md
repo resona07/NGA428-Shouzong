@@ -28,3 +28,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740674986">4.[0] \<pid:740674986\> 2024-01-30 18:57:31 by FeliciaStacy</span>
 谁丑谁写得烂那就谁尴尬呗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740675706">5.[0] \<pid:740675706\> 2024-01-30 19:01:36 by MarikoShinoda</span>
+麻花腾在开会的时候对游戏部门不满了吧，不然不会传出那样的话
+农的水龙直接LOL霞的Promax版，强度估计拉满![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740676095">6.[0] \<pid:740676095\> 2024-01-30 19:03:58 by 巴基和比约恩</span>
+明年龙年，然后正好有西游记捏他，所以龙王太子，水龙
+不过总而言之真的蛮好笑的
+
+春节有多少条龙了喵
+
+----
+
+##### <span id="pid740677505">7.[0] \<pid:740677505\> 2024-01-30 19:11:48 by 蓝色猫头</span>
+哪个出皮肤就加强哪个。 农药啥时候有过平衡性？ 出氪金英雄真不是事。 皮肤可能真卖不动了呗。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740678066">8.[0] \<pid:740678066\> 2024-01-30 19:15:04 by ace风之翼</span>
+>[jump](#pid740677505) 蓝色猫头(2024-01-30 19:11) 说: 
+>
+>哪个出皮肤就加强哪个。 农药啥时候有过平衡性？ 出氪金英雄真不是事。 皮肤可能真卖不动了呗。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+希望能开点王者荣耀的人员。设计就是一坨。
+
