@@ -165,3 +165,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 清除混厕，都提纯到烧鸭游戏![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
 
+----
+
+##### <span id="pid740731990">28.[0] \<pid:740731990\> 2024-01-31 01:48:42 by 桓远</span>
+没事，加速就行了，跟我想的一模一样。
+
+继续加速，狠狠地加速就行了。
+
+加速到最后亏钱了，发现这市场本质上小的一批的时候，就是好日子了。![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+

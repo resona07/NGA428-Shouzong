@@ -191,3 +191,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 说的真好
 
+----
+
+##### <span id="pid740732268">26.[0] \<pid:740732268\> 2024-01-31 01:53:49 by 潤潤潤潤</span>
+>[jump](#pid740722242) A1ik(2024-01-31 00:09) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) stn商单那时不就是鞠躬了，还p了几个字，我求你们这些结晶不要只是尽孝不爆米了。
+
+当时那商单下面确实有不少活人觉得羽中能改好的，结果没想到承诺的一个都没做到![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
