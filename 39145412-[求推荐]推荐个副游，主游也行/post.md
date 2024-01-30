@@ -46,3 +46,12 @@ FEH![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
 
 ![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)这个超纲了
 
+----
+
+##### <span id="pid740596167">6.[0] \<pid:740596167\> 2024-01-30 12:34:53 by 半久里</span>
+>[jump](#pid740593313) A47083(2024-01-30 12:20) 说: 
+>
+>![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)这个超纲了
+
+好像20级之后就能开自动了，游戏开局之后，基本就只有大招可选了，自动也只不过是自动放大招罢了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./6_798c6a7n.jpg)
+

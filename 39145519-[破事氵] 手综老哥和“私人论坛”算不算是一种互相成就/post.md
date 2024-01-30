@@ -35,3 +35,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740577809">4.[1] \<pid:740577809\> 2024-01-30 11:12:06 by Asahi丶Minato</span>
 头皮痒，你有什么头绪吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740597202">5.[1] \<pid:740597202\> 2024-01-30 12:39:41 by CGNAJ</span>
+手综四战之地，你方唱罢我登场。
+混迹各种论坛，手综真是独此一家，每天都很劲爆，看爽了
+
+----
+
+##### <span id="pid740597573">6.[0] \<pid:740597573\> 2024-01-30 12:41:28 by GustPig_</span>
+手综才是真正的瓜版![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+建议瓜版挂到手综下面
+

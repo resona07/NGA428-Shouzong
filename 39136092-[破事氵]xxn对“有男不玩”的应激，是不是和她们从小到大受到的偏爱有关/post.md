@@ -79,3 +79,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740466657">10.[0] \<pid:740466657\> 2024-01-29 17:55:30 by 大上造</span>
 为什么从小的教育都是男的要让着女的 女的发育比男的早 开窍也比男的早 学校里应该女的让着男的才对啊![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
 
+----
+
+##### <span id="pid740597562">11.[0] \<pid:740597562\> 2024-01-30 12:41:26 by whozmipupp1</span>
+我养狗狗不听话我也踹一脚，人家没把你平等看待，“你竟敢不按我心意来？！”
+
