@@ -188,3 +188,13 @@ https://alioss.yystv.cn/news/af89589c16c72d734971a708d2810af5.jpg
 ##### <span id="pid740564887">21.[0] \<pid:740564887\> 2024-01-30 10:13:51 by neverfm</span>
 乌 呀 咿 呀！
 
+----
+
+##### <span id="pid740569582">22.[0] \<pid:740569582\> 2024-01-30 10:36:09 by dengzhuowei22</span>
+>[jump](#pid740564887) neverfm(2024-01-30 10:13) 说: 
+>
+>乌 呀 咿 呀！
+
+是乌 呀 咿 哈
+![img](./22_e09bc8m8.gif)
+

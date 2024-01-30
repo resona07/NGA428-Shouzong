@@ -578,3 +578,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740555310">71.[0] \<pid:740555310\> 2024-01-30 09:24:11 by BEBEBCBCBC</span>
 有男不玩![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
 
+----
+
+##### <span id="pid740568994">72.[1] \<pid:740568994\> 2024-01-30 10:33:36 by 超越型莫德雷德</span>
+>[jump](#pid740537433) BloodBaker(2024-01-30 04:23) 说: 
+>
+>甚至没搞明白有男不玩是在打南拳还是女拳，我一个非福瑞XP抽卡的都为了强度练了山，所以到底是哪些人在拿着不练男/女干员的靶子搞对立？
+
+![img](./72_85ee538k.jpg)![img](./72_1163423i.jpg)![img](./72_6188a3qy.jpg)
+谁知道呢？
+
+----
+
+##### <span id="pid740569271">73.[1] \<pid:740569271\> 2024-01-30 10:34:41 by 至尊亚历山大</span>
+有男不玩,米粥99![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740570210">74.[2] \<pid:740570210\> 2024-01-30 10:38:49 by jbwww</span>
+又到了我最喜欢的垒完京观对京观说你太极端了环节
+
+----
+
+##### <span id="pid740570626">75.[0] \<pid:740570626\> 2024-01-30 10:40:46 by huatuo</span>
+不明觉厉，魔兽只玩女性角色的前来看热闹
+
