@@ -54,3 +54,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740729295">8.[0] \<pid:740729295\> 2024-01-31 01:11:50 by UID6797297</span>
 有男不玩，等4080S到位就去巢都大战纳垢信徒，懒鬼肥鲨啥时候才能拿到授权啊，我要车恶魔引擎![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
 
+----
+
+##### <span id="pid740729795">9.[2] \<pid:740729795\> 2024-01-31 01:17:36 by 黑夜宇光</span>
+有些人因为听到有男不玩而变得有多急，就印证了有男不玩的含金量有多高![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740730376">10.[1] \<pid:740730376\> 2024-01-31 01:24:57 by 彻木</span>
+<b>有男不玩</b>
+

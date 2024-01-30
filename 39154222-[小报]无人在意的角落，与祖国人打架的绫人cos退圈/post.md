@@ -31,3 +31,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740728583">2.[0] \<pid:740728583\> 2024-01-31 01:03:46 by 夕无餍</span>
 这个应该发瓜版吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740729677">3.[0] \<pid:740729677\> 2024-01-31 01:16:04 by aisqgl</span>
+好家伙，原来是熟人，那没事了
+

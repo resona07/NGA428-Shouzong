@@ -71,3 +71,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 瘸指走路一瘸一拐，G36下面白汁一滴一滴落是吧
 
+----
+
+##### <span id="pid740729678">10.[0] \<pid:740729678\> 2024-01-31 01:16:04 by 冷夜千星</span>
+但凡雇一个兼职网文写手，花一天时间逼他看完设定集写出来的也比现在的好
+
