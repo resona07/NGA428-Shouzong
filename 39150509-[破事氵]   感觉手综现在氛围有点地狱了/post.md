@@ -161,3 +161,20 @@ mm99![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
 ##### <span id="pid740735353">25.[0] \<pid:740735353\> 2024-01-31 02:56:02 by anotherTessin</span>
 怎么多了那么多发帖数只有个位数的，一定是水军大量涌入![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
 
+----
+
+##### <span id="pid740735728">26.[0] \<pid:740735728\> 2024-01-31 03:06:02 by 咸鱼君乙</span>
+像极了当年的盛景![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740736030">27.[0] \<pid:740736030\> 2024-01-31 03:14:35 by mianmi123</span>
+舟友会告诉你大静谧更地狱，试图独占静谧受害者权。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+但他们会无视这次的时间长度和单方面受害的性质。
+
+但其实吧，这个受害者权给舟友也无所谓，真不是啥好东西，那你们能别噶头皮了么？都几天了？
+
+一边不断说很久前的受害者经历，一边这样噶头皮，还要说，你们这也叫惨？我们当时更惨！
+
+是的是的，你们惨，你们惨，所以能别噶了么？又不是手综当时打的你们。
+

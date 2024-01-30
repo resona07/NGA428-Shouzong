@@ -91,3 +91,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 行我去试试![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740736022">14.[0] \<pid:740736022\> 2024-01-31 03:14:25 by 别送了这把能赢</span>
+>[jump](#pid740733194) lucifiniczw(2024-01-31 02:09) 说: 
+>
+>聊着聊着人没了算恐怖游戏嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不算，因为我会把贴顶上来
+
+越聊人越多结果莫名其妙变高楼也是一种恐怖
+

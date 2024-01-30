@@ -129,3 +129,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740730994">19.[1] \<pid:740730994\> 2024-01-31 01:33:17 by Katyushagent</span>
 遂学医，自撰一良方，服之，卒![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740735815">20.[0] \<pid:740735815\> 2024-01-31 03:08:05 by 祗堂鞠也不知道</span>
+这小陈不是前段时间的某仙家军金主吗 
+
+某仙家军金主欲个人出资10万元成立仙家军基金会[url](https://nga.178.com/read.php?tid=39071719)
+
