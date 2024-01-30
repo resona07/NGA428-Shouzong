@@ -248,3 +248,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 欧美大抵找不出这么龟的人……
 我只听说找百合上演钢鄂戏码的，没见过这么龟的
 
+----
+
+##### <span id="pid740728803">41.[0] \<pid:740728803\> 2024-01-31 01:06:16 by 平原兆力使</span>
+这么龟的啊？抱歉我把他们跟公公比，公公至少还有些野心
+

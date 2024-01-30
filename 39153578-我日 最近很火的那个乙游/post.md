@@ -63,3 +63,8 @@ dd 应该不止我一个人大开眼界吧![哭笑](https://img4.nga.178.com/nga
 搜了视频一看，哥们笑了，我也笑了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
 这破战斗系统还不如十年前哥们在psp上搓的二刺螈共斗
 
+----
+
+##### <span id="pid740728866">10.[1] \<pid:740728866\> 2024-01-31 01:07:03 by 星河夜遥</span>
+你女朋友给你发这个，那被厕妹xxn同化的可能性很高，要小心了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

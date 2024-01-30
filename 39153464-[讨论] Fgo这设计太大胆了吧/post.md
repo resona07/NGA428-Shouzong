@@ -218,3 +218,13 @@ dickgirl on male也算是常见tag了吧![哭笑](https://img4.nga.178.com/ngabb
 ##### <span id="pid740726302">40.[0] \<pid:740726302\> 2024-01-31 00:41:44 by 天穹圣人</span>
 发ID，继续画，P站和E站没你的本子我就去黑掉他们！
 
+----
+
+##### <span id="pid740729346">41.[0] \<pid:740729346\> 2024-01-31 01:12:21 by qwertvgty</span>
+妈的，你是真的牛逼
+
+----
+
+##### <span id="pid740729541">42.[0] \<pid:740729541\> 2024-01-31 01:14:36 by Nidhoggxcm</span>
+第一眼以为是腿![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)
+
