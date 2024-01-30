@@ -122,3 +122,28 @@ fc是funny chicken的缩写吗？如果是的话，指的是天华这个up主。
 
 fc2质量下滑的厉害啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)好的素人越来越少了
 
+----
+
+##### <span id="pid740692718">20.[0] \<pid:740692718\> 2024-01-30 20:45:47 by 奸奇至尊巫师</span>
+我是真不知道fc是谁。。。有没有人解说下
+
+----
+
+##### <span id="pid740692889">21.[0] \<pid:740692889\> 2024-01-30 20:46:56 by coldse</span>
+fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740692967">22.[0] \<pid:740692967\> 2024-01-30 20:47:25 by ef9312946f6bd616</span>
+有没有谁能来个系统的科普，讲讲这群kol和他们的外号![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740693325">23.[0] \<pid:740693325\> 2024-01-30 20:49:48 by 鸭梨果汁</span>
+能不能切下瓜![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740693603">24.[0] \<pid:740693603\> 2024-01-30 20:51:18 by wulicm</span>
+说FC的时候，我第一个想到的是12team的天国的FC，但想想他都几百年没露面了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -30,3 +30,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 应该不太行。
 但如果游戏是b服的话，b站账号就和游戏账号绑定了，那么大概率查得到。
 
+----
+
+##### <span id="pid740693646">5.[0] \<pid:740693646\> 2024-01-30 20:51:36 by 名字什么の并不重要</span>
+腾讯应该不用那么麻烦
+

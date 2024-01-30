@@ -422,3 +422,13 @@ xxn街头互扯头发   o
 ##### <span id="pid740691277">71.[1] \<pid:740691277\> 2024-01-30 20:36:40 by seiya5924</span>
 还好退的早，以后有男不玩，主角不锁男不玩![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
 
+----
+
+##### <span id="pid740692664">72.[1] \<pid:740692664\> 2024-01-30 20:45:22 by 支援型梅尔特</span>
+官博和超话底下基本可以视为赛博癫姛聚集区,不怕长针眼的可以去看看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740693525">73.[0] \<pid:740693525\> 2024-01-30 20:50:53 by LACTaurus</span>
+我只能说，要想好好玩这游戏，别碰社区![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)无期吧不是现在才烂的。
+

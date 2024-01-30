@@ -97,3 +97,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740692447">14.[1] \<pid:740692447\> 2024-01-30 20:43:53 by aisqgl</span>
 我猜是云图！![你已经死了](https://img4.nga.178.com/ngabbs/post/smile/a2_45.png)追放可不能裁啊，不然我后续乐子谁给我做
 
+----
+
+##### <span id="pid740692789">15.[0] \<pid:740692789\> 2024-01-30 20:46:18 by 土渣饼</span>
+>[jump](#pid740690740) 神经-先生(2024-01-30 20:33) 说: 
+>
+>砍云图？云图这一年不管是游戏还是剧情感觉都有起色，真砍云图彻底疯了？
+
+云图在散爆里吧
+就，大伙都倒着开车，云图正着开，等于他变成逆行的了
+

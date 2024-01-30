@@ -16,3 +16,56 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740686090">1.[7] \<pid:740686090\> 2024-01-30 20:05:00 by 94646843z</span>
 确实别吵了，大伙多给裸男点点举办![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740693222">2.[2] \<pid:740693222\> 2024-01-30 20:49:13 by 只吃肉不吃素</span>
+>[jump](#pid740686090) 94646843z(2024-01-30 20:05) 说: 
+>
+>确实别吵了，大伙多给裸男点点举办![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)哈哈
+
+----
+
+##### <span id="pid740693404">3.[5] \<pid:740693404\> 2024-01-30 20:50:14 by 顺劈带暴击</span>
+>[jump](#pid740686090) 94646843z(2024-01-30 20:05) 说: 
+>
+>确实别吵了，大伙多给裸男点点举办![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+点什么裸男举办，给混厕游戏女角色都举办了，处理快多了还能干死混厕厂商![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740693501">4.[1] \<pid:740693501\> 2024-01-30 20:50:47 by 惊异灵摆</span>
+人家会举报，咱只会有男不玩。
+
+----
+
+##### <span id="pid740694157">5.[0] \<pid:740694157\> 2024-01-30 20:54:46 by cywayby</span>
+又不是没被举办过，最后都是给女主加布料说这些。
+
+----
+
+##### <span id="pid740694221">6.[1] \<pid:740694221\> 2024-01-30 20:55:12 by 乱杀米傗</span>
+随便，希望继续偏袒，到那一天反噬只会更强
+
+----
+
+##### <span id="pid740694504">8.[0] \<pid:740694504\> 2024-01-30 20:57:09 by fly0o0521</span>
+上面以为乙女游戏不管，那些女玩家就会对现实男人有兴趣![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740694545">9.[0] \<pid:740694545\> 2024-01-30 20:57:24 by 矿泉水放生大师</span>
+版本在这呢
+
+----
+
+##### <span id="pid740694619">10.[0] \<pid:740694619\> 2024-01-30 20:57:56 by luciferion</span>
+但是乙游的游戏性比一般二游还要低一档呢，基本上纯花钱看内容了。我觉得也不行
+
+----
+
+##### <span id="pid740694863">11.[0] \<pid:740694863\> 2024-01-30 20:59:40 by 灰灰灰机酱</span>
+不用自己费力去举办，多吸引点集美去磕男主南桐cp，乙女腐女t0内战，xxn自己就会去举办掉这游戏的
+
