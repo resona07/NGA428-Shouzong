@@ -136,3 +136,13 @@ mm99![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
 
 哥们人头才掉，你找个头还在的
 
+----
+
+##### <span id="pid740685231">22.[0] \<pid:740685231\> 2024-01-30 19:59:19 by jin-class</span>
+>[jump](#pid740678559) Yonagi景(2024-01-30 19:17) 说: 
+>
+>赛博斩首弃市，等一个传首九边
+
+![img](./22_9387e1rp.jpg)
+当众枭首已经有了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+
