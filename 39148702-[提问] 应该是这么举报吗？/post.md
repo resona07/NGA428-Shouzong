@@ -94,3 +94,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 <div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>点击展开 ...</div><span class="collapse_content" id="foldCnt">![img](./14_381414l2.jpg)
 ![img](./14_a9e00fki.jpg)</span></div>
 
+----
+
+##### <span id="pid740686608">15.[0] \<pid:740686608\> 2024-01-30 20:08:08 by Mélusine003</span>
+这种帖子前几天被鲨疯了……
+
+----
+
+##### <span id="pid740686921">16.[0] \<pid:740686921\> 2024-01-30 20:10:20 by 角色，我只要满命满精</span>
+举报的时候应该用家长视角，说内容影响孩子，让孩子早恋耽误学习，印象青少年身心
+

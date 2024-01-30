@@ -130,3 +130,20 @@ xxn要多厚的脸皮才能说出这些话，还有这么宝，我先去呕吐�
 
 不奇怪啊 女玩家就是更容易搞饭圈单推，都单推了凭啥要给别的哥哥姐姐花钱，米桑吸引集美本来就是搬石砸脚，米爆不到米黑倒是能爆很多![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 
+----
+
+##### <span id="pid740686126">23.[0] \<pid:740686126\> 2024-01-30 20:05:11 by coldse</span>
+>[jump](#pid740684804) linkaM(2024-01-30 19:56):
+
+感觉集美天生喜欢尖叫抓挠，娇妻比例有点高![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740686516">24.[0] \<pid:740686516\> 2024-01-30 20:07:36 by 蹦哒的鱼鱼</span>
+![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)还要提一嘴甘雨
+
+----
+
+##### <span id="pid740687417">25.[0] \<pid:740687417\> 2024-01-30 20:13:35 by 不会安宁的夜</span>
+赛博锁妖塔锁不住了？![惊](https://img4.nga.178.com/ngabbs/post/smile/ac27.png)
+

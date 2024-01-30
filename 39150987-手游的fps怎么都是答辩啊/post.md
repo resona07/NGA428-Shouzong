@@ -76,3 +76,8 @@ fps是搓玻璃相性最差的游戏了吧
 ##### <span id="pid740682993">12.[0] \<pid:740682993\> 2024-01-30 19:44:26 by 穿上马甲就不认识了</span>
 就手机平台的局限性，你还指望能做好fps么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740686886">13.[0] \<pid:740686886\> 2024-01-30 20:10:05 by 己顾杜壬魏张</span>
+你都搓玻璃了还想有什么手感![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)。
+

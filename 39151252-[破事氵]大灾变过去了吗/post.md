@@ -31,3 +31,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740685287">4.[0] \<pid:740685287\> 2024-01-30 19:59:40 by scoutqq</span>
 莱塔尼亚空军的骇人轰炸刚过去,一会回来![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740685489">5.[0] \<pid:740685489\> 2024-01-30 20:00:57 by 叶公好龙娘</span>
+扣1发毁灭者
+
+----
+
+##### <span id="pid740685661">6.[0] \<pid:740685661\> 2024-01-30 20:02:00 by summsr</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)全面回忆，boss被遗忘者()
+
+----
+
+##### <span id="pid740685713">7.[0] \<pid:740685713\> 2024-01-30 20:02:24 by 狱中猛干星号姐</span>
+没人知道吗。凌晨那个谜语蓝梦公司啥啥的说的啥意思
+
+----
+
+##### <span id="pid740687447">8.[0] \<pid:740687447\> 2024-01-30 20:13:46 by 超越型莫德雷德</span>
+我不知道，只能说先准备好后路吧
+
