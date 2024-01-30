@@ -61,3 +61,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 改了![哦](https://img4.nga.178.com/ngabbs/post/smile/ac12.png)
 
+----
+
+##### <span id="pid740738402">8.[1] \<pid:740738402\> 2024-01-31 04:46:13 by mianmi123</span>
+>[jump](#pid740738339) 好累想睡1(2024-01-31 04:42):
+
+谢了，虽然我可能这几天已经被截图放其他地方了就是了![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+不过自己看到还是挺尴尬的
+
+----
+
+##### <span id="pid740738485">9.[1] \<pid:740738485\> 2024-01-31 04:50:59 by RavenFubuki</span>
+虽然原文是讨论社科理论，但感觉也符合这里的问题
+![img](./9_7c1f2c2h.jpg)
+

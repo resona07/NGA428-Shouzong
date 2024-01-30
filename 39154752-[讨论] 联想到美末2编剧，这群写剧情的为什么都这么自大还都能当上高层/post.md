@@ -17,3 +17,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740738054">2.[0] \<pid:740738054\> 2024-01-31 04:29:25 by emiyacynthia</span>
 能力值都点在办公室撕逼了呗，猜猜谁最擅长![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
 
+----
+
+##### <span id="pid740738404">3.[0] \<pid:740738404\> 2024-01-31 04:46:16 by 月翼幽龙</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)还不如说文案类工作门槛低谁都能写写所以高层也能搞 但是这行门槛低但是下限更低所以水平不足的写出来个顶个的贵物就这样了
+
+----
+
+##### <span id="pid740738510">4.[0] \<pid:740738510\> 2024-01-31 04:52:18 by mianmi123</span>
+不是因为是写剧情的，而是因为是高层所以能通过吧……
+要是高层是美术，那自己的画自然也可以不用太好也能通过了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

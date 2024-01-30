@@ -46,3 +46,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740736935">5.[0] \<pid:740736935\> 2024-01-31 03:45:09 by 挖鼻孔的大英雄</span>
 最好笑的一集。。。
 
+----
+
+##### <span id="pid740738606">6.[0] \<pid:740738606\> 2024-01-31 04:58:19 by Xdynix</span>
+>[jump](#pid740728583) 夕无餍(2024-01-31 01:03) 说: 
+>
+>这个应该发瓜版吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+瓜版不收玩家瓜
+
