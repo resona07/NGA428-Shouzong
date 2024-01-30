@@ -154,3 +154,16 @@ xxn：卧槽超神！这CP我磕到了![嘲笑1](https://img4.nga.178.com/ngabbs
 全男，别走![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
 集美们快充钱，集霸？集霸不得入内![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740661945">27.[0] \<pid:740661945\> 2024-01-30 17:47:23 by 巴基和比约恩</span>
+>[jump](#pid740651193) wjxjh(2024-01-30 17:00) 说: 
+>
+>虽然很想说些什么，但这图里面艾尔海森是什么姿势啊…要不是报画师了我差点以为是ai绘制了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这个说不定是用了AI呢
+画师自己用的 要么就是不如AI的菜
+
+这个腿完全不对……应该是交叉腿吧  
+下面提纳里的脚也画错了
+

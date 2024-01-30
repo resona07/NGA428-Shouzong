@@ -25,3 +25,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740658033">2.[0] \<pid:740658033\> 2024-01-30 17:29:02 by aisqgl</span>
 聊天记录看个乐就算了，虽然op挨打大快人心，但祖国人是啥样的人我也不知道，不站队![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740664012">3.[2] \<pid:740664012\> 2024-01-30 17:56:57 by 万钟0418</span>
+祖国人打人本来就很符合人设
+不管是因为什么打的，总之就很还原![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

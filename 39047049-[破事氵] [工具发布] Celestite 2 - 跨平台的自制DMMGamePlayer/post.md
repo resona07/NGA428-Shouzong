@@ -801,3 +801,25 @@ System.NullReferenceException: Object reference not set to an instance of an obj
 
 1.9的更新服务器已经退回之前的版本了 不会弹了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740661546">109.[0] \<pid:740661546\> 2024-01-30 17:45:24 by Switch46</span>
+>[jump](#pid740481787) cbd777(2024-01-29 19:16):
+
+排查了一下，相关问题应该在2.0.24030.1开始修复了 更新一下就行
+
+----
+
+##### <span id="pid740661991">110.[0] \<pid:740661991\> 2024-01-30 17:47:35 by Switch46</span>
+>[jump](#pid740203710) ms200tswd(2024-01-28 09:11):
+
+![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)谷歌盘
+[url](https://drive.google.com/drive/folders/13RF5MrJJlwl_njdbNnkH_NmqCqh-WATh?usp=sharing)
+
+----
+
+##### <span id="pid740662097">111.[0] \<pid:740662097\> 2024-01-30 17:48:02 by Switch46</span>
+>[jump](#pid740197796) bigBandito(2024-01-28 07:54):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)1.x的白批群已经三进宫今天又复活了
+
