@@ -94,3 +94,20 @@ big胆，哪只有几块破石头。那都是开发人员穷尽心力给玩家�
 ##### <span id="pid740645560">11.[0] \<pid:740645560\> 2024-01-30 16:37:12 by Mefistoi</span>
 我超逆子你![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)逆子勇敢飞血别溅我身上
 
+----
+
+##### <span id="pid740647939">12.[0] \<pid:740647939\> 2024-01-30 16:47:12 by 旋律丨</span>
+>[jump](#pid740643171) abasiyaluo2(2024-01-30 16:26):
+
+每个npc人设不一样，这位就是小学生设定，你看他名字![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740648020">13.[0] \<pid:740648020\> 2024-01-30 16:47:33 by hhss左左右右</span>
+>[jump](#pid740644517) linkaM(2024-01-30 16:32) 说: 
+>
+>但他秒伤很猛![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+>这个系列的ai设定是真玩家所以不锁时代，聊起来很有梗，现在玩家自己也可以捏自己的离线ai行为倾向
+
+像极了学生时代的自己。年纪越大dps越低。
+

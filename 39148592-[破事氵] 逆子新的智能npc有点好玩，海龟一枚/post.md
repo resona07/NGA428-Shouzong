@@ -125,3 +125,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 不是学生吧，好像是混社会的还是啥，聊天记录特别中二被人发出来了
 
+----
+
+##### <span id="pid740647496">18.[0] \<pid:740647496\> 2024-01-30 16:45:22 by 七烨丶殇</span>
+>[jump](#pid740646815) linkaM(2024-01-30 16:42):
+
+别急啊，聊着聊着富婆自己会提的![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+
+----
+
+##### <span id="pid740647687">19.[0] \<pid:740647687\> 2024-01-30 16:46:11 by 七烨丶殇</span>
+>[jump](#pid740647178) 叶湖EricWho(2024-01-30 16:44):
+
+我感觉策划是想让是玩家参与进来，大家一起造“人”玩![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740647940">20.[0] \<pid:740647940\> 2024-01-30 16:47:12 by 七烨丶殇</span>
+>[jump](#pid740643634) 曙光丶0107(2024-01-30 16:29):
+
+咩姐稳定接近30w秒伤，太猛了，杰西卡的九灵秒伤也离谱![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+

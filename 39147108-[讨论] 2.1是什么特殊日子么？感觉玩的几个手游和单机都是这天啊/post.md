@@ -250,3 +250,20 @@ relink.....主线快打穿了，但只是刚刚开始。
 ##### <span id="pid740647205">38.[0] \<pid:740647205\> 2024-01-30 16:44:06 by MyGO_o</span>
 全是有男)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740649698">39.[0] \<pid:740649698\> 2024-01-30 16:54:33 by hoooobo</span>
+>[jump](#pid740639173) JonathanJoestar(2024-01-30 16:09):
+
+从大学期待到现在，真是狠狠给我喂了一口![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid740650354">40.[0] \<pid:740650354\> 2024-01-30 16:57:06 by SxExcalibur</span>
+srds我steam提前买了500余额就是等relink出价格了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740650756">41.[0] \<pid:740650756\> 2024-01-30 16:58:52 by 小致灬</span>
+手综的朋友再见，relink去了
+

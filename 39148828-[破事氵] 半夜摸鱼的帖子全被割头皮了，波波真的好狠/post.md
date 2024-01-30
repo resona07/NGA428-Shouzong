@@ -40,3 +40,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740643306">6.[0] \<pid:740643306\> 2024-01-30 16:27:37 by 贝斯提尔</span>
 ![img](./6_3c68d96a.gif)
 
+----
+
+##### <span id="pid740649477">7.[8] \<pid:740649477\> 2024-01-30 16:53:44 by zhxzhx8440</span>
+意思这么多天了，xxn还在割嘛。
+这也太恨了吧![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+
+----
+
+##### <span id="pid740650160">8.[0] \<pid:740650160\> 2024-01-30 16:56:19 by fervent159</span>
+>[jump](#pid740643306) 贝斯提尔(2024-01-30 16:27) 说: 
+>
+>![img](./6_3c68d96a.gif)
+
+秒杀外挂确实强![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

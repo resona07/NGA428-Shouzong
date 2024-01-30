@@ -488,3 +488,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740643490">64.[0] \<pid:740643490\> 2024-01-30 16:28:28 by 王小乐乐lelele</span>
 多少有点辱香菜了
 
+----
+
+##### <span id="pid740649898">65.[0] \<pid:740649898\> 2024-01-30 16:55:19 by 肥。龙。在。天</span>
+>[jump](#pid740640072) 小汤圆109(2024-01-30 16:13) 说: 
+>
+>&quot;只是打了一顿&quot;吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+毕竟都交了复活币
+

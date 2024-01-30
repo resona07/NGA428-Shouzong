@@ -379,3 +379,12 @@ Dead game 了，换个游戏打吧
 ##### <span id="pid740627049">55.[0] \<pid:740627049\> 2024-01-30 15:13:33 by NeonKight</span>
 P蜜这就去出巨象 研究闪电风暴
 
+----
+
+##### <span id="pid740647650">56.[0] \<pid:740647650\> 2024-01-30 16:46:03 by 荣光之音</span>
+>[jump](#pid740604143) 空-白dd(2024-01-30 13:16) 说: 
+>
+>神族p用没用，圣言录把我们链接在一起给z一锅端![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+你什么时候愿意不再帮犯罪分子洗地，把犯罪分子一锅端了![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)![img](./56_082cda2d.jpg)
+
