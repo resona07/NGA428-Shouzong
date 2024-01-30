@@ -199,3 +199,14 @@ dmm页游
 ##### <span id="pid740665971">29.[0] \<pid:740665971\> 2024-01-30 18:06:40 by 半久里</span>
 火影忍者Online差不多了![img](./29_3927913i.jpg)
 
+----
+
+##### <span id="pid740671250">30.[0] \<pid:740671250\> 2024-01-30 18:35:17 by titwar</span>
+血族![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+不过我没玩过，也不推荐，只是提一嘴
+
+----
+
+##### <span id="pid740671970">31.[0] \<pid:740671970\> 2024-01-30 18:39:29 by shumian65581</span>
+奥拉星现在也属于二次元页游了![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

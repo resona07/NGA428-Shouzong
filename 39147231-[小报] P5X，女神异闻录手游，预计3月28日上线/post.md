@@ -464,3 +464,17 @@ P5原作是真的一颗老鼠屎坏了一锅粥![哭笑](https://img4.nga.178.co
 ##### <span id="pid740650356">61.[0] \<pid:740650356\> 2024-01-30 16:57:06 by 乂南瓜</span>
 米式三件套堂堂复刻？那就祝他大卖吧
 
+----
+
+##### <span id="pid740671359">62.[0] \<pid:740671359\> 2024-01-30 18:36:05 by 无寿之梦</span>
+>[jump](#pid740635536) 奔波奔波霸(2024-01-30 15:52):
+
+这就是我要二周目通一遍无印结局的原因了![抓狂](https://img4.nga.178.com/ngabbs/post/smile/ac29.png)
+
+----
+
+##### <span id="pid740671600">63.[0] \<pid:740671600\> 2024-01-30 18:37:23 by Mortalwisdom</span>
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)我参加了删档，只能说，垃圾![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+好的全是照搬p5的，烂的全是现在国产手游的
+还是看看p3r吧
+
