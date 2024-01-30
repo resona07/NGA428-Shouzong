@@ -133,3 +133,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 米线三串的时间比原的出来的时间都长……
 
+----
+
+##### <span id="pid740640274">18.[0] \<pid:740640274\> 2024-01-30 16:14:02 by 猛干的小号</span>
+>[jump](#pid740520094) lihnmu(2024-01-29 23:48) 说: 
+>
+>这还开到自己人了
+
+用仙蛆最喜欢讲的一句话：刚才开到友军了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+你怕是不知道仙蛆经常开自己人吗？
+

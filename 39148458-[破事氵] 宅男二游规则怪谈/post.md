@@ -123,3 +123,61 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 太好玩了，嫉妒你的才华，插个眼
 警惕任何看起来友好甚至跟你一起念圣言的人，也不要在吃东西的时候跟它们争论要不要麻辣![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740637403">15.[0] \<pid:740637403\> 2024-01-30 16:01:03 by sagara_al</span>
+>[jump](#pid740635139) PersonaZzz(2024-01-30 15:50) 说: 
+>
+>![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)其实我是想写魅魔，但黑暗生物的颜值和魅魔没得比。
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)然后博德之门3的那个梦中情人不是ea版吗？正式版变守护者了。
+
+只是名字改成守护者
+本质上还是读心出你最喜欢的形象
+
+----
+
+##### <span id="pid740637560">16.[0] \<pid:740637560\> 2024-01-30 16:01:51 by sagara_al</span>
+>[jump](#pid740635306) NeonKight(2024-01-30 15:51) 说: 
+>
+>我们吉斯洋基人就是来找夺心魔![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+养鸡人还是攻击性太高了
+我选择做有男不玩的泽莱人武僧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740637740">17.[1] \<pid:740637740\> 2024-01-30 16:02:44 by solasl</span>
+补充 拒绝踏入任何卓尔主导的城市，也要拒绝卓尔的请求帮卓尔做事，避免成为卓尔家族争权夺利的牺牲品。
+
+----
+
+##### <span id="pid740637849">18.[1] \<pid:740637849\> 2024-01-30 16:03:15 by NATFproposal</span>
+![img](./18_06ac403i.jpg)
+
+这个规则好像有点严苛了啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740637948">19.[0] \<pid:740637948\> 2024-01-30 16:03:45 by solasl</span>
+>[jump](#pid740636972) 第十九扇门的背后(2024-01-30 15:59) 说: 
+>
+>我战战兢兢的活着，偶尔瞧见几个行路人触碰不能说的禁忌，还没来得及开口提醒，人就已经在我眼前消失的无影无踪，我想开口，嘴唇闭闭合合最终化作一声叹息，拉上了围巾继续赶路![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
+
+大概是被黑暗中的夺心魔掳走用触手嘬头皮了吧
+
+----
+
+##### <span id="pid740639598">20.[0] \<pid:740639598\> 2024-01-30 16:11:05 by solasl</span>
+幽暗地域冒险者手记
+众所周知，幽暗地域主要生活着地底生物
+
+----
+
+##### <span id="pid740640043">21.[0] \<pid:740640043\> 2024-01-30 16:12:59 by PersonaZzz</span>
+>[jump](#pid740637075) 心海心海心(2024-01-30 15:59):
+
+这玩意儿也不算才华。把心里想的写出来，慢慢就写了不少了。
+![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我觉得手综区得有活儿。
+规则怪谈这种活挺好的。希望![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)大伙多评论 也参与进来。
+
