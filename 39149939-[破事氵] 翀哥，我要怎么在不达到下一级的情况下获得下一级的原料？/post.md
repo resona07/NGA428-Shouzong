@@ -365,3 +365,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740726193">61.[0] \<pid:740726193\> 2024-01-31 00:40:50 by 迷星叫</span>
 太血腥啦![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
 
+----
+
+##### <span id="pid740727248">62.[1] \<pid:740727248\> 2024-01-31 00:50:19 by Ain-Void</span>
+这头怎么突然的就没了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740727436">63.[1] \<pid:740727436\> 2024-01-31 00:52:03 by kdde5467</span>
+艺术，应当震慑人心(烬脸微笑
+
+----
+
+##### <span id="pid740727473">64.[1] \<pid:740727473\> 2024-01-31 00:52:25 by 廷达罗斯之主</span>
+>[jump](#pid740683770) aisqgl(2024-01-30 19:49):
+
+菠萝哥也没了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740728074">65.[0] \<pid:740728074\> 2024-01-31 00:58:28 by 妃乐西</span>
+这是咋了啊，有没有人给说说，这为什么斩首啊？！
+

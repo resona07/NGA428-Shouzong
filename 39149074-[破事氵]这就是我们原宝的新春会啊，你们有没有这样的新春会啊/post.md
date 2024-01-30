@@ -254,3 +254,13 @@ xxn：卧槽超神！这CP我磕到了![嘲笑1](https://img4.nga.178.com/ngabbs
 
 这下成分最明确的一集了???
 
+----
+
+##### <span id="pid740726078">42.[0] \<pid:740726078\> 2024-01-31 00:39:44 by 小心冬瓜强</span>
+>[jump](#pid740718394) Mélusine003(2024-01-30 23:41) 说: 
+>
+>谢谢你帮我把剩下的男同女同CP补上![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+>![img](./40_c63fc1bs.jpg)
+
+营养最均衡的一集
+

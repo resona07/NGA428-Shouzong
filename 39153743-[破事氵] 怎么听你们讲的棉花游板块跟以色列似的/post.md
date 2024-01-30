@@ -81,3 +81,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 一个星期可以搓三个纠缠之源
 
+----
+
+##### <span id="pid740726853">14.[2] \<pid:740726853\> 2024-01-31 00:46:44 by 刃6677</span>
+>[jump](#pid740721760) Guidetowel-MK4(2024-01-31 00:06) 说: 
+>
+>作为一个，我个人长期攻击论坛女厕所的经验之谈，
+>
+>你喷米版女厕所，浓度比较高的恨舟米友大概率就是嗦舟，
+>然后开始复读圣子降临、流浪虎扑、内鬼掌权、姐妹渗透的故事。
+>
+>你喷舟版女厕所，浓度比较高的恨米舟友大概率也是嗦米，
+>然后开始复读大静谧、流浪贴吧、内鬼掌权、姐妹渗透的故事。
+>
+>当然我不评价他们这种论调，
+>我只是陈述一个现象。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+A:![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png) B:![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)
+A:![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png) C:![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
+A:![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png) B&amp;C:![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
+

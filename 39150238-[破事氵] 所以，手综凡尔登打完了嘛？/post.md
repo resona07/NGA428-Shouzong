@@ -150,3 +150,8 @@ mxz就是mxz，谁急谁就是mxz
 ##### <span id="pid740723229">26.[2] \<pid:740723229\> 2024-01-31 00:16:27 by 己顾杜壬魏张</span>
 打完了，现在是高压线拉起来的阶段![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，刚才在一个前天发的昨晚还没删的帖子里指出了下这次事的本质，然后那个贴主被禁言都没被删的帖子可就无了，这就是高压线啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)。
 
+----
+
+##### <span id="pid740726895">27.[0] \<pid:740726895\> 2024-01-31 00:47:02 by jblz4743</span>
+感谢不杀之恩 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

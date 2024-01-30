@@ -161,3 +161,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740726678">30.[0] \<pid:740726678\> 2024-01-31 00:44:54 by hanruiwow</span>
 怎么每个版本都有“不要打扰”啊，话都不让说一句的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740727590">31.[0] \<pid:740727590\> 2024-01-31 00:53:33 by 星河夜遥</span>
+>[jump](#pid740533999) Campanula*(2024-01-30 02:28) 说: 
+>
+>说实话，光看主楼这俩图没感觉有啥，不过我觉得就算有啥，现在玩原的龟龟应该也没啥问题的。
+
+你快去追放版发个帖吧，他们就需要你这种受众![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

@@ -61,3 +61,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740726504">8.[0] \<pid:740726504\> 2024-01-31 00:43:29 by 乌拉旗舰号</span>
 折叠喵，折叠喵，快睡觉了不想看到鬼图![doge](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740726832">10.[1] \<pid:740726832\> 2024-01-31 00:46:34 by 尚未转职枪兵的幸运E</span>
+>[jump](#pid740725792) 咸菜白肚鱼(2024-01-31 00:37) 说: 
+>女性露沟：物化女性，色情眼光
+>全身包裹：封建思想，打压个性
+>不出女角色：歧视女性，性别歧视
+>女角色太好看：差别待遇，挑起内部分歧
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)[s:a......
+
+这也不行那也不行，说明欠拴了
+
