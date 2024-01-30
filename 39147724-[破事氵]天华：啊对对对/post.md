@@ -57,3 +57,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740620436">7.[0] \<pid:740620436\> 2024-01-30 14:42:12 by 吔！呱！</span>
 happy chicken最好味呀
 
+----
+
+##### <span id="pid740621269">8.[0] \<pid:740621269\> 2024-01-30 14:46:23 by 贝斯提尔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)人都跑了，哪有什么指导仙呀
+
+找到了，这个人被仙家军要挟了，要他去攻击空大佐
+![img](./8_fbdabadl.jpg)
+
+----
+
+##### <span id="pid740621610">9.[0] \<pid:740621610\> 2024-01-30 14:48:13 by 剑已归</span>
+![img](./9_e406c1p4.jpg)
+
+----
+
+##### <span id="pid740622696">10.[0] \<pid:740622696\> 2024-01-30 14:53:34 by 剑已归</span>
+>[jump](#pid740620436) 吔！呱！(2024-01-30 14:42) 说: 
+>
+>happy chicken最好味呀
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740623397">11.[0] \<pid:740623397\> 2024-01-30 14:57:00 by lihnmu</span>
+>[jump](#pid740621610) 剑已归(2024-01-30 14:48) 说: 
+>
+>![img](./9_e406c1p4.jpg)
+
+我们在等大的，他们在等什么
+

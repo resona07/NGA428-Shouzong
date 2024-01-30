@@ -371,3 +371,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 真假哪里说的我想去看看鹅的乐子
 
+----
+
+##### <span id="pid740621233">51.[0] \<pid:740621233\> 2024-01-30 14:46:11 by 4feefdf2433ed58a</span>
+果然社交游戏的先发优势还是很大的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -249,3 +249,10 @@ dad是啥啊？
 补充一下钢盆相关  
 编辑：有缺的图锁之前没截，有截的可以下面补充一下
 
+----
+
+##### <span id="pid740622470">32.[0] \<pid:740622470\> 2024-01-30 14:52:27 by 子赖骆丁薛谷</span>
+可是牢盆还说过dad年会出的演示和来自星辰被放弃啊，贴吧那个一眼社管二道贩子，什么人会把反粥和孝原划等号不用我多说了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+牢盆说dad还是在他和粥学长对线那次![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+而且头像框是官宣以后才有人提的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

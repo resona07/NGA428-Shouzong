@@ -212,3 +212,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 鱼那个假首席纯恶心人![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740621032">25.[0] \<pid:740621032\> 2024-01-30 14:45:13 by 快快快快乐</span>
+>[jump](#pid740589797) 黄前久美子子(2024-01-30 12:03) 说: 
+>
+>保不齐真是男的改的，日不落市怕双男没流水干脆大手一挥改成女的了，你看一点女性特征都没
+
+错啦，我们内鬼吧巴不得双男，谁异议就是男不玩闹麻了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740621123">26.[0] \<pid:740621123\> 2024-01-30 14:45:42 by 西皮解有点数</span>
+今年我最期待的游戏就是明潮了，估计它应该能有羽中瓜的一半到七成水平![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740621460">27.[0] \<pid:740621460\> 2024-01-30 14:47:27 by 安塞腰鼓对</span>
+>[jump](#pid740590356) walkerASH(2024-01-30 12:06):
+
+所以有少2当祭品是好事，各公司的985们并不蠢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

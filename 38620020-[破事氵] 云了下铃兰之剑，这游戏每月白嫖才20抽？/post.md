@@ -178,3 +178,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 通俗一点 这个游戏有抽卡平衡  系统会把出金率维持在一个平衡点上 玩家平均下来是50抽1金 相当于明码标价 但是如果你非常的欧 新手10连出了11个金 那就要连续硬吃80发的保底 到平衡为止![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 这游戏所谓的4个t0都是常驻角色 要进双up轮换池 双up池脸黑要连续抽4次保底才能抽到喜欢的角色 歪一次 保底其中一个up 歪一次 保底一个未出过的新up![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)脸要是真这么黑也是一种变相的欧了
 
+----
+
+##### <span id="pid740618030">26.[0] \<pid:740618030\> 2024-01-30 14:29:54 by Princelei007</span>
+抠、抠搜、真抠搜、相当抠搜、真jb抠搜
+
+----
+
+##### <span id="pid740618249">27.[0] \<pid:740618249\> 2024-01-30 14:31:02 by fervent159</span>
+我去。2l怎么头皮就被割了
+
+----
+
+##### <span id="pid740621470">28.[0] \<pid:740621470\> 2024-01-30 14:47:29 by 泡泡茶1221</span>
+不都说2000千起步玩这个游戏，是挺良心的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -340,3 +340,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 童年回忆冒险岛，bgm很耳熟
 《冒险岛:联盟的意志》现在当个小游戏空余时间消遣消遣还不错
 
+----
+
+##### <span id="pid740623845">57.[0] \<pid:740623845\> 2024-01-30 14:59:09 by 白将军初心未改</span>
+拼团成功免费领价值5400元游戏成长基金！就差你啦，快来：[url](https://mxdplay.rastargame.com/team/?team_name=%E6%9E%AB%E7%9A%84%E6%9C%80%E5%90%8E%E4%B8%80%E5%8F%A5&amp;invite_code=K9b698LaEv)
+
+
+没加团的来呀白嫖一千块
+

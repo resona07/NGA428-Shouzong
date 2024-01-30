@@ -108,3 +108,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740622765">13.[0] \<pid:740622765\> 2024-01-30 14:53:57 by 梦丿花火灬</span>
+>[jump](#pid740614467) mianmi123(2024-01-30 14:11) 说: 
+>
+>其实不用改，云图就有男的
+>
+>但不知道为啥少前2不加了，太可惜了
+
+不加男人形是之前试探了好几波给喷回去的，但不加男人形可以给你的女人形拉cp啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740623805">14.[0] \<pid:740623805\> 2024-01-30 14:58:58 by scoutqq</span>
+>[jump](#pid740618989) 岩之柱(2024-01-30 14:35) 说: 
+>
+>猛干这id有个TS
+>难道猛干背地里是药娘？
+
+![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)大概率千子军团thousand sons,ts这个说法现在用的人很少了吧,一般都是mtf/ftm啥的~~这俩也互相看不起~~
+
