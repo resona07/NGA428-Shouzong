@@ -87,3 +87,29 @@ fc是谁？
 
 说不定等国足进世界杯冠军时就能看到了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740687663">15.[0] \<pid:740687663\> 2024-01-30 20:15:07 by zxea1278</span>
+>[jump](#pid740680054) 暴力鸟鸟(2024-01-30 19:26):
+
+2024年了还在谢斌笑话！
+
+----
+
+##### <span id="pid740687856">16.[0] \<pid:740687856\> 2024-01-30 20:16:17 by 有冇搞錯</span>
+是阿fc是谁？我只知道fc2
+
+----
+
+##### <span id="pid740688073">17.[0] \<pid:740688073\> 2024-01-30 20:17:37 by Dorothy_Goddess</span>
+>[jump](#pid740686290) Mélusine003(2024-01-30 20:06) 说: 
+>
+>他兔女郎复盘什么时候发，想看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不是说频道和伪世界树炸了资料都没了吗，还没放弃啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740689856">18.[0] \<pid:740689856\> 2024-01-30 20:28:05 by 我不会。</span>
+fc是funny chicken的缩写吗？如果是的话，指的是天华这个up主。
+

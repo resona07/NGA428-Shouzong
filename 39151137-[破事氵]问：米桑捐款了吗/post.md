@@ -58,3 +58,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740687387">9.[0] \<pid:740687387\> 2024-01-30 20:13:24 by 猛干的小号</span>
 ![img](./9_1252c6d7.gif)
 
+----
+
+##### <span id="pid740690037">10.[0] \<pid:740690037\> 2024-01-30 20:29:11 by 单手杰斯</span>
+听说鸡厂因为缴税超10亿被发奖表扬了，这按观圣的流水统计是不是偷税不少![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

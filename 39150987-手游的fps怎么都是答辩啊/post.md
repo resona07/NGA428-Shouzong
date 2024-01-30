@@ -81,3 +81,18 @@ fps是搓玻璃相性最差的游戏了吧
 ##### <span id="pid740686886">13.[0] \<pid:740686886\> 2024-01-30 20:10:05 by 己顾杜壬魏张</span>
 你都搓玻璃了还想有什么手感![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)。
 
+----
+
+##### <span id="pid740687877">14.[0] \<pid:740687877\> 2024-01-30 20:16:24 by LACTaurus</span>
+手机多少功率，你电脑多少功率，指望自行车拉大货是不是有点魔幻了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)另外你从哪看到的射击大作尘白，他的射击我只能说勉强![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740688079">15.[0] \<pid:740688079\> 2024-01-30 20:17:39 by 火前流明</span>
+一张显卡都顶多少个手机大了，怎么比![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740689622">16.[0] \<pid:740689622\> 2024-01-30 20:26:36 by hankuifeng</span>
+我连手机moba都不玩感觉操作太反人类了  目前就玩玩马娘这种不需要操作的感觉最舒服
+
