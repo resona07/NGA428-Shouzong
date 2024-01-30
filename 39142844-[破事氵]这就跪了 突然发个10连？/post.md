@@ -130,3 +130,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740548809">23.[0] \<pid:740548809\> 2024-01-30 08:43:19 by 叁青</span>
 从浮木里扣出来的9个紫核，连个金角色固件都拉不完![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740549666">24.[0] \<pid:740549666\> 2024-01-30 08:49:08 by old_driver</span>
+![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)小队长说公关开始了，这小号应该就是
+
+----
+
+##### <span id="pid740550596">25.[0] \<pid:740550596\> 2024-01-30 08:55:16 by 云卷云舒1234</span>
+发表个爆论吧。
+
+死透了已经，发什么都救不回来了。把ip卖给别人做，兴许能把ip救回来，但是散爆是一定完蛋了。
+

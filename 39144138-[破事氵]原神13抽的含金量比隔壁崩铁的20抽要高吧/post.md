@@ -27,3 +27,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740548851">4.[0] \<pid:740548851\> 2024-01-30 08:43:43 by 荆条花3</span>
 这号是真的纯粹![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740549035">5.[1] \<pid:740549035\> 2024-01-30 08:45:03 by saluttunny</span>
+这重要吗 也就你们米厨觉得重要了吧？
+
+----
+
+##### <span id="pid740549232">6.[1] \<pid:740549232\> 2024-01-30 08:46:13 by Moeka117</span>
+是的，因为只有原神发纠缠之缘，别的游戏都不发，所以原神是最大方的游戏，你们这群喂不饱的狼非但不感激竟还敢骂福利差？
+
+----
+
+##### <span id="pid740549265">7.[0] \<pid:740549265\> 2024-01-30 08:46:29 by 代用编号9527</span>
+米家还要内战吗？原神在流水上确实吊一点，难道瘤萎真是个SB，会砍了原神预算给星铁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740550998">8.[0] \<pid:740550998\> 2024-01-30 08:57:51 by 彻木</span>
+截图截好了吗。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
