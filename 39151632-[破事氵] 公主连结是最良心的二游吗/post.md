@@ -168,3 +168,13 @@ pcr应该很ml,放在如今的环境里真得加分![上](https://img4.nga.178.c
 ##### <span id="pid740703620">30.[0] \<pid:740703620\> 2024-01-30 21:58:16 by 渡世は厭世</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只能说国服千里眼的情况下还行，只氪月卡的我开服玩了半年多弃坑时候还有3井多的石头，就是公会战是真的太坐牢了
 
+----
+
+##### <span id="pid740705393">31.[0] \<pid:740705393\> 2024-01-30 22:10:50 by LancerN</span>
+喷水萝好像出这个的时候我弃坑的…![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740705776">32.[0] \<pid:740705776\> 2024-01-30 22:13:28 by 不知道取什么，随便取</span>
+限定连发还是算了![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)限定比常驻多
+

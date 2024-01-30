@@ -80,3 +80,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740703744">10.[0] \<pid:740703744\> 2024-01-30 21:59:06 by MBT96B</span>
 别加我
 
+----
+
+##### <span id="pid740705294">11.[0] \<pid:740705294\> 2024-01-30 22:10:13 by 弗罗西诺内</span>
+>[jump](#pid740703325) duobaan007(2024-01-30 21:56) 说: 
+>
+>老哥让我问你，死四个号的在名人堂算什么级别
+
+当然是金球奖!
+

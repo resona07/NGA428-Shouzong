@@ -130,3 +130,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你这个基本是最后一招了，xxn在几年就上了最后一招，可见有多恐怖
 
+----
+
+##### <span id="pid740704377">21.[0] \<pid:740704377\> 2024-01-30 22:03:42 by 夏伤211</span>
+>[jump](#pid740703169) 化骨咩咩掌(2024-01-30 21:55):
+
+直接到该公司注册所在地所属街道官网民生诉求那里投诉，苦逼的体制人一定会尽心尽力去答复的，就算渠道不对他们也必须给出正确的渠道(别问我为什么知道![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png))
+
