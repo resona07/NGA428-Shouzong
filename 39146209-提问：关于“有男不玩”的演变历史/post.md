@@ -166,3 +166,21 @@ ml你妈ml，这是ml的事情吗还在ml
 ##### <span id="pid740627471">27.[3] \<pid:740627471\> 2024-01-30 15:15:35 by 化骨咩咩掌</span>
 你妈跟你爸是 ml 还是 cp
 
+----
+
+##### <span id="pid740637299">28.[5] \<pid:740637299\> 2024-01-30 16:00:33 by 我不会。</span>
+![img](./28_f8d15epg.jpg)
+
+----
+
+##### <span id="pid740641284">29.[2] \<pid:740641284\> 2024-01-30 16:18:35 by 爱吃菠萝披萨的永乐</span>
+>[jump](#pid740589679) mianmi123(2024-01-30 12:03) 说: 
+>
+>各位小心点吧
+>大伙看看版面，还能看到友军的有男不玩贴么？
+>全被杀光了
+>
+>所以别回答这位了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我的呀 我也发有男不玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

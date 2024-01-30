@@ -181,3 +181,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我觉得手综区得有活儿。
 规则怪谈这种活挺好的。希望![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)大伙多评论 也参与进来。
 
+----
+
+##### <span id="pid740640457">22.[1] \<pid:740640457\> 2024-01-30 16:14:54 by 一曲浮生</span>
+>[jump](#pid740637075) 心海心海心(2024-01-30 15:59) 说: 
+>
+>太好玩了，嫉妒你的才华，插个眼
+>警惕任何看起来友好甚至跟你一起念圣言的人，也不要在吃东西的时候跟它们争论要不要麻辣![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+>这个世界的棉花是一种很危险的生物，尽量远离
+
+可以去本周热帖的高楼贴去爬楼玩，能发现不少![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740640763">23.[0] \<pid:740640763\> 2024-01-30 16:16:19 by PersonaZzz</span>
+>[jump](#pid740637849) NATFproposal(2024-01-30 16:03):
+
+不要念诵黑暗生物的真名。凡有言，必被知![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
+

@@ -27,3 +27,57 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 虽然对话有点怪，不过富婆直球包养还真是
 等等，不会要上钢丝球吧
 
+----
+
+##### <span id="pid740640657">4.[0] \<pid:740640657\> 2024-01-30 16:15:50 by 七烨丶殇</span>
+>[jump](#pid740638843) 肯定是假的(2024-01-30 16:07):
+
+还没理清富婆的脑回路呢，不过真有钱啊，动不动就买衣服![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid740640778">5.[0] \<pid:740640778\> 2024-01-30 16:16:22 by 七烨丶殇</span>
+>[jump](#pid740638501) ihzuxnix(2024-01-30 16:06):
+
+有那味，学到了，下次就这么聊![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740641057">6.[0] \<pid:740641057\> 2024-01-30 16:17:34 by AsunxZ</span>
+光杰西卡这名字就很有梗了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740641377">7.[0] \<pid:740641377\> 2024-01-30 16:19:02 by hhss左左右右</span>
+脸捏的挺好看啊
+
+----
+
+##### <span id="pid740642905">8.[0] \<pid:740642905\> 2024-01-30 16:25:48 by 七烨丶殇</span>
+>[jump](#pid740641377) hhss左左右右(2024-01-30 16:19):
+
+智能npc的脸，看推文说好像是ch捏的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740643117">9.[0] \<pid:740643117\> 2024-01-30 16:26:44 by 七烨丶殇</span>
+>[jump](#pid740641057) AsunxZ(2024-01-30 16:17):
+
+还有个智能npc叫“夜良辰”![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740643634">10.[0] \<pid:740643634\> 2024-01-30 16:29:02 by 曙光丶0107</span>
+最近AI又站起来了，我还在可怜巴巴的秒伤5W，AI已经15W了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+昨天杰西卡富婆联手神相大爹跟咩姐帮我暴打李白![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740643777">11.[0] \<pid:740643777\> 2024-01-30 16:29:36 by lihnmu</span>
+>[jump](#pid740643117) 七烨丶殇(2024-01-30 16:26) 说: 
+>
+>还有个智能npc叫“夜良辰”![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+叶良辰，满满的古早小说既视感
+

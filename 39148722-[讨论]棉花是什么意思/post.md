@@ -80,3 +80,116 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740639863">14.[2] \<pid:740639863\> 2024-01-30 16:12:15 by 黑夜宇光</span>
 是手综黑魔王you know who
 
+----
+
+##### <span id="pid740640961">15.[4] \<pid:740640961\> 2024-01-30 16:17:09 by 爱吃菠萝披萨的永乐</span>
+看到了 板块的另一个我
+总有人把我当成你![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+
+----
+
+##### <span id="pid740641116">16.[7] \<pid:740641116\> 2024-01-30 16:17:50 by raymond0920</span>
+>[jump](#pid740640961) 爱吃菠萝披萨的永乐(2024-01-30 16:17) 说: 
+>
+>看到了 板块的另一个我
+>总有人把我当成你![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+
+什么？原来你们不是一个菠萝？
+
+----
+
+##### <span id="pid740641265">17.[0] \<pid:740641265\> 2024-01-30 16:18:31 by 菠萝包星人</span>
+>[jump](#pid740641116) raymond0920(2024-01-30 16:17) 说: 
+>
+>什么？原来你们不是一个菠萝？
+
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)那肯定不是啊
+
+----
+
+##### <span id="pid740641314">18.[1] \<pid:740641314\> 2024-01-30 16:18:45 by 弱智吧同学</span>
+>[jump](#pid740640961) 爱吃菠萝披萨的永乐(2024-01-30 16:17):
+
+因为你俩都是菠萝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+原来你们不是同一个菠萝啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740641356">19.[5] \<pid:740641356\> 2024-01-30 16:18:58 by Dorothy_Goddess</span>
+>[jump](#pid740639116) sxfx5251(2024-01-30 16:08) 说: 
+>
+>你惹到方圆百里最好惹的人了.jpg
+
+怎么这方圆百里都没人呢.jpg
+
+----
+
+##### <span id="pid740641406">20.[0] \<pid:740641406\> 2024-01-30 16:19:09 by 日常摸鱼-</span>
+棉花本吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740641555">21.[2] \<pid:740641555\> 2024-01-30 16:19:49 by ncqbxh</span>
+话说一说到棉花
+我就想到了黑人，就想到了农场主，然后想到了三角贸易
+emmmm![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740641573">22.[0] \<pid:740641573\> 2024-01-30 16:19:52 by 菠萝包星人</span>
+>[jump](#pid740639387) jljhu(2024-01-30 16:10) 说: 
+>
+>米之奶嘴的自称，但这几天因为疑似op的某人说了句男不练便化身红色高棉把手综给图图了，因此幸存者现在戏称其为“棉花”
+
+棉友指的是谁啊
+
+----
+
+##### <span id="pid740641587">23.[5] \<pid:740641587\> 2024-01-30 16:19:58 by Dorothy_Goddess</span>
+>[jump](#pid740641314) 弱智吧同学(2024-01-30 16:18) 说: 
+>
+>因为你俩都是菠萝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+rng、黛烟、教坊司、明朝相关
+已经建立了对这位哥模糊搜索的能力了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740641931">24.[5] \<pid:740641931\> 2024-01-30 16:21:35 by 无寿之梦</span>
+>[jump](#pid740641356) Dorothy_Goddess(2024-01-30 16:18):
+
+棉老爷心善，见不得不吃香菜人![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740642109">25.[8] \<pid:740642109\> 2024-01-30 16:22:26 by NATFproposal</span>
+>[jump](#pid740641573) 菠萝包星人(2024-01-30 16:19) 说: 
+>
+>棉友指的是谁啊
+
+![img](./25_5d15c32h.jpg)![img](./25_fe7d932h.jpg)![img](./25_f80491pk.jpg)
+
+之前某个群体特别爱用“你惹到我就是惹到棉花了”来营销它们冰清玉洁软弱可欺的形象
+
+----
+
+##### <span id="pid740642168">26.[4] \<pid:740642168\> 2024-01-30 16:22:39 by 爷裸奔</span>
+![img](./26_a41cbfxa.jpg) don&#39;t call that name, you know who![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740642773">27.[5] \<pid:740642773\> 2024-01-30 16:25:18 by 影响567</span>
+棉花就是冰清玉洁的纯良呀，真是棉棉又花花呀![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740643550">28.[1] \<pid:740643550\> 2024-01-30 16:28:45 by 我不会。</span>
+我就没那么多弯弯绕绕了
+
+![img](./28_c18c45sg.jpg)![img](./28_1791e6ce.jpg)
+
+----
+
+##### <span id="pid740643820">29.[0] \<pid:740643820\> 2024-01-30 16:29:45 by 哈士奇油蜡</span>
+红色高棉，骇人捏
+

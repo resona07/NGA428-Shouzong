@@ -82,3 +82,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 没过剧情的我只买过一个，是没出问题。不过也不敢下定论。
 我现在淡坑了，问问群友试试?
 
+----
+
+##### <span id="pid740643180">8.[0] \<pid:740643180\> 2024-01-30 16:26:59 by Blessed995</span>
+>[jump](#pid740635392) wp75843(2024-01-30 15:51):
+
+好的谢谢佬
+

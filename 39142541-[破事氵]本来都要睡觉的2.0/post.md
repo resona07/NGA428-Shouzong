@@ -143,3 +143,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 用仙蛆最喜欢讲的一句话：刚才开到友军了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 你怕是不知道仙蛆经常开自己人吗？
 
+----
+
+##### <span id="pid740640755">19.[1] \<pid:740640755\> 2024-01-30 16:16:16 by 猛干的小号</span>
+这下破案了
+
