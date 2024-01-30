@@ -82,3 +82,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 但跨田收棉花的能力还是有的。
 
+----
+
+##### <span id="pid740643960">13.[0] \<pid:740643960\> 2024-01-30 16:30:20 by laolaodiandian</span>
+烧2算了，瓜田罢了![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740644094">14.[0] \<pid:740644094\> 2024-01-30 16:30:57 by 梅囿仁</span>
+你把中央军，皇军和座山雕相提并论？![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+

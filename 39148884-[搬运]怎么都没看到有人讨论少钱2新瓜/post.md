@@ -54,3 +54,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740643025">8.[0] \<pid:740643025\> 2024-01-30 16:26:23 by yaoguanh</span>
 瓜版都屠版了，速来瓜版
 
+----
+
+##### <span id="pid740644597">9.[0] \<pid:740644597\> 2024-01-30 16:33:06 by 妖三六个六二零</span>
+>[jump](#pid740643025) yaoguanh(2024-01-30 16:26) 说: 
+>
+>瓜版都屠版了，速来瓜版
+
+瓜版是哪个？
+
+----
+
+##### <span id="pid740644908">10.[0] \<pid:740644908\> 2024-01-30 16:34:27 by 目遮人</span>
+>[jump](#pid740642335) COREMS(2024-01-30 16:23) 说: 
+>
+>你都说是瓜了，自然在隔壁瓜版，我们这是棉花田，不种西瓜![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+又是棉花又是西瓜，什么赛博黑奴，来点炸鸡![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
