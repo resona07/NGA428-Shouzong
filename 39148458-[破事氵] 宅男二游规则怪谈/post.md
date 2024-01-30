@@ -310,3 +310,20 @@ cy支持一下![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
 太平间有这个回复量已经很不错了
 ![img](./35_9c099cpk.jpg)
 
+----
+
+##### <span id="pid740702624">36.[1] \<pid:740702624\> 2024-01-30 21:51:27 by PersonaZzz</span>
+>[jump](#pid740655986) NATFproposal(2024-01-30 17:20):
+
+我测，这么多人![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+还有因此跑路的，应该更多了
+
+----
+
+##### <span id="pid740702819">37.[0] \<pid:740702819\> 2024-01-30 21:52:51 by 弗罗西诺内</span>
+>[jump](#pid740702624) PersonaZzz(2024-01-30 21:51) 说: 
+>我测，这么多人![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+>还有因此跑路的，应该更多了
+
+这中间的六十一人在名人堂里,明天我会弄名单出来
+

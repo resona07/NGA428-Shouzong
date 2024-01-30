@@ -175,3 +175,12 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
 那什么“搞笑坤”是吧，tmd谁懂啊，蛆宝宝连给自家起黑称也是这样改来改去![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid740702906">29.[0] \<pid:740702906\> 2024-01-30 21:53:25 by 我不会。</span>
+>[jump](#pid740701308) 蹦哒的鱼鱼(2024-01-30 21:42) 说: 
+>
+>那什么“搞笑坤”是吧，tmd谁懂啊，蛆宝宝连给自家起黑称也是这样改来改去![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+就跟他们给对家起名一样，什么biu，抽象得很，正常人理解不了。
+

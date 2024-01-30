@@ -127,3 +127,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740701502">19.[0] \<pid:740701502\> 2024-01-30 21:44:00 by OverdoseP</span>
 有没有可能，裁一半的不只是云图啊![img](./19_fcdf39vh.jpg)
 
+----
+
+##### <span id="pid740701731">20.[0] \<pid:740701731\> 2024-01-30 21:45:22 by dkas333</span>
+所以到底是啥，有没有准信儿![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -66,3 +66,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 其实是快雪粥处联合恶俗大手子净化网络联盟一起讨伐主祭的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ![img](./9_d3c9ecd2.jpg)
 
+----
+
+##### <span id="pid740702978">11.[0] \<pid:740702978\> 2024-01-30 21:53:56 by 不是，还能这样</span>
+>[jump](#pid740623370) DGVHJKCX(2024-01-30 14:56):
+
+丁真了是吧
+~~我要是没记错，他这个名字就是越佬的盒![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，帮主祭塑造开盒受害人形象的可以省省了，这货早就在玩舟人盒子了~~
+
