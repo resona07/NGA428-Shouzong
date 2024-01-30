@@ -54,3 +54,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 咸鱼之王可比二游好玩太多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)纯上瘾
 
+----
+
+##### <span id="pid740739220">7.[0] \<pid:740739220\> 2024-01-31 05:34:01 by 铸匠熔金</span>
+>[jump](#pid740738748) 血晓柳莺(2024-01-31 05:06) 说: 
+>
+>咸鱼之王可比二游好玩太多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)纯上瘾
+
+那莉莉丝系的养成也是一样啊，蜜月期究极上瘾，比意义不明的刷词条爽多了，而且其实人家设计的战斗是很有深度的。
+
