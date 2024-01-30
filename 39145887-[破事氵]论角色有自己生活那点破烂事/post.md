@@ -72,3 +72,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 能写出角色有自己生活的网文作者，个个都能从读者手上爆到米，只能说有的人没本事写，卡在那里了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740599228">11.[0] \<pid:740599228\> 2024-01-30 12:49:53 by ling泠。</span>
+ta们其实也不需要角色有自己的生活 ta们只需要一个名头 站在“围着主角转”这种低俗虾头行为的对立面就行 ![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

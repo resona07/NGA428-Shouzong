@@ -47,3 +47,26 @@ zsbd，还没有呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png
 ##### <span id="pid740574779">7.[0] \<pid:740574779\> 2024-01-30 10:59:07 by ★星の在り処☆</span>
 菠萝哥堂堂复活![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740598674">8.[2] \<pid:740598674\> 2024-01-30 12:47:12 by aisqgl</span>
+永乐菠萝哥，堂堂归来
+![img](./8_3470ab7i.gif)
+
+----
+
+##### <span id="pid740598950">9.[0] \<pid:740598950\> 2024-01-30 12:48:33 by 齐布_</span>
+菠萝哥请坐![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+一如既往233333
+
+----
+
+##### <span id="pid740599357">10.[0] \<pid:740599357\> 2024-01-30 12:50:30 by em76599</span>
+![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)楼主好眼熟，我记得好像之前总是关注米哈游有没有捐款
+现在看样子感觉是没钱了，小红书啥的都停了
+
+----
+
+##### <span id="pid740599812">11.[0] \<pid:740599812\> 2024-01-30 12:52:44 by 神圣的卡苟斯</span>
+~~你发这个是什么意思，你是不是粥批~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)哦不对，这才是混战前的日常
+

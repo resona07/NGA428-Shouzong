@@ -49,3 +49,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740598217">8.[0] \<pid:740598217\> 2024-01-30 12:44:53 by 阳光彩虹小尼马</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)可是你说的交错在被锤之前自己就不当人了啊，报应来的太快
 
+----
+
+##### <span id="pid740598529">9.[7] \<pid:740598529\> 2024-01-30 12:46:24 by lucifiniczw</span>
+交错的玩家流失除了没有涩内容，宝才策划和某些xz原因也不少，不过版本就这样，没办法。有男不玩≠全女就玩。  ![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740598629">10.[0] \<pid:740598629\> 2024-01-30 12:46:50 by 黄昏印记</span>
+如果你不服气，你可以
+
+----
+
+##### <span id="pid740599386">12.[0] \<pid:740599386\> 2024-01-30 12:50:40 by Mélusine003</span>
+上次小静谧就是因为这游戏，可不敢乱说![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740599745">13.[1] \<pid:740599745\> 2024-01-30 12:52:28 by 苍月de镇魂曲</span>
+版本T0，塔拳一体。
+
+怎么，你不福气？
+
+----
+
+##### <span id="pid740600243">14.[3] \<pid:740600243\> 2024-01-30 12:54:55 by 鸭梨果汁</span>
+>[jump](#pid740598217) 阳光彩虹小尼马(2024-01-30 12:44) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)可是你说的交错在被锤之前自己就不当人了啊，报应来的太快
+
+不好玩没人玩是一回事，下架是一回事
+

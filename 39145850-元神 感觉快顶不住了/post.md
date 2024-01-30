@@ -288,3 +288,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740596455">38.[0] \<pid:740596455\> 2024-01-30 12:36:05 by 西泠印</span>
 主战场是春节啊
 
+----
+
+##### <span id="pid740600617">39.[0] \<pid:740600617\> 2024-01-30 12:56:54 by aisqgl</span>
+社交游戏有先发优势就是NB
+
+----
+
+##### <span id="pid740601146">40.[0] \<pid:740601146\> 2024-01-30 12:59:38 by SimonDDD</span>
+我问一下啊，你们坚持元神上分的，微信每天推日报怎么办
+
+玩两把全世界都知道了，尬得要死
+
