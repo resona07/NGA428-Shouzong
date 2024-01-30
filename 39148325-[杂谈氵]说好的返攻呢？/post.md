@@ -115,3 +115,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 本mxz 表示米门的世界肯定有，但是泥潭是世界外，不归他管
 你们加油
 
+----
+
+##### <span id="pid740636257">15.[1] \<pid:740636257\> 2024-01-30 15:55:46 by 里昂人</span>
+粥批们也太恐怖了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740636770">16.[0] \<pid:740636770\> 2024-01-30 15:58:00 by 牧野不留姬</span>
+另外我也挺佩服他们的
+前俩年应该很辛苦吧，黎明前夕确实挺黑暗的
+抓住我米的失误一波带走
+什么“卧薪尝胆”“三千越甲可吞吴”![冷](https://img4.nga.178.com/ngabbs/post/smile/a2_16.png)，
+算了不说了，现在玩的少前2你们喷的更狠，总之，你们加油![冷](https://img4.nga.178.com/ngabbs/post/smile/a2_16.png)
+
