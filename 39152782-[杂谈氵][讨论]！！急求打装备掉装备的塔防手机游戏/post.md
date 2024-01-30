@@ -27,3 +27,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 发散说一点，要说养成要素的话，KR和BTD都行，而且都还挺经典的
 
+----
+
+##### <span id="pid740714052">4.[0] \<pid:740714052\> 2024-01-30 23:09:05 by szj28781</span>
+第七史诗
+打装备造装备配套装(主要玩法)
+技能点养成要素(毫无疑问)
+塔防(公会战)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -38,3 +38,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 所以大部分都是赶鸭子上架的？可这保密。。。是怕被演员泄露剧情吗？我记得好像哪家会先给台本
 
+----
+
+##### <span id="pid740713665">5.[0] \<pid:740713665\> 2024-01-30 23:06:28 by wulicm</span>
+分情况，一般会提前给你角色标签和介绍，让你方便带入，至于具体台本可能会给个demo，不一定会给原台本。一般是配音有空了就一次性配完。
+

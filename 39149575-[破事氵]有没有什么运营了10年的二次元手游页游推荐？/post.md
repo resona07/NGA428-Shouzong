@@ -304,3 +304,8 @@ pad(智龙迷城)  cc(锁链战记)  有条件去淘宝买个石头号 能爽一
 ##### <span id="pid740700040">46.[0] \<pid:740700040\> 2024-01-30 21:33:40 by shiqi1885</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)舰c水楼都nm圆寂2个了，泥潭哪个游戏能做到
 
+----
+
+##### <span id="pid740714193">47.[0] \<pid:740714193\> 2024-01-30 23:10:13 by zkhd0000</span>
+看标题进来推大碧蓝，看内容打了这段话？这么说的话pnd跟怪物弹珠算不算二游？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

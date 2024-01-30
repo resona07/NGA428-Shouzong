@@ -63,3 +63,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740712484">10.[1] \<pid:740712484\> 2024-01-30 22:58:29 by 青、橙</span>
 这俩都会给小黑子互相扣帽子，导致大家不是粥皮，就是O批。
 
+----
+
+##### <span id="pid740712887">11.[4] \<pid:740712887\> 2024-01-30 23:01:01 by 超越型莫德雷德</span>
+本质两家厨子扯头花，反正一劣势就是对家的错
+支持米粥69，我一个一般通过还爱惜头皮就不参与了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -151,3 +151,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740712643">21.[0] \<pid:740712643\> 2024-01-30 22:59:27 by 丢人玩家</span>
 名人堂？手综宗祠！
 
+----
+
+##### <span id="pid740712858">22.[0] \<pid:740712858\> 2024-01-30 23:00:50 by 帝辛子受</span>
+>[jump](#pid740712643) 丢人玩家(2024-01-30 22:59):
+
+英灵殿更合适![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740712943">23.[1] \<pid:740712943\> 2024-01-30 23:01:19 by 弗罗西诺内</span>
+>[jump](#pid740712501) 帝辛子受(2024-01-30 22:58) 说: 
+>那我这个屹立不倒的是个什么奖啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![img](./23_db2db7p.jpeg)
+去知乎找老哥然后我们进群说
+

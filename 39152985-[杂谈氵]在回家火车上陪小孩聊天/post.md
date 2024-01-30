@@ -122,3 +122,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740711506">19.[0] \<pid:740711506\> 2024-01-30 22:52:06 by 哒哒块2号机</span>
 醒醒，摆烂的资本是648![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740713467">20.[0] \<pid:740713467\> 2024-01-30 23:04:50 by 万钟0418</span>
+>[jump](#pid740710429) 肯定是假的(2024-01-30 22:45) 说: 
+>
+>米粥99，真是闹麻了编故事
+
+我就这么一说，你就这么一听，号明天给小孩哥玩，看他接不接手，原先留着个保底，正好给他抽闲云
+
