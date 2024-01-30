@@ -75,3 +75,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 虽然原文是讨论社科理论，但感觉也符合这里的问题
 ![img](./9_7c1f2c2h.jpg)
 
+----
+
+##### <span id="pid740739584">11.[2] \<pid:740739584\> 2024-01-31 05:55:23 by Lian君并没有名字</span>
+图里那位我认识，之前还经常在手综混，分享op笑话，一到“有男不玩”就跑回舟版大骂“手综魔怔人”“赛博宗教”了，太经典辣![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)  ![img](./11_d357553i.jpg)![img](./11_bb8bf43i.jpg)![img](./11_e4402f3i.jpg)  不知ta在为了冲了十几次的角色攒井时有预料到这个回旋镖吗  ![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+

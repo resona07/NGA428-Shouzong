@@ -123,3 +123,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 因此氪金根本不是为了游戏性而是换皮烧鸡。
 有些人本末倒置的把戏骗了自己还想着去骗其他人![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740739471">18.[0] \<pid:740739471\> 2024-01-31 05:49:03 by 玩他喵的</span>
+我只能说人是复杂的，有人愿意付费就说明有这个需求，你这一嘴就把所有二游用户说死了也没什么道理，说到底别人喜欢在二游里找点好玩的跟你也没关系![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+所以顾好你自己就行了，别随便代表别人![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+

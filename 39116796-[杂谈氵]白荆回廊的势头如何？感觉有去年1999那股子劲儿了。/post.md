@@ -484,3 +484,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 还有近战动不动挂机的逆天索敌范围，过长的移动cd，出场位太少仅仅只是最微不足道的一环![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740739534">54.[0] \<pid:740739534\> 2024-01-31 05:52:25 by wulicm</span>
+>[jump](#pid740069982) HooTers017(2024-01-27 12:21):
+
+  战斗是类十三机兵，十三机兵又是抄的英雄连。说是RTT没啥问题，和塔防不沾边，你说是变种的战棋都更接近一点。
+
+----
+
+##### <span id="pid740739611">55.[0] \<pid:740739611\> 2024-01-31 05:57:13 by 蝠来鸽</span>
+>[jump](#pid740174514) 桃白白菜菜(2024-01-28 00:03):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)其实是有的，我第一个号就是骂米哈游的时候被跨版追杀掉的
+
