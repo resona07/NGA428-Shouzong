@@ -273,3 +273,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 往日和和睦睦的坛友现在却一个个消失不见或者用怪异仿佛要吃人般的眼神窥视着你也是一种怪谈
 
+----
+
+##### <span id="pid740655145">32.[0] \<pid:740655145\> 2024-01-30 17:17:19 by PersonaZzz</span>
+>[jump](#pid740652402) ck正义(2024-01-30 17:06):
+
+他们已经被黑暗生物处理掉了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+还有些败类自愿沦为了黑暗生物和大地精的奴隶
+
+----
+
+##### <span id="pid740655272">33.[1] \<pid:740655272\> 2024-01-30 17:17:51 by 心海心海心</span>
+>[jump](#pid740651381) PersonaZzz(2024-01-30 17:01) 说: 
+>
+>修正了一些文笔不通顺的地方![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+>其实我本意是坛友每人都提一条规则怪谈的。
+>但是点赞和回复好少。2024年不是规则怪谈的年代了![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+
+没办法，好多活跃老哥都被噶了
+
+----
+
+##### <span id="pid740655654">34.[0] \<pid:740655654\> 2024-01-30 17:19:23 by 超越型莫德雷德</span>
+cy支持一下![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+
+----
+
+##### <span id="pid740655986">35.[0] \<pid:740655986\> 2024-01-30 17:20:42 by NATFproposal</span>
+>[jump](#pid740651381) PersonaZzz(2024-01-30 17:01) 说: 
+>
+>修正了一些文笔不通顺的地方![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+>其实我本意是坛友每人都提一条规则怪谈的。
+>但是点赞和回复好少。2024年不是规则怪谈的年代了![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+
+太平间有这个回复量已经很不错了
+![img](./35_9c099cpk.jpg)
+

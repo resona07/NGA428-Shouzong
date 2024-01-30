@@ -299,3 +299,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740651421">43.[0] \<pid:740651421\> 2024-01-30 17:01:46 by 不戴帽子先生</span>
 有没有公司倒闭游戏有版号的
 
+----
+
+##### <span id="pid740654558">44.[0] \<pid:740654558\> 2024-01-30 17:14:57 by 溪中石s</span>
+>[jump](#pid739846351) 子善α(2024-01-26 01:35) 说: 
+>
+>“来古”这个词哪里有问题![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
+
+谷x来
+

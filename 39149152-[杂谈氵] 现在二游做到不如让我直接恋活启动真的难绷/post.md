@@ -43,3 +43,49 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 换衣服啊。或者读取时只读取角色不读取服装()
 
+----
+
+##### <span id="pid740654685">6.[0] \<pid:740654685\> 2024-01-30 17:15:28 by whitewine</span>
+>[jump](#pid740649629) 韩国的虾米诺手(2024-01-30 16:54):
+
+爆内存是真的，我上次加了32g才保证不闪退的。这公司优化一坨屎。
+
+----
+
+##### <span id="pid740654794">7.[0] \<pid:740654794\> 2024-01-30 17:15:52 by Kingdomrushemmm</span>
+>[jump](#pid740654085) 理塘弦一郎(2024-01-30 17:13) 说: 
+>
+>在饰品栏删
+
+hide按键吗，游戏本体汉化的不彻底，没找到删除键![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid740655028">8.[0] \<pid:740655028\> 2024-01-30 17:16:50 by 舰これ</span>
+>[jump](#pid740652112) Kingdomrushemmm(2024-01-30 17:04):
+
+![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)选中一个饰品，然后在右边窗口里的饰品类型改成无，或者选中饰品后按键盘上的Delete也可以
+
+----
+
+##### <span id="pid740655250">9.[0] \<pid:740655250\> 2024-01-30 17:17:46 by Kingdomrushemmm</span>
+>[jump](#pid740655028) 舰これ(2024-01-30 17:16) 说: 
+>
+>![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)选中一个饰品，然后在右边窗口里的饰品类型改成无
+
+谢谢大佬![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
+
+----
+
+##### <span id="pid740655602">10.[0] \<pid:740655602\> 2024-01-30 17:19:09 by suna3377188</span>
+讲道理不如COM3D2，剧情文本量大，恋活只有干
+
+----
+
+##### <span id="pid740657099">11.[0] \<pid:740657099\> 2024-01-30 17:25:00 by 韩国的虾米诺手</span>
+>[jump](#pid740655602) suna3377188(2024-01-30 17:19) 说: 
+>
+>讲道理不如COM3D2，剧情文本量大，恋活只有干
+
+有工作室啊，跟造景一样
+

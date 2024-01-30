@@ -171,3 +171,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 一般大跌都是碎梦和龙吟天问吧，昨天咩姐带我秒伤20w![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740655408">24.[0] \<pid:740655408\> 2024-01-30 17:18:20 by 花果山上没有猴</span>
+>[jump](#pid740652866) 天剑歌(2024-01-30 17:08) 说: 
+>
+>这次逆水寒还更新了一个只有周末才出现的无敌暴龙，设定是小学生。周末才上线![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+是那个喜欢到处下战书的无敌暴龙么哈哈哈哈哈![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740655431">25.[0] \<pid:740655431\> 2024-01-30 17:18:26 by 不戴帽子先生</span>
+ai的秒伤好像随机的？刚开始咩姐打了40w其他人加起来几万，一骑绝尘，后面就慢慢下去但是全加起来也是差不多40w左右
+
+但是有些ai真的就是傻傻不动![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

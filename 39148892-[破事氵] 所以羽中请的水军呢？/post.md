@@ -149,3 +149,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740654353">21.[0] \<pid:740654353\> 2024-01-30 17:14:11 by 风--冷傲雷</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)各个地方不都是一堆赛博生命么，只是没冲的人多被强势围观了
 
+----
+
+##### <span id="pid740656476">22.[0] \<pid:740656476\> 2024-01-30 17:22:32 by aisqgl</span>
+其他社区不知道，手综的可能被顺手割了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

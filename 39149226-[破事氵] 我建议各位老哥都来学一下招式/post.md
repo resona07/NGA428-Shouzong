@@ -90,3 +90,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740654147">13.[0] \<pid:740654147\> 2024-01-30 17:13:21 by 无寿之梦</span>
 没什么招式，防御面只会有男不玩。攻击面……品屎，然后吸引蜣螂斗蜣螂![忧伤](https://img4.nga.178.com/ngabbs/post/smile/ac24.png)
 
+----
+
+##### <span id="pid740657596">14.[0] \<pid:740657596\> 2024-01-30 17:27:15 by aisqgl</span>
+但这打不了社管啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

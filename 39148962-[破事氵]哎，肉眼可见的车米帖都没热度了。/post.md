@@ -178,3 +178,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740653298">25.[0] \<pid:740653298\> 2024-01-30 17:09:53 by UID3244105</span>
 手综又不是只看哪一家，平等嘲讽所有游戏还怕没瓜吃嘛![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740655485">26.[2] \<pid:740655485\> 2024-01-30 17:18:38 by Mélusine003</span>
+>[jump](#pid740645243) NATFproposal(2024-01-30 16:35) 说: 
+>
+>![img](./10_1fcbc9ge.jpg)
+>棉花已经不装了
+>可别去替它们填线了
+
+去年手综就有龟龟和我说这话，大意就是“回你的理查舒适区无忧无虑黑米不好吗？来这儿干什么”![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+反正我哪家的乐子也是一样的看，现在回旋镖砸烂龟壳倒是都哑巴了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+米粥99，龟龟99，会社厨锁死![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

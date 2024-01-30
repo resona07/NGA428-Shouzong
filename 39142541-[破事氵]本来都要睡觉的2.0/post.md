@@ -148,3 +148,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740640755">19.[1] \<pid:740640755\> 2024-01-30 16:16:16 by 猛干的小号</span>
 这下破案了
 
+----
+
+##### <span id="pid740655841">20.[0] \<pid:740655841\> 2024-01-30 17:20:08 by 审判皇</span>
+>[jump](#pid740519913) 剑已归(2024-01-29 23:47) 说: 
+>
+>![img](./2_f9e276sg.jpg)![img](./2_7193d4sg.jpg)![img](./2_0b954dsg.jpg)
+
+奇异搞笑
+
