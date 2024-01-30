@@ -227,3 +227,9 @@ rosmontis07065
 
 之前看到过这个帖子，但是我脑子里看到ba百合就跳过了，完全忘记这个东西存在过了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740609272">31.[0] \<pid:740609272\> 2024-01-30 13:44:11 by 一剑凌尘世</span>
+![img](./31_27bbff3k.jpg)![img](./31_bb2d923k.jpg)
+42个赞，ba版果然百合畜多![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)。都是贱狗玩意。
+

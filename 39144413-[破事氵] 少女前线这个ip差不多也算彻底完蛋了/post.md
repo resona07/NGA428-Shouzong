@@ -92,3 +92,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)去深圳湾海底给老马盖别墅是吧？
 
+----
+
+##### <span id="pid740608257">14.[0] \<pid:740608257\> 2024-01-30 13:38:48 by 炎弹</span>
+崩坏三当年0.98概率诈骗和兔女郎都没死，总会有一群人愿意吃，尊重祝福
+

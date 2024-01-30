@@ -334,3 +334,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 冒险岛真的是儿时回忆
 《冒险岛:联盟的意志》很休闲放松，bgm还不错
 
+----
+
+##### <span id="pid740608281">56.[0] \<pid:740608281\> 2024-01-30 13:38:55 by 椎名游离缘</span>
+童年回忆冒险岛，bgm很耳熟
+《冒险岛:联盟的意志》现在当个小游戏空余时间消遣消遣还不错
+

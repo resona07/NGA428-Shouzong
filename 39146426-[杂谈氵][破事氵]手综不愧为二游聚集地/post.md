@@ -99,3 +99,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740599959">14.[0] \<pid:740599959\> 2024-01-30 12:53:27 by 巴基和比约恩</span>
 不是游戏饭圈化，游戏原住民只能逃到手综山区打游击，结果还要被入侵的昂撒集美割头皮吗？
 
+----
+
+##### <span id="pid740607548">15.[0] \<pid:740607548\> 2024-01-30 13:34:49 by matata2007</span>
+有男不玩![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
+
+----
+
+##### <span id="pid740609169">16.[0] \<pid:740609169\> 2024-01-30 13:43:42 by samuel27</span>
+广义上的手游的饭圈，没毛病![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

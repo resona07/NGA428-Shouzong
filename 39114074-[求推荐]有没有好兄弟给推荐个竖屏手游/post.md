@@ -476,3 +476,8 @@ Zsbd
 
 你说的这个ios应该不太方便![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)
 
+----
+
+##### <span id="pid740608609">70.[0] \<pid:740608609\> 2024-01-30 13:40:21 by lawfit</span>
+这里大佬多，想顺便问问有没有跟乖离性MA一样联机打牌的游戏？新乖离属实不对胃口，但是打牌瘾太大了![凌乱](https://img4.nga.178.com/ngabbs/post/smile/ac6.png)
+

@@ -239,3 +239,46 @@ xxn街头互扯头发   o
 迟到了3个月的爆发  删角色时就该当场退游 
 叠纸以为留下的都是杨萎不需要柰子呢 早干啥去了 ![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740606845">43.[0] \<pid:740606845\> 2024-01-30 13:31:08 by 热die鱼</span>
+>[jump](#pid740569889) 养只鱼(2024-01-30 10:37) 说: 
+>
+>这个导火索我感觉来是因为之前德雷雅皮肤不好放大然后侧乳也不好看还是太小开始的吧。
+>我还在每日扫荡，之前瑟的皮肤就买了月卡。
+>这游戏反正我印象中最搞的是开服几个月微博办公也是对线了一波玩家然后再也不敢了，再就是删了业师补偿辣鸡。
+>我玩纯粹因为喜欢这个剧情，觉得还行，推荐我还是那句话?有男不玩！
+
+是没有补偿，不是补偿辣鸡![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+那点蚊子腿补偿是和谐的补偿，下架是一点补偿没有的，
+
+----
+
+##### <span id="pid740606959">44.[0] \<pid:740606959\> 2024-01-30 13:31:43 by lawfit</span>
+从删角色开始我就把号挂闲鱼直接润了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740607043">45.[1] \<pid:740607043\> 2024-01-30 13:32:08 by gtznnz</span>
+>[jump](#pid740571071) 曙光丶0107(2024-01-30 10:42):
+
+之前在某咔上看本子，评论区居然有xxn骂男凝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740607659">46.[1] \<pid:740607659\> 2024-01-30 13:35:24 by 热die鱼</span>
+>[jump](#pid740607043) gtznnz(2024-01-30 13:32) 说: 
+>
+>之前在某咔上看本子，评论区居然有xxn骂男凝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+热知识，哔咔现在热度高的都是女性向同人志了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740608765">47.[1] \<pid:740608765\> 2024-01-30 13:41:20 by 曙光丶0107</span>
+>[jump](#pid740607043) gtznnz(2024-01-30 13:32) 说: 
+>
+>之前在某咔上看本子，评论区居然有xxn骂男凝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我错了，xxn在哪都是xxn。狗改不了吃屎![认真](https://img4.nga.178.com/ngabbs/post/smile/a2_48.png)
+

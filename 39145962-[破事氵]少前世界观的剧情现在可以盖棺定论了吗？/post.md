@@ -53,3 +53,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 刚看到季风乐队的说法给我看笑了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 钢铁与血的故事不会写了那就晾着吧，byd怎么还整上音趴了
 
+----
+
+##### <span id="pid740608810">5.[0] \<pid:740608810\> 2024-01-30 13:41:34 by 泡泡猪酱</span>
+之前不好说，但是现在看来，烧钱的世界观大概可以总结为下：
+黄毛最高！星星万岁！![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

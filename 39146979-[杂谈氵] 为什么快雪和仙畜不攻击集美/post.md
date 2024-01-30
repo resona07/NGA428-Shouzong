@@ -158,3 +158,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我都看到好几次拿这事当成粥人攻击同人作者的证据，痛骂粥人保护二创作者都是假的
 现在就闭口不提了，快雪这档子罪就没了，挺好笑的
 
+----
+
+##### <span id="pid740606851">27.[3] \<pid:740606851\> 2024-01-30 13:31:10 by 光影的幻想</span>
+其实还是有的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+不过就需要自己去快雪吧搜索关键字了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+就是得忍着点nt&amp;xz言论才能看到![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+温泉瓜和将老师等人被冲的时候快雪也挂过微博xxn![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740607583">28.[5] \<pid:740607583\> 2024-01-30 13:35:01 by 叶楼坛浩</span>
+取坛用坛，两张图
+一张用来说明人员成分
+另一张说明4个贴吧共享封禁名单
+
+集美才是统治阶级
+
+----
+
+##### <span id="pid740607841">29.[2] \<pid:740607841\> 2024-01-30 13:36:30 by Ninesky</span>
+龟仙人白叫的咯？
+
+----
+
+##### <span id="pid740608040">30.[1] \<pid:740608040\> 2024-01-30 13:37:32 by 贝斯提尔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)仙蛆头子教的好，教小仙蛆不要参加性别战争
+
