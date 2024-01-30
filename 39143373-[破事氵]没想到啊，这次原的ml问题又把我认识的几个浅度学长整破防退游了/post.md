@@ -265,3 +265,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./44_fbb9ffgh.jpg)
 
+----
+
+##### <span id="pid740740294">45.[0] \<pid:740740294\> 2024-01-31 06:33:27 by 咕咕咕估</span>
+侏儒一出场就注定其他ml角色不会有说法了 ![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

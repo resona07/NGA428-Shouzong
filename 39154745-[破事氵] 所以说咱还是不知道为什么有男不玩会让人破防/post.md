@@ -80,3 +80,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740739584">11.[2] \<pid:740739584\> 2024-01-31 05:55:23 by Lian君并没有名字</span>
 图里那位我认识，之前还经常在手综混，分享op笑话，一到“有男不玩”就跑回舟版大骂“手综魔怔人”“赛博宗教”了，太经典辣![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)  ![img](./11_d357553i.jpg)![img](./11_bb8bf43i.jpg)![img](./11_e4402f3i.jpg)  不知ta在为了冲了十几次的角色攒井时有预料到这个回旋镖吗  ![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
 
+----
+
+##### <span id="pid740740243">12.[0] \<pid:740740243\> 2024-01-31 06:31:24 by 在原铁崩</span>
+![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)钱德拉.鲍斯的含金量。非暴力不合作适合拿来扯大旗，真成事还得是实干派。
+
+----
+
+##### <span id="pid740740404">13.[0] \<pid:740740404\> 2024-01-31 06:38:23 by 我想静静2023</span>
+这就和有人网上说我不结婚不给彩礼，网上xnn立马破防一样，她们是女权？呵呵，真正的女权是平权，她们要的只是特权，要的是躺着你身上吸血还骂你恶心恶臭的优越感。
+二游除了乙游谁谁不是男玩家养着在，各种制作都要花钱的，你有男不玩不付费，她们能吸谁
+

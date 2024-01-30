@@ -151,3 +151,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 单纯为了玩女人何必上手机？
 手游一个角色上千块，还不是只能看着
 
+----
+
+##### <span id="pid740740222">22.[0] \<pid:740740222\> 2024-01-31 06:30:17 by mianmi123</span>
+你朋友直接代表了所有人是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+你这还不如你朋友呢
+就别笑话人家了
+
