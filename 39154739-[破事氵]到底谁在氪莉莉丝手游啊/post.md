@@ -25,3 +25,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这游戏的讨论度是其他游戏的零头 流水却高过其他几个显眼包![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
 
+----
+
+##### <span id="pid740737760">3.[1] \<pid:740737760\> 2024-01-31 04:16:30 by 奏雾休止晴</span>
+说到底 二游的爆米能力也就那样 钱少事多声音大![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 莉莉丝游戏雇些客服服务好几个老板就好了 无氪零氪只是大佬们的游戏内容
+
+----
+
+##### <span id="pid740737813">4.[0] \<pid:740737813\> 2024-01-31 04:19:13 by 磨tehrun姆穴</span>
+>[jump](#pid740737760) 奏雾休止晴(2024-01-31 04:16) 说: 
+>
+>说到底 二游的爆米能力也就那样 钱少事多声音大![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 莉莉丝游戏雇些客服服务好几个老板就好了 无氪零氪只是大佬们的游戏内容
+
+还行 比起其他魔灵like pvp要素没那么多
+闪卡获取途径也不难
+
