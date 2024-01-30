@@ -65,3 +65,27 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 看了眼内容，保湿霜、爽肤水也不是什么太“女性”的东西吧。~~男性不用护肤品也是种规训~~
 但价格真贵啊，特别是对我一个日用品买试用装的人来说。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740562686">11.[1] \<pid:740562686\> 2024-01-30 10:03:21 by 丶款冬丶</span>
+>[jump](#pid740560905) 二刺螈之王师傅(2024-01-30 09:53):
+
+科颜氏碰都不碰的，很多男的有一个不错的洗面奶就差不多了
+~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)欧莱雅和资生堂的洗面奶几十块钱就搞定了~~
+
+----
+
+##### <span id="pid740563020">12.[0] \<pid:740563020\> 2024-01-30 10:05:02 by 善恶天平</span>
+干脆联动情趣用品吧，最好是女用的，直接把女性市场开拓到极致
+
+----
+
+##### <span id="pid740563604">13.[0] \<pid:740563604\> 2024-01-30 10:07:47 by dtvjde</span>
+>[jump](#pid740554422) 焚心绚华绘(2024-01-30 09:18) 说: 
+>
+>你是？![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)![img](./6_3a7d32sg.jpg)
+
+联动？“其他游戏都有”
+高品质？“其他手游可没有”
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

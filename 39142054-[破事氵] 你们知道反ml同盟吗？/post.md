@@ -340,3 +340,14 @@ https://memeprod.sgp1.digitaloceanspaces.com/user-template/c3f92e176f14300fe64e7
 
 之前9和57不就参战过![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740562326">51.[3] \<pid:740562326\> 2024-01-30 10:01:28 by Guidetowel-MK4</span>
+姐妹多的游戏，再怎么死敌，
+都可以为了反男性向内容站在一起。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+包括但不限于大部分《国产一般向》
+
+这种游戏的结晶圈子，本质上是女玩家牵着的一群狗，
+只要主人愿意拉着，狗其实就咬不起来。
+

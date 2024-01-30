@@ -57,3 +57,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740557557">9.[0] \<pid:740557557\> 2024-01-30 09:36:15 by coconautlau</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)放弃二游，退回回合制舒适圈，挂着机看潭友高论，岂不美哉
 
+----
+
+##### <span id="pid740564783">10.[0] \<pid:740564783\> 2024-01-30 10:13:15 by anda2200</span>
+还得是逆水寒，最适合上班族的游戏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

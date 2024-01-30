@@ -229,3 +229,36 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 哥们儿你受苦了  看了这么多污秽之物![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740562105">27.[0] \<pid:740562105\> 2024-01-30 10:00:23 by ZX_John</span>
+建议i发专版  我想看龟龟们破防![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740562362">28.[0] \<pid:740562362\> 2024-01-30 10:01:39 by 正中小杰尼</span>
+我又想起来云图在夜里加班下调关卡难度了，只能说自己作的![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740562609">29.[0] \<pid:740562609\> 2024-01-30 10:02:58 by 羽羽羽羽翼</span>
+追放是一款十足的好游戏
+即使我不玩都能感受到快乐
+
+----
+
+##### <span id="pid740562618">30.[0] \<pid:740562618\> 2024-01-30 10:03:01 by sz233000</span>
+当年下洞就是一打一下午，攻略都要反复看，不知道怎么坚持下来的![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740563053">31.[0] \<pid:740563053\> 2024-01-30 10:05:10 by dferxxj</span>
+除非数值砍到那垃圾auto也能过关，不然没意义，还是留不住人
+
+----
+
+##### <span id="pid740563107">32.[0] \<pid:740563107\> 2024-01-30 10:05:23 by 渣渣非洲提督</span>
+>[jump](#pid740479810) ジャガイモの花茶(2024-01-29 19:04):
+
+但是洛克人是真的比追放好玩啊(不是)
+

@@ -60,3 +60,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740561980">10.[0] \<pid:740561980\> 2024-01-30 09:59:43 by 老憨痞了</span>
 <span style="font-size:150%;line-height:183%">[size=150%][size=150%][size=150%][size=150%]<b><span class="red">有男不玩！</span></b></span>[/size][/size][/size][/size]
 
+----
+
+##### <span id="pid740563676">11.[0] \<pid:740563676\> 2024-01-30 10:08:05 by 岩之柱</span>
+语出惊人:有男不玩诗人通过复读精妙话语瓦解敌人意志，在其攻击检定和豁免检定结果里，额外减去一个2d8骰![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)[s:~~~~
+
