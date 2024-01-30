@@ -87,3 +87,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740699273">15.[0] \<pid:740699273\> 2024-01-30 21:28:41 by 绝顶一览</span>
 赛博柬埔寨欢迎你，这边是被红色高棉屠的头皮一地的手综
 
+----
+
+##### <span id="pid740700569">16.[2] \<pid:740700569\> 2024-01-30 21:37:18 by 我不会。</span>
+>[jump](#pid740695448) duobaan007(2024-01-30 21:03) 说: 
+>
+>[url](https://zhuanlan.zhihu.com/p/680615867)  有你想要的汇总
+
+写得真好，孜孜不倦地开贴声讨，就是想要个公平而已，这些想当人上人的是真的。。。![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+----
+
+##### <span id="pid740701070">17.[0] \<pid:740701070\> 2024-01-30 21:41:01 by 哈士奇油蜡</span>
+![img](./17_2bd53brk.jpg)
+

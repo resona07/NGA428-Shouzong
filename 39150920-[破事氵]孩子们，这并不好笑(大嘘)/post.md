@@ -168,3 +168,10 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740698244">27.[1] \<pid:740698244\> 2024-01-30 21:21:58 by Alice_Carroll</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)搞笑坤→funny chicken
 
+----
+
+##### <span id="pid740701308">28.[0] \<pid:740701308\> 2024-01-30 21:42:46 by 蹦哒的鱼鱼</span>
+>[jump](#pid740689856) 我不会。(2024-01-30 20:28):
+
+那什么“搞笑坤”是吧，tmd谁懂啊，蛆宝宝连给自家起黑称也是这样改来改去![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+

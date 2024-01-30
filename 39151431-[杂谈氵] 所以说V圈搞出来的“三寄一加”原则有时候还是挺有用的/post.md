@@ -184,3 +184,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740699436">29.[0] \<pid:740699436\> 2024-01-30 21:29:43 by lyk6666</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这我记得最后变成严于律人，宽以待己
 
+----
+
+##### <span id="pid740700215">30.[0] \<pid:740700215\> 2024-01-30 21:34:48 by 仓元上</span>
+没有人是没有弱点的，这口号最后只会回旋镖![img](./2_3283bd31.png)
+
