@@ -147,3 +147,10 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740693603">24.[0] \<pid:740693603\> 2024-01-30 20:51:18 by wulicm</span>
 说FC的时候，我第一个想到的是12team的天国的FC，但想想他都几百年没露面了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740696774">25.[0] \<pid:740696774\> 2024-01-30 21:12:21 by warland</span>
+>[jump](#pid740689856) 我不会。(2024-01-30 20:28):
+
+草，还真可能是
+

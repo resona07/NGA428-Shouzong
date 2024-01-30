@@ -13,3 +13,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 但是还好设定里武器人是可以复活的![叹气](https://img4.nga.178.com/ngabbs/post/smile/)
 希望藤本树能写好大小姐和黑蛆人的盘肠大战吧，别来祸害我们可怜的武器人了![别急](https://img4.nga.178.com/ngabbs/post/smile/)![img](./0_1674fetm.jpg)
 
+----
+
+##### <span id="pid740695127">1.[7] \<pid:740695127\> 2024-01-30 21:01:27 by Mélusine003</span>
+最切题的一集。
+![img](./2_11c033i8.jpg)
+
+----
+
+##### <span id="pid740696962">2.[0] \<pid:740696962\> 2024-01-30 21:13:32 by 寅焦梁丙侯兰</span>
+>[jump](#pid740695127) Mélusine003(2024-01-30 21:01) 说: 
+>最切题的一集。
+>![img](./2_11c033i8.jpg)
+
+you know who 来了
+

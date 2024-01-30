@@ -45,3 +45,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 除了某14的5.x版本大数字爆屎山外，确实是数字越大越好，只要别逼我氪![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740695477">7.[0] \<pid:740695477\> 2024-01-30 21:03:54 by 旋律丨</span>
+看见京为单位，我还以为是暗黑
+
+----
+
+##### <span id="pid740695792">8.[0] \<pid:740695792\> 2024-01-30 21:05:58 by asfgshrth</span>
+烙痕搭配好，猴出来的伤害高的吓人，我也干出过一亿的大数字![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
