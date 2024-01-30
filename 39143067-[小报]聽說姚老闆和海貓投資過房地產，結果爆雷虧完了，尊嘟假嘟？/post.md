@@ -140,3 +140,13 @@ ip属地还是新加坡我焯，这是真人在新加坡，还是特地挂个梯
 
 至于他们有没有投房地产，投了什么，我反正不知道，但是这种小道消息流传出来很正常
 
+----
+
+##### <span id="pid740614524">23.[0] \<pid:740614524\> 2024-01-30 14:11:26 by Mélusine003</span>
+来个海虎高手翻译翻译![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740615280">24.[0] \<pid:740615280\> 2024-01-30 14:15:27 by 汐汐漓漓</span>
+我超，ip新加坡，不得不信了
+

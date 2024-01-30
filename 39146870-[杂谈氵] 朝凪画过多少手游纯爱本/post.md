@@ -279,3 +279,66 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740612183">45.[0] \<pid:740612183\> 2024-01-30 13:59:14 by 佩韦</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)说真的，这种人就特别像有些科普up主，看着引经据典侃侃而谈，貌似很有道理，直到他评论到你熟悉的领域。
 
+----
+
+##### <span id="pid740612384">46.[0] \<pid:740612384\> 2024-01-30 14:00:18 by 小青年还有救吗</span>
+复活贴锁了？
+
+----
+
+##### <span id="pid740612539">47.[2] \<pid:740612539\> 2024-01-30 14:01:05 by bvs0110</span>
+我印象最深这画师的牛头人本是他的地错本，字面意义上的牛头人含量爆表![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740612794">48.[0] \<pid:740612794\> 2024-01-30 14:02:23 by 奸奇至尊巫师</span>
+>[jump](#pid740612183) 佩韦(2024-01-30 13:59):
+
+nga也有自己的孟德尔是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740612951">49.[0] \<pid:740612951\> 2024-01-30 14:03:17 by nextGenerationBell</span>
+>[jump](#pid740612384) 小青年还有救吗(2024-01-30 14:00):
+
+我刚把这个帖子里的问题问了他，就锁了，也不知道是恰好赶上bw发威了，还是钢盆团队自己发现出糗了跑路了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740613297">50.[0] \<pid:740613297\> 2024-01-30 14:05:00 by 小青年还有救吗</span>
+>[jump](#pid740612951) nextGenerationBell(2024-01-30 14:03) 说: 
+>
+>我刚把这个帖子里的问题问了他，就锁了，也不知道是恰好赶上bw发威了，还是钢盆团队自己发现出糗了跑路了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+瓜版有个贴也锁了
+
+----
+
+##### <span id="pid740613547">51.[0] \<pid:740613547\> 2024-01-30 14:06:25 by nextGenerationBell</span>
+>[jump](#pid740613297) 小青年还有救吗(2024-01-30 14:05):
+
+他就是先在瓜版复活的，把昨天手综发的一个韩国原神arca社管证据又水了一遍
+
+----
+
+##### <span id="pid740613935">52.[0] \<pid:740613935\> 2024-01-30 14:08:22 by 扣扣扣扣子</span>
+朝凪那本把学生当木珠奏完炒炒完奏的，纯爱？疯了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740614245">53.[0] \<pid:740614245\> 2024-01-30 14:09:55 by lawliet2007</span>
+>[jump](#pid740604386) Tris_T(2024-01-30 13:17) 说: 
+>
+>从某种意义上来讲，朝凪的本子全部可以说是纯爱本，除去我记得确实是有一本委员长是确实有苦主的之外，其他其实也没ntr要素，朝凪甚至画过一本雌小鬼妹妹催眠尼特哥哥就为了被哥哥爆炒的，你说纯爱不纯爱![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+那哥哥是个前途一片光明的精英，被雌小鬼妹妹催眠毁了一生好吧
+
+----
+
+##### <span id="pid740615471">54.[0] \<pid:740615471\> 2024-01-30 14:16:20 by 魔域真主</span>
+>[jump](#pid740613935) 扣扣扣扣子(2024-01-30 14:08) 说: 
+>
+>朝凪那本把学生当木珠奏完炒炒完奏的，纯爱？疯了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+揍你怎么就知道不是情趣呢？你问过当事人了吗![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

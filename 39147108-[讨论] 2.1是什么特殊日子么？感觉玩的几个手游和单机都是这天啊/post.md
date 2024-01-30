@@ -147,3 +147,43 @@ relink大玩特玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740611490">22.[0] \<pid:740611490\> 2024-01-30 13:55:40 by Areasic</span>
 想玩relink![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid740612552">23.[0] \<pid:740612552\> 2024-01-30 14:01:09 by wwwwww931121</span>
+>[jump](#pid740611381) 玩他喵的(2024-01-30 13:55) 说: 
+>
+>其实周二周四这两个都是手游更新/放料的节点
+
+本来就是今天更的有啥？像碧蓝提前更能掏一波玩家的钱包，大眼就不是很聪明，不仅周四和其他厂去卷，昨天发动态都是吃尾气![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740613067">24.[0] \<pid:740613067\> 2024-01-30 14:03:50 by JonathanJoestar</span>
+周四更新感觉是ccq带来的传统？
+
+我记得9c的时候魔兽世界好像就是周四更新，后来改成周二了，要么是记反了？
+
+周二维护应该是电视台的老传统了
+
+我记得小时候礼拜二的下午电视台都没信号
+
+----
+
+##### <span id="pid740613875">25.[3] \<pid:740613875\> 2024-01-30 14:08:05 by hoooobo</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)gbf前段时间不是宣布联动两位重量级，怎么没人提了
+
+----
+
+##### <span id="pid740614021">26.[0] \<pid:740614021\> 2024-01-30 14:08:47 by 神圣的卡苟斯</span>
+你不会想让人2.8大年二十九还加班吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740614302">27.[0] \<pid:740614302\> 2024-01-30 14:10:13 by Herminium</span>
+古龙群侠还是很期待的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740614437">28.[0] \<pid:740614437\> 2024-01-30 14:10:56 by 司马忍</span>
+拉了玩WOW的兄弟，打算一起Rlink 启动！
+

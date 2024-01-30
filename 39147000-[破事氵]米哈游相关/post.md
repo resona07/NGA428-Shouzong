@@ -228,3 +228,24 @@ dad是啥啊？
 
 不到一小时(指正)
 
+----
+
+##### <span id="pid740612618">30.[0] \<pid:740612618\> 2024-01-30 14:01:27 by gouria</span>
+>[jump](#pid740609646) kareemjabbar(2024-01-30 13:46) 说: 
+>
+>棉花比米衛兵還恨鋼盆
+>這更能證明鋼盆的含金量
+>能夠被米鷹社管聯手攻擊的人可不多呢
+
+含金量就算了吧
+也不知道他是说错作者了还是没看过本子![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+还是我记忆错乱记错了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+![img](./30_c6eb72fl.jpg)
+
+----
+
+##### <span id="pid740614243">31.[0] \<pid:740614243\> 2024-01-30 14:09:55 by gouria</span>
+![img](./31_3d7e0aqc.jpg)![img](./31_4eae3fxe.jpg)![img](./31_3d2ad3rc.jpg)![img](./31_bb33dcuw.jpg)![img](./31_1d858fsg.jpg)![img](./31_0525fcxm.jpg)![img](./31_6079ffsg.jpg)
+补充一下钢盆相关  
+编辑：有缺的图锁之前没截，有截的可以下面补充一下
+

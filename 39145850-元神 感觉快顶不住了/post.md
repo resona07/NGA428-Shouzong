@@ -327,3 +327,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 老马不把自家的游戏部杀个人头滚滚，基本以后别想出爆款了。![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid740613633">45.[0] \<pid:740613633\> 2024-01-30 14:06:52 by lleevvin</span>
+烧给羽中10亿
+烧给元梦14亿
+全一场空
+这24亿tx要是烧给单机，单机早起来了
+
+----
+
+##### <span id="pid740613926">46.[0] \<pid:740613926\> 2024-01-30 14:08:19 by MarikoShinoda</span>
+>[jump](#pid740613633) lleevvin(2024-01-30 14:06) 说: 
+>
+>烧给羽中10亿
+>烧给元梦14亿
+>全一场空
+>这24亿tx要是烧给单机，单机早起来了
+
+烧给白荆多少亿？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

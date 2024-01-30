@@ -748,3 +748,49 @@ Celestite 只有在下载游戏和定位游戏时会修改path，下载游戏时
 对 提交这个日志文件
 我才能分析为什么闪退
 
+----
+
+##### <span id="pid740481787">106.[0] \<pid:740481787\> 2024-01-29 19:16:09 by cbd777</span>
+>[jump](#pid740445740) Switch46(2024-01-29 16:16) 说: 
+>
+>对 提交这个日志文件
+>我才能分析为什么闪退
+
+特别长，我贴这合适么？还是贴出来吧，感谢诊断
+
+[11:14:54.4200814] [THREAD-#1/INFO] App: Preparing for Avalonia env
+[11:14:54.4563078] [THREAD-#1/INFO] App: Avalonia is loaded
+[11:15:07.9217417] [THREAD-#1/FATAL] App: 
+System.NullReferenceException: Object reference not set to an instance of an object.
+   at Celestite.Utils.ConfigUtils.&lt;&gt;c.&lt;.cctor&gt;b__14_0(Object currentUserInfo, EventArgs _) + 0x45
+   at Celestite.Network.DmmGamePlayerApiHelper.&lt;GetUserInfo&gt;d__24.MoveNext() + 0x23d
+--- End of stack trace from previous location ---
+   at System.Runtime.ExceptionServices.ExceptionDispatchInfo.Throw() + 0x20
+   at Cysharp.Threading.Tasks.UniTaskCompletionSourceCore`1.GetResult(Int16) + 0xca
+   at Cysharp.Threading.Tasks.CompilerServices.AsyncUniTask`2.GetResult(Int16) + 0x2e
+   at Celestite.ViewModels.DefaultVM.LoginPageViewModel.&lt;ProcessUser&gt;d__11.MoveNext() + 0x132
+--- End of stack trace from previous location ---
+   at System.Runtime.ExceptionServices.ExceptionDispatchInfo.Throw() + 0x20
+   at Cysharp.Threading.Tasks.CompilerServices.AsyncUniTask`1.GetResult(Int16) + 0xd2
+   at Celestite.ViewModels.DefaultVM.LoginPageViewModel.&lt;ShowDefaultLoginButton&gt;d__14.MoveNext() + 0x340
+--- End of stack trace from previous location ---
+   at System.Runtime.ExceptionServices.ExceptionDispatchInfo.Throw() + 0x20
+   at System.Runtime.CompilerServices.TaskAwaiter.ThrowForNonSuccess(Task) + 0xb2
+   at System.Runtime.CompilerServices.TaskAwaiter.HandleNonSuccessAndDebuggerNotification(Task, ConfigureAwaitOptions) + 0x4b
+   at CommunityToolkit.Mvvm.Input.AsyncRelayCommand.&lt;AwaitAndThrowIfFailed&gt;d__40.MoveNext() + 0x94
+--- End of stack trace from previous location ---
+   at System.Runtime.ExceptionServices.ExceptionDispatchInfo.Throw() + 0x20
+   at System.Threading.Tasks.Task.&lt;&gt;c.&lt;ThrowAsync&gt;b__128_0(Object state) + 0x28
+   at Avalonia.Threading.SendOrPostCallbackDispatcherOperation.InvokeCore() + 0x18a
+   at Avalonia.Threading.DispatcherOperation.Execute() + 0x73
+   at Avalonia.Threading.Dispatcher.ExecuteJob(DispatcherOperation) + 0x5d
+   at Avalonia.Threading.Dispatcher.ExecuteJobsCore(Boolean) + 0xa4
+   at Avalonia.Threading.Dispatcher.Signaled() + 0x3e
+   at Avalonia.Win32.Win32Platform.WndProc(IntPtr hWnd, UInt32 msg, IntPtr wParam, IntPtr lParam) + 0x58
+   at Celestite.Desktop!&lt;BaseAddress&gt;+0x1471a9a
+
+----
+
+##### <span id="pid740614727">107.[0] \<pid:740614727\> 2024-01-30 14:12:25 by 棟方愛海</span>
+大佬，不想重新下载游戏了，所以就继续用1.9，但是每次打开都会跳更新公告，有办法关掉吗![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+

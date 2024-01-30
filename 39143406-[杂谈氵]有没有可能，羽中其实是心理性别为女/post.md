@@ -286,3 +286,8 @@ mtf羽中与姚老板的恋爱物语，连载开始！![goodjob](https://img4.ng
 ##### <span id="pid740612162">43.[0] \<pid:740612162\> 2024-01-30 13:59:08 by Kneegrows</span>
 一个信奉极端女拳的男的，抽象
 
+----
+
+##### <span id="pid740612390">44.[0] \<pid:740612390\> 2024-01-30 14:00:20 by 私はバカだから</span>
+奻中![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+

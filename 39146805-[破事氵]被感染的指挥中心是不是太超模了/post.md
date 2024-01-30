@@ -106,3 +106,16 @@ zimba！！！
 自爆感染人纯纯玩具，也就战役里能拿来整活
 如果是毛子那个感染基地还有点乐子，小腿一伸四处跑，还能挂虫子，可来劲了
 
+----
+
+##### <span id="pid740612358">15.[0] \<pid:740612358\> 2024-01-30 14:00:13 by QUSIWQVT</span>
+>[jump](#pid740604288) 飞雪小狂(2024-01-30 13:17):
+
+确实，虽然那时候演示片里面z的优势就是单位巨多![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+十分怀念初版演示中全盛时期妈妈船的时滞领域、净化光束和黑洞![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740613645">16.[0] \<pid:740613645\> 2024-01-30 14:06:55 by emiyacynthia</span>
+侦测到在途的聚变打击![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -81,3 +81,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740612260">8.[0] \<pid:740612260\> 2024-01-30 13:59:38 by Belfa</span>
 听说今天会有大量公关下场，有意思![奸笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740614355">9.[0] \<pid:740614355\> 2024-01-30 14:10:31 by OMO猫</span>
+你问别人，别人说啥你都信吗，别人说垃圾，我说是神作，你信谁。舆论环境已经烂了，要么遵从内心，要么随大流，没啥评判的意义了
+
