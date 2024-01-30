@@ -153,3 +153,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 除了色色之外 卡顿 渲染 手感差问题一应俱全 而且低配电脑到某些关卡会卡到重启 这游戏配置要求比OW都高
 
+----
+
+##### <span id="pid740583038">22.[0] \<pid:740583038\> 2024-01-30 11:33:43 by 拖出去喂喵</span>
+玩游戏可能不管，但之前看新闻有个大聪明拿通缉犯身份证去上网的，直接被找上网吧了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740584045">23.[0] \<pid:740584045\> 2024-01-30 11:37:55 by chun1674</span>
+![img](./23_f832e367.png)不是，没经历过绿坝时代的防沉迷吗，那时候不也是网上找个身份证就填上去
+

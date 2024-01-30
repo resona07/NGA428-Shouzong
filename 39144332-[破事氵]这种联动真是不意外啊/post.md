@@ -121,3 +121,38 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740582277">17.[0] \<pid:740582277\> 2024-01-30 11:30:42 by StrayEgo</span>
 ![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
 
+----
+
+##### <span id="pid740583991">18.[0] \<pid:740583991\> 2024-01-30 11:37:40 by 中二病患者MKII</span>
+>[jump](#pid740579848) 海豹嘴里的咸鱼(2024-01-30 11:20):
+
+o联动的也是科颜氏。说明上次联动效果应该不错。
+
+----
+
+##### <span id="pid740584555">19.[0] \<pid:740584555\> 2024-01-30 11:40:11 by FeliciaStacy</span>
+这俩摆一起联动真的没有人感觉滑稽吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)相当于你把你死了的朋友复活成怪兽然后又弄死了替你背锅，不过一想到是轨子倒也正常
+
+----
+
+##### <span id="pid740584789">20.[0] \<pid:740584789\> 2024-01-30 11:41:09 by wmysh1627</span>
+米桑可能真觉得水龙很出圈![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid740584945">21.[0] \<pid:740584945\> 2024-01-30 11:41:52 by akihanami</span>
+>[jump](#pid740553706) 墨缱绻(2024-01-30 09:14) 说: 
+>
+>这不让散兵连动个震动棒？一边震动一边语音“就凭你也配直视我”，xxn们肯定买疯了
+
+散兵不是无稽之机吗，人都不是，哪来的棒状物?![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740585564">22.[0] \<pid:740585564\> 2024-01-30 11:44:26 by StrayEgo</span>
+>[jump](#pid740584789) wmysh1627(2024-01-30 11:41) 说: 
+>
+>米桑可能真觉得水龙很出圈![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+出不出圈毕竟当初那么大排面宣发出去了吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就算没出圈也得硬着头皮拉出来继续当排面啊![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
+

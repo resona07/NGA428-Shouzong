@@ -65,3 +65,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740569020">8.[1] \<pid:740569020\> 2024-01-30 10:33:42 by kokoro331</span>
 只要&amp;#128032;中和猩猩姐还在，一切都会好起来的![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740584131">9.[4] \<pid:740584131\> 2024-01-30 11:38:19 by 那大学领导我必淦你</span>
+补一张结晶群的截图![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+![img](./9_9284fap3.jpg)
+
+----
+
+##### <span id="pid740584549">10.[0] \<pid:740584549\> 2024-01-30 11:40:10 by 安塞腰鼓对</span>
+反正牛头人标签永远撕不掉了，羽中还是专心开发绿帽癖的市场吧![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+没想到2024年了还有比对魔忍手游还牛的游戏
+
+----
+
+##### <span id="pid740585119">11.[1] \<pid:740585119\> 2024-01-30 11:42:29 by 丽风</span>
+事到如今还是别改了，我只想看到做了两年原汁原味的剧情，说不定还能找到新客户群体，反正改了也是死![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740585259">13.[0] \<pid:740585259\> 2024-01-30 11:43:02 by 孩子们我没肘</span>
+>[jump](#pid740568102) dfoproject(2024-01-30 10:29) 说: 
+>
+>我看羽中怕是要被抓去企鹅岛挖地基了
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)去深圳湾海底给老马盖别墅是吧？
+

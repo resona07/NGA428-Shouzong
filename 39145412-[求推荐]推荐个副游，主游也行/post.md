@@ -14,3 +14,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740582098">1.[0] \<pid:740582098\> 2024-01-30 11:29:56 by 半久里</span>
 火影OL![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740584498">2.[0] \<pid:740584498\> 2024-01-30 11:39:59 by xyc1201</span>
+太悠闲是吧
+
+时空猫 请![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

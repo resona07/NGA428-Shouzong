@@ -122,3 +122,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 皇军认证啊，那没事了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740585634">17.[0] \<pid:740585634\> 2024-01-30 11:44:41 by 爱因斯坦E-46</span>
+>[jump](#pid740520324) nextGenerationBell(2024-01-29 23:50) 说: 
+>
+>呃，所以米线山不是仙组织内的？独立自串子？
+>
+>米线山已经被开了？仙内部没事儿还会互相开着玩交流感情？![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+
+米线三串的时间比原的出来的时间都长……
+

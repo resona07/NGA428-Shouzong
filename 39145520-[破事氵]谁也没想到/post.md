@@ -43,3 +43,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 人家假意逢迎也是会积攒怒气的
 狗不听话了你也要来劲 控制住脾气那就不是集美了
 
+----
+
+##### <span id="pid740584373">7.[4] \<pid:740584373\> 2024-01-30 11:39:24 by aaaa5230</span>
+毕竟是以远不及原的体量能时不时干出比原还畜生的高贵群体呢
+
+----
+
+##### <span id="pid740584642">8.[1] \<pid:740584642\> 2024-01-30 11:40:34 by 雨后池上</span>
+再见了朋友，我会拿你的血沾馒头的，不然浪费了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740584990">9.[1] \<pid:740584990\> 2024-01-30 11:41:59 by 一曲浮生</span>
+>[jump](#pid740576892) dandanlong(2024-01-30 11:08) 说: 
+>
+>第一，你这贴快没了吧
+>
+>第二，问题不在于BW发癫，而是BW发完颠后还有那么多“纯良”粥U帮忙站台，呵呵
+
+都是手综的错![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![img](./9_ad758e3i.jpg)
+

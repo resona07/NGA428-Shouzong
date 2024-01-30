@@ -126,3 +126,18 @@ ATM不爆金币厂商不就急了![茶](https://img4.nga.178.com/ngabbs/post/smi
 ##### <span id="pid740580146">23.[0] \<pid:740580146\> 2024-01-30 11:21:57 by jblz4743</span>
 等帖子活下来再说吧
 
+----
+
+##### <span id="pid740582527">25.[1] \<pid:740582527\> 2024-01-30 11:31:47 by TKO莽夫</span>
+集霸们要上班呢，行动力自然不如不上班在家备考的集美们呀![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740583588">26.[2] \<pid:740583588\> 2024-01-30 11:36:00 by 大a加油</span>
+我要是有权限，我也能给集美上强度![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740584171">27.[1] \<pid:740584171\> 2024-01-30 11:38:28 by 手机里有一款游戏</span>
+给我权限让你看看什么叫波波![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
