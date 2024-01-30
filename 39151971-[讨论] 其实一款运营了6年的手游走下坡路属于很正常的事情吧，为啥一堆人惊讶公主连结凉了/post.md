@@ -571,3 +571,12 @@ pcr玩了几年了那玩法再喜欢都顶不住了退了，我需要一个公�
 cy孝子能爬吗
 [url](https://nga.178.com/read.php?tid=38788563)
 
+----
+
+##### <span id="pid740738868">84.[0] \<pid:740738868\> 2024-01-31 05:13:12 by sho0125</span>
+>[jump](#pid740695026) yukitsuki(2024-01-30 21:00) 说: 
+>
+>fgo和舰b不用打公会战，我一群友公会战打的都快玉玉了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)那还是a了吧，不打公会战真的很爽。虽然目前就a了一个月但是效果立竿见影。
+

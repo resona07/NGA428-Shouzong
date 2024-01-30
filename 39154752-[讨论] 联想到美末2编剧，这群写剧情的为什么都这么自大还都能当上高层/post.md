@@ -28,3 +28,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 不是因为是写剧情的，而是因为是高层所以能通过吧……
 要是高层是美术，那自己的画自然也可以不用太好也能通过了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740738718">5.[0] \<pid:740738718\> 2024-01-31 05:04:39 by 为爽而战斗</span>
+美末二那是得搭配欧美大搞意识形态的，玩的就是白左
+
+某些文案就是国外东西看多了，自我感动到发情四处撒尿做标记
+
+----
+
+##### <span id="pid740738857">6.[0] \<pid:740738857\> 2024-01-31 05:12:27 by 巳冯孟寅赖曾</span>
+有些时候可能是反过来的，在这行赚到钱了自认为跻身上流社会就开始输出龟训玩家了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)对这些同行我只能说不氪金看笑话就是最好的。
+
