@@ -65,3 +65,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我的几个号都没有变正常，看你愿意愿意凑合玩了
 
+----
+
+##### <span id="pid740629636">6.[0] \<pid:740629636\> 2024-01-30 15:26:03 by Blessed995</span>
+>[jump](#pid740626098) wp75843(2024-01-30 15:09):
+
+知道实情就有点越想越气的感觉了 是没过剧情的纯签到初始就没这些问题吗?
+

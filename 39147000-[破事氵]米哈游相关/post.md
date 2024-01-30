@@ -256,3 +256,13 @@ dad是啥啊？
 牢盆说dad还是在他和粥学长对线那次![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 而且头像框是官宣以后才有人提的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740629245">33.[0] \<pid:740629245\> 2024-01-30 15:24:08 by 多啦b梦</span>
+>[jump](#pid740605993) Dorothy_Goddess(2024-01-30 13:26) 说: 
+>
+>![img](./8_c5174f9d.jpg)
+>这段话除了第一句不是都很清楚么，就是世界树那个频道嘛
+
+他都说群了那肯定不是世界树频道呀……
+

@@ -323,3 +323,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 谁家木人没栓好，出来发癫了？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740627484">44.[0] \<pid:740627484\> 2024-01-30 15:15:39 by 罗马之花mkⅡ</span>
+>[jump](#pid740404352) 约束的现世(2024-01-29 12:52) 说: 
+>
+>不要多想 就是吃了版本红利欠栓真以为自己是个东西了![img](./1_a4f7dc7a.jpg)
+
+我焯，董
+

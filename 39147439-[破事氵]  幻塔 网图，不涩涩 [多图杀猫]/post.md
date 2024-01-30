@@ -101,3 +101,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 屁，剧情根本没丰富到能说角色有没有自己生活上![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)那点剧情量你能看出来什么。没什么cp描写，也没什么ml描写，着墨比较多的只有正牌女友莎莉ml描写，其他所有人就只有主线剧情里的剧情根本没有多少私人剧情![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 剩下的就是好感度通信这种不做数的剧情了，通信全ml![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740630273">11.[1] \<pid:740630273\> 2024-01-30 15:28:54 by 平静的老咸鱼</span>
+>[jump](#pid740615039) Mélusine003(2024-01-30 14:14) 说: 
+>
+>援两张散草图吧![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+>![img](./1_e22fafe7.jpg)
+>![img](./1_149b13gz.jpg)
+
+散草99捏![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

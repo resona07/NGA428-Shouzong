@@ -447,3 +447,11 @@ iPad上的小号就是今朝有酒今朝醉后头稀烂无所谓了，什么攒�
 ##### <span id="pid740534584">56.[0] \<pid:740534584\> 2024-01-30 02:40:51 by KuяeNAi</span>
 有事没事用力摁一摁自己手掌，还真有点上头，又疼又爽![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  大半夜拿来提神相当好使，腱鞘炎唯一正面功效![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740628209">57.[0] \<pid:740628209\> 2024-01-30 15:19:20 by KuяeNAi</span>
+![img](./57_3baa27cs.jpg)
+我的屏幕绝对有问题！
+有将近两秒的无法操作状态，怎么狂点屏幕都没用
+看来这台陪了我四年的手机是该退休了…![怒](https://img4.nga.178.com/ngabbs/post/smile/a2_04.png)
+
