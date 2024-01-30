@@ -156,3 +156,8 @@ mm99![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
 ##### <span id="pid740727533">24.[0] \<pid:740727533\> 2024-01-31 00:53:02 by mhiyku</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)大凤被当众砍头的含金量
 
+----
+
+##### <span id="pid740735353">25.[0] \<pid:740735353\> 2024-01-31 02:56:02 by anotherTessin</span>
+怎么多了那么多发帖数只有个位数的，一定是水军大量涌入![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+

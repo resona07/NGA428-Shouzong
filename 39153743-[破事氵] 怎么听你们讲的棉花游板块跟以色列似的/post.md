@@ -101,3 +101,12 @@ A:![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png) B:![哼](https
 A:![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png) C:![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
 A:![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png) B&amp;C:![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
 
+----
+
+##### <span id="pid740735115">15.[1] \<pid:740735115\> 2024-01-31 02:50:00 by 韩信有只萧何</span>
+>[jump](#pid740720621) qb358186652(2024-01-30 23:57) 说: 
+>
+>错误的![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)棉花只是伪装，圣子降临可不会有人看做棉花，尤其是nga
+
+红色高棉也是棉(
+
