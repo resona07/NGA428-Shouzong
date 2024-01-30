@@ -47,3 +47,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740550998">8.[0] \<pid:740550998\> 2024-01-30 08:57:51 by 彻木</span>
 截图截好了吗。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740551355">9.[4] \<pid:740551355\> 2024-01-30 09:00:08 by RX93牛高达</span>
+![img](./9_66a3c77i.gif)  
+昨天刷到的补档![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740551358">10.[0] \<pid:740551358\> 2024-01-30 09:00:09 by nextGenerationBell</span>
+>[jump](#pid740549265) 代用编号9527(2024-01-30 08:46):
+
+不是早就内战了吗，赛博义父那会wb上买了个踩原神福利的热搜
+
+当时还以为是给原神新春福利做铺垫预备再造一波热度，结果什么都没，现在回头一看，可能就是纯粹的崩铁组在cue原神组
+
+----
+
+##### <span id="pid740553659">11.[0] \<pid:740553659\> 2024-01-30 09:14:20 by hye359</span>
+只要一年都不出新池子，三抽的价值就相当于月更游戏的三十六抽。op们想必也会感恩戴德，建议米家一年不出新池子，以达到事半功倍的效果
+

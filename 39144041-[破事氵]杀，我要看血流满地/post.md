@@ -115,3 +115,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740550410">19.[1] \<pid:740550410\> 2024-01-30 08:54:11 by 就是百宝袋</span>
 仙粥99捏![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)，要打自己去打
 
+----
+
+##### <span id="pid740553467">20.[0] \<pid:740553467\> 2024-01-30 09:13:09 by 雨后池上</span>
+你要不先去粥版喊两句![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)这样我好用你的血沾馒头
+

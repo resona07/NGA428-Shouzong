@@ -1424,3 +1424,9 @@ who cares？
 
 但是不交流又没意思，我选择继续屎里蝶泳![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
 
+----
+
+##### <span id="pid740553207">184.[0] \<pid:740553207\> 2024-01-30 09:11:38 by cvolser</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我还说开场就爆的圣子降临怎么能活一晚上
+爬了下楼发现风向正确
+
