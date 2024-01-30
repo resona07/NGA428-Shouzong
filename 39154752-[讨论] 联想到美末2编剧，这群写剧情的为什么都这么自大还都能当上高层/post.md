@@ -76,3 +76,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 一代主线有尼尔部分参与，那个完全不对味的dlc是尼尔全权制作的，和2代一起就是为了报复前编剧组
 
+----
+
+##### <span id="pid740739741">12.[0] \<pid:740739741\> 2024-01-31 06:04:55 by 我想静静2023</span>
+那个好像是真犹太人，游戏里面设计的犹太物品无法攻击
+

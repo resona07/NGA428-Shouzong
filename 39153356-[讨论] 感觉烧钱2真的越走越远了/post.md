@@ -278,3 +278,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 引用我朋友的一句话 “永世轮回的二游地狱”![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
 
+----
+
+##### <span id="pid740739898">35.[0] \<pid:740739898\> 2024-01-31 06:13:45 by xiebazhi110</span>
+>[jump](#pid740722242) A1ik(2024-01-31 00:09) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) stn商单那时不就是鞠躬了，还p了几个字，我求你们这些结晶不要只是尽孝不爆米了。
+
+stn商单那个单纯的作秀，我觉得不会有人觉得他真在道歉
+
