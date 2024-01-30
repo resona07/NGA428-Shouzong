@@ -635,3 +635,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 看到了吧，木构的岁月史书真的有用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740586054">80.[2] \<pid:740586054\> 2024-01-30 11:46:30 by 奸奇至尊巫师</span>
+>[jump](#pid740585097) BloodBaker(2024-01-30 11:42):
+
+你为什么不问下你家那些纯良是怎么开aoe的呢
+哦，忘了，你家没有纯良，在手综是反米义士，在粥版是督战员![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740586072">81.[0] \<pid:740586072\> 2024-01-30 11:46:36 by 岩之柱</span>
+侦测邪恶
+防护善恶
+语出惊人
+激励舞曲
+
