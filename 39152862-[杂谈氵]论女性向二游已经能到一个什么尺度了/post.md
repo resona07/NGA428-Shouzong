@@ -173,3 +173,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)没去村子里看过吧，泥潭某42著名言论——初见口，婚不动
 
+----
+
+##### <span id="pid740733392">30.[0] \<pid:740733392\> 2024-01-31 02:13:30 by 大师姐落日余晖</span>
+女性向手游的尺度可以说远远超出现在二游女性角色的对称，女性角色在手游里连大腿和乳沟都不能露，但是男性角色在手游里甚至没办法穿上一件内裤！气抖冷哭，我们纸片人男性什么时候才能站起来，拥有一件自己的内裤！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
