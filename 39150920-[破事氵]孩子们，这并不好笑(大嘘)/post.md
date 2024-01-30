@@ -200,3 +200,14 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
 别了吧，不是一个性质的![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
 
+----
+
+##### <span id="pid740733719">32.[0] \<pid:740733719\> 2024-01-31 02:20:27 by yangyym1</span>
+>[jump](#pid740704284) sbsx123(2024-01-30 22:03) 说: 
+>
+>不不，经过这两天我已经能理解给棉花取名这件事了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+棉花不是自称吗
+
+给别人起外号还是不同的
+

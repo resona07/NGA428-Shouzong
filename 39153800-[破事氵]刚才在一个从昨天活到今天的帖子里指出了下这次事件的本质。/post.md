@@ -436,3 +436,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740733343">56.[0] \<pid:740733343\> 2024-01-31 02:12:28 by ArthKurt</span>
 说起来比较离谱的是 唯独就没有举报bw机制么![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)真就私人论坛呗
 
+----
+
+##### <span id="pid740733556">57.[0] \<pid:740733556\> 2024-01-31 02:16:55 by 辛程孟壬龚邝</span>
+到现在连导火索是哪个()都不清楚![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)以前就有过pg在老家生活那的()了。只能说()就没好的
+
