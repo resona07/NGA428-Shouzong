@@ -335,3 +335,13 @@ nga本身没有泄露社工库，所以适合放瓜，而手游相关显然就�
 紫薯布丁
 ![img](./53_12d701js.png)
 
+----
+
+##### <span id="pid740566170">54.[0] \<pid:740566170\> 2024-01-30 10:19:49 by ljn23500</span>
+>[jump](#pid740524530) 松鼠之梦(2024-01-30 00:26) 说: 
+>
+>你玩lol的，你会记得你3：0暴打的对手还是记得你3：2才拿下的对手。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我更喜欢顺风虐菜局![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+毕竟我是打野玩家，翻盘局真能气血翻腾的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

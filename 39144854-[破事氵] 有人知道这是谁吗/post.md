@@ -25,3 +25,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 [url](https://www.bilibili.com/video/BV1DV411Q7wC/?spm_id_from=333.999.0.0)
 找到了
 
+----
+
+##### <span id="pid740565251">4.[0] \<pid:740565251\> 2024-01-30 10:15:31 by 老憨痞了</span>
+>[jump](#pid740564634) 惊异灵摆(2024-01-30 10:12) 说: 
+>
+>![img](./2_d7c38ayi.jpg)
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)他暗示自己是在钓鱼，是真是假就不好说了。
+
+炮都开出来了，居然是友军？![中枪](https://img4.nga.178.com/ngabbs/post/smile/ac3.png)
+

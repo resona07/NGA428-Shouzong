@@ -101,3 +101,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740561777">15.[1] \<pid:740561777\> 2024-01-30 09:58:24 by 岩之柱</span>
 氪金不仅给怪物加血量，还增加ai批量创造奶窗男产能
 
+----
+
+##### <span id="pid740567460">16.[0] \<pid:740567460\> 2024-01-30 10:26:05 by 蒸鱼鱼</span>
+有男不玩![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)
+
