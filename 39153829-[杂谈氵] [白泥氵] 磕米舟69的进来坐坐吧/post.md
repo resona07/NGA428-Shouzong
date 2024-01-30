@@ -191,3 +191,15 @@ mm69![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740739946">28.[0] \<pid:740739946\> 2024-01-31 06:16:25 by 莫洛AAA</span>
 仙将军配粥仙女，太好磕了。![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740740868">29.[0] \<pid:740740868\> 2024-01-31 06:56:56 by 黄前久美子子</span>
+>[jump](#pid740733616) 大江户战士(2024-01-31 02:17) 说: 
+>
+>之前收藏的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>
+>![img](./23_a280f4xs.jpg)
+
+不如俩男角色 精准打击仙女
+

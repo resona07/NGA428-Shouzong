@@ -158,3 +158,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 你这还不如你朋友呢
 就别笑话人家了
 
+----
+
+##### <span id="pid740740728">23.[0] \<pid:740740728\> 2024-01-31 06:51:45 by 流炎丶望月</span>
+真正持久的二游都要有哪怕一点的游戏性的,实际上哪个二游强度党都一大堆.
+
