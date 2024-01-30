@@ -305,3 +305,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740737227">50.[0] \<pid:740737227\> 2024-01-31 03:55:37 by Kazw</span>
 送他个冰柜自己钻进去罢
 
+----
+
+##### <span id="pid740737720">51.[0] \<pid:740737720\> 2024-01-31 04:14:41 by 江河湖海之主</span>
+>[jump](#pid740714831) 克难万嘉(2024-01-30 23:14) 说: 
+>
+>来看看唐家三少怎么说![img](./10_e2415dtc.jpg)
+
+最支持唐三的一集
+
