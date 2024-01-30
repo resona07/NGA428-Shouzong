@@ -218,3 +218,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740722839">33.[0] \<pid:740722839\> 2024-01-31 00:13:33 by yueyuebobobo</span>
 金铲铲这次都已经105h抖音了，看不起原？原不狠狠爆个27国登顶打你们脸![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
 
+----
+
+##### <span id="pid740723049">34.[1] \<pid:740723049\> 2024-01-31 00:15:12 by fervent159</span>
+>[jump](#pid740722839) yueyuebobobo(2024-01-31 00:13) 说: 
+>
+>金铲铲这次都已经105h抖音了，看不起原？原不狠狠爆个27国登顶打你们脸![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+超超呗，超了我看米孝子反攻还会不会再上演赛博督战队的搞笑一幕![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740723412">35.[0] \<pid:740723412\> 2024-01-31 00:17:43 by 天使angel</span>
+我也觉得挂零蛋 毕竟抖音加了农药直播真变强了 之前都超的不利索 现在更没有机会了 不给自己留后路了
+

@@ -72,3 +72,9 @@ ps：好像没有完全解决，应该是只加了个氪条，不乐意的可以
 ##### <span id="pid740722977">11.[0] \<pid:740722977\> 2024-01-31 00:14:32 by CosmosWatcher</span>
 这位更是重量级，也不知道还能整出什么好活![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)反正氪的我当喂狗了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740723048">12.[0] \<pid:740723048\> 2024-01-31 00:15:12 by QUSIWQVT</span>
+这时候晓得上米站来发社区公告啦？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+然并卵，说实话你tx发行，tx什么德行我能不知道吗？也就骗骗那些手游时代开始上网的年轻韭菜罢啦![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+

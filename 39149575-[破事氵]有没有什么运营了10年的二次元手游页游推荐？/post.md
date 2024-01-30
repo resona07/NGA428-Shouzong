@@ -422,3 +422,10 @@ pad(智龙迷城)  cc(锁链战记)  有条件去淘宝买个石头号 能爽一
 ##### <span id="pid740721855">62.[1] \<pid:740721855\> 2024-01-31 00:06:49 by 取你麻痹的名字</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)给你推荐砍口垒的人是想害你
 
+----
+
+##### <span id="pid740724441">63.[0] \<pid:740724441\> 2024-01-31 00:26:05 by 空气君h</span>
+召唤图板![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)小众了点，不过也差不多十年了
+
+![img](./63_7d7b9azv.jpg)
+

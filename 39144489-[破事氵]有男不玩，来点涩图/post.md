@@ -185,3 +185,21 @@ galgame里的魔物娘不香吗
 ##### <span id="pid740704963">40.[0] \<pid:740704963\> 2024-01-30 22:07:54 by 乳有雷同</span>
 ![img](./40_4fa3447g.gif)
 
+----
+
+##### <span id="pid740721361">41.[0] \<pid:740721361\> 2024-01-31 00:03:27 by Ayakacess</span>
+看看发得出来不![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./41_7bb12bsg.jpg)
+![img](./41_705ed2pw.jpg)
+![img](./41_d98656zl.jpg)
+![img](./41_4f8b94sg.jpg)
+![img](./41_81b3bfzk.jpg)
+![img](./41_09499esg.jpg)
+![img](./41_1396aasg.jpg)
+![img](./41_d84aa3sg.jpg)
+
+----
+
+##### <span id="pid740723687">42.[0] \<pid:740723687\> 2024-01-31 00:20:20 by etoss</span>
+涩图？直接看本子了，最近在等COMIC 快楽天3月刊的翻译
+

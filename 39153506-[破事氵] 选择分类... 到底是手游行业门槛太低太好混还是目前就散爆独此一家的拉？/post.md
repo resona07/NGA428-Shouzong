@@ -13,3 +13,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740722586">1.[0] \<pid:740722586\> 2024-01-31 00:11:55 by 木之白</span>
 前几年，手游行业门槛低，回报率高的可怕，容易拉投资
 
+----
+
+##### <span id="pid740723680">2.[2] \<pid:740723680\> 2024-01-31 00:20:16 by 友達募集哒</span>
+互联网行业很多职位都是为设而设的，分工划得太细了，很畸形。
+
+----
+
+##### <span id="pid740724029">3.[0] \<pid:740724029\> 2024-01-31 00:22:54 by ジャガイモの花茶</span>
+你觉得猛干怎么样![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
