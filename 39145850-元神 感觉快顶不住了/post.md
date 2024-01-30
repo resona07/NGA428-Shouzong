@@ -347,3 +347,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 烧给白荆多少亿？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740616019">47.[0] \<pid:740616019\> 2024-01-30 14:19:12 by yysgymj</span>
+这俩我都不玩了，但是你问我这俩游戏让人印象最深刻的东西我只能记得蛋仔的那句语音鸡蛋鸭蛋荷包蛋，元梦还是没有自己的特色而且出的太晚了
+
+----
+
+##### <span id="pid740616782">48.[0] \<pid:740616782\> 2024-01-30 14:23:08 by 不为谁而过</span>
+感觉不行，铺天盖地的宣传我女儿她们学校还都是开口闭口蛋仔的
+

@@ -342,3 +342,30 @@ nga也有自己的孟德尔是吧![哭笑](https://img4.nga.178.com/ngabbs/post/
 
 揍你怎么就知道不是情趣呢？你问过当事人了吗![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740616092">55.[2] \<pid:740616092\> 2024-01-30 14:19:34 by EMXlight</span>
+ba那本超人画得那么癫还商稿啊，米除的思维还是跟人不一样![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740617162">56.[0] \<pid:740617162\> 2024-01-30 14:25:17 by 加强神子</span>
+是不是纯爱我不清楚，但朝凪的作品肯定不是NTR![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)， 这跟NTR有啥沾边的么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740617423">57.[0] \<pid:740617423\> 2024-01-30 14:26:38 by fervent159</span>
+>[jump](#pid740616092) EMXlight(2024-01-30 14:19) 说: 
+>
+>ba那本超人画得那么癫还商稿啊，米除的思维还是跟人不一样![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+虽然我不信买本子商稿这种东西的，但是悠星对二创作者的赞助是真不少，还好国服自从开服买开服贺图商单搞了一次ooc乌龙之后审查严了不少，不然要是什么低质量换皮商单视频流行起来大伙现在对悠星的宽容程度可没这么大了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740617893">58.[0] \<pid:740617893\> 2024-01-30 14:29:11 by 放生才是真理</span>
+他不是雌堕爱好者吗
+本子内容主要是
+先给女主比较强气的画面
+然后一段啪啪啪后女主拜服在男主的金箍棒下
+

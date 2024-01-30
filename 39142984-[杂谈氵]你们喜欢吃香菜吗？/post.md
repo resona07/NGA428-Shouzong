@@ -207,3 +207,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740594944">27.[0] \<pid:740594944\> 2024-01-30 12:28:50 by 无寿之梦</span>
 有香菜不吃，我去别家馆子了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740617050">28.[0] \<pid:740617050\> 2024-01-30 14:24:35 by 伦敦的守夜人</span>
+草，我差点以为自己进了水区
+
+看了眼评论，打着喜欢吃香菜的手又缩了回去
+

@@ -49,3 +49,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./1_e22fafe7.jpg)
 ![img](./1_149b13gz.jpg)
 
+----
+
+##### <span id="pid740616627">2.[1] \<pid:740616627\> 2024-01-30 14:22:24 by Belfa</span>
+发再多还是那句话：好看不好玩。
+多发点，爱看，但绝不可能回坑了。
+
