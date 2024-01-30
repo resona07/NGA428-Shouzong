@@ -55,3 +55,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740695792">8.[0] \<pid:740695792\> 2024-01-30 21:05:58 by asfgshrth</span>
 烙痕搭配好，猴出来的伤害高的吓人，我也干出过一亿的大数字![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740697685">9.[0] \<pid:740697685\> 2024-01-30 21:18:23 by 爪子超凶</span>
+所以是新角色能打出这种输出，整体输出能力远远超过老角色吗？这游戏我是真云都没云![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+藤子的数值其实一直都不错的，我感觉不至于犯这种错误![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740698370">10.[0] \<pid:740698370\> 2024-01-30 21:22:50 by ╰浅殇刷7</span>
+>[jump](#pid740697685) 爪子超凶(2024-01-30 21:18) 说: 
+>
+>所以是新角色能打出这种输出，整体输出能力远远超过老角色吗？这游戏我是真云都没云![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+>藤子的数值其实一直都不错的，我感觉不至于犯这种错误![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+这是5星开服角色打出的输出，最高是6星
+

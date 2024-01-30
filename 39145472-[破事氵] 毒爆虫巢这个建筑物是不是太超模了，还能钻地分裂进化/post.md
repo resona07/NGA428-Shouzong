@@ -474,3 +474,14 @@ P蜜这就去出巨象 研究闪电风暴
 我再强调一次  这个人是  官方人员 哦
 你不认识吗
 
+----
+
+##### <span id="pid740698852">70.[0] \<pid:740698852\> 2024-01-30 21:25:54 by TNDX</span>
+神族修地堡
+
+开局奔你朋友家
+
+多下水晶然后下炮台
+
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

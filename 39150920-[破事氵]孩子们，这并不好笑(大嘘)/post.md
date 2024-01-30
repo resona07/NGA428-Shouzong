@@ -154,3 +154,17 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
 草，还真可能是
 
+----
+
+##### <span id="pid740698178">26.[0] \<pid:740698178\> 2024-01-30 21:21:29 by 剑已归</span>
+>[jump](#pid740689856) 我不会。(2024-01-30 20:28) 说: 
+>
+>fc是funny chicken的缩写吗？如果是的话，指的是天华这个up主。
+
+![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)我说怎么回事？前几天想不通呢
+
+----
+
+##### <span id="pid740698244">27.[1] \<pid:740698244\> 2024-01-30 21:21:58 by Alice_Carroll</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)搞笑坤→funny chicken
+

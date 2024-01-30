@@ -198,3 +198,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 哦对了既然您说国内创作环境不行，您去了几个国内的BAonly了
 
+----
+
+##### <span id="pid740698205">30.[3] \<pid:740698205\> 2024-01-30 21:21:39 by 云后的彩虹糖</span>
+我看过一个关于河豚的另类解读，男河豚是性无能，女河豚是洗脚婢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740698426">31.[2] \<pid:740698426\> 2024-01-30 21:23:10 by 萝卜开会所</span>
+怎么说呢，女权50多年前就玩烂了的概念被这群人当宝一样![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740698793">32.[0] \<pid:740698793\> 2024-01-30 21:25:33 by Valano</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我们正经人也就是群友发个图下面说真好磕啊谢谢
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)魔怔成这样的顶多按当年算，最多是组cp投票的时候，能有一半的烈度吧
+
+----
+
+##### <span id="pid740699313">33.[0] \<pid:740699313\> 2024-01-30 21:28:57 by 土御门蠢虎</span>
+所以发生什么了，跟ba版转的那百合同人有关系？
+
+----
+
+##### <span id="pid740699360">34.[0] \<pid:740699360\> 2024-01-30 21:29:13 by qioudasi</span>
+>[jump](#pid740696585) 起个名字真是非常麻烦(2024-01-30 21:11):
+
+有没有可能那个汉化组才是搞坏BA社区环境的那一方？
+当然，除非你不搞汉化组无者这一套才行。
+现在想想你那一大波是不是在给七大佐尽孝。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

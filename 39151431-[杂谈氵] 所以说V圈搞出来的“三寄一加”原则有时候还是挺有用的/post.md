@@ -179,3 +179,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740693806">28.[0] \<pid:740693806\> 2024-01-30 20:52:35 by 我才没名字呢</span>
 贯彻三寄一加不就得先从不能查成分开始
 
+----
+
+##### <span id="pid740699436">29.[0] \<pid:740699436\> 2024-01-30 21:29:43 by lyk6666</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这我记得最后变成严于律人，宽以待己
+
