@@ -77,3 +77,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 说实话我不看好这种连段繁琐的，就抄原就好。
 帕鲁这么成功还可以抄一下帕鲁，弄些可爱的怪物给玩家抓弄个帕鲁概念游戏。
 
+----
+
+##### <span id="pid740618191">9.[0] \<pid:740618191\> 2024-01-30 14:30:44 by 蓝色猫头</span>
+![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)少前2，改来改去，脉脉离职的人吐槽，羽中理论上能做出游戏。
+
+我估计就是，来回返工了。 开服1个月的游戏，2个活动在改，全没语音，全在轻量化，也是牛逼到炸了。
+
+----
+
+##### <span id="pid740618989">10.[1] \<pid:740618989\> 2024-01-30 14:35:09 by 岩之柱</span>
+猛干这id有个TS
+难道猛干背地里是药娘？
+
+----
+
+##### <span id="pid740619138">11.[0] \<pid:740619138\> 2024-01-30 14:35:47 by Louis_Trespassing</span>
+我确实觉得光论好不好玩这事，少前2比原铁好玩，这么说会被喷吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740619598">12.[0] \<pid:740619598\> 2024-01-30 14:38:00 by 咸菜白肚鱼</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+问就是想吃少前1的流量。
+
+其实开局就交代同一个世界观下不是你指是完全不认识的人就可以了。
+
+说到底还是写故事能力不行
+
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

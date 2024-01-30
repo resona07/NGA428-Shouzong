@@ -204,3 +204,34 @@ nga大静谧前，nga是我用的最多的软件。
 ##### <span id="pid740613461">16.[0] \<pid:740613461\> 2024-01-30 14:05:55 by CrniBombarderi</span>
 那你离婚的时候，彩礼(氪的金)要回来了吗？没有的话那也太真实体验了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740618260">17.[0] \<pid:740618260\> 2024-01-30 14:31:04 by 明日下山</span>
+>[jump](#pid740613461) CrniBombarderi(2024-01-30 14:05) 说: 
+>
+>那你离婚的时候，彩礼(氪的金)要回来了吗？没有的话那也太真实体验了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+很不幸，这些钱大抵真的离我远去了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+----
+
+##### <span id="pid740619616">18.[0] \<pid:740619616\> 2024-01-30 14:38:06 by CrniBombarderi</span>
+>[jump](#pid740618260) 明日下山(2024-01-30 14:31) 说: 
+>
+>很不幸，这些钱大抵真的离我远去了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+下次长心眼儿昂，咱只(白)嫖不婚
+
+----
+
+##### <span id="pid740620171">19.[0] \<pid:740620171\> 2024-01-30 14:40:51 by 咸菜白肚鱼</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+什么赛博中年味儿。
+
+转乐子人不好吗？女人对你不好你就要难受吗？为什么不能看她能有多婊然后狠狠歧视她？
+
+还是太龟
+
+![威吓](https://img4.nga.178.com/ngabbs/post/smile/a2_42.png)
+

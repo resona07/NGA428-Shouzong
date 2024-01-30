@@ -49,3 +49,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那没事了，我刚才还在猜图里是不是在说最近闹挺大那家，毕竟他们和悠星也是一伙的。。。。
 
+----
+
+##### <span id="pid740620524">7.[0] \<pid:740620524\> 2024-01-30 14:42:36 by 乙易鲁巳向许</span>
+帖子名字提到了海猫妖梦，我猜是棉花![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
