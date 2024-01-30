@@ -96,3 +96,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740571466">16.[0] \<pid:740571466\> 2024-01-30 10:44:29 by 白色马尾辫</span>
 因为这些都不是二游![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740571997">17.[0] \<pid:740571997\> 2024-01-30 10:47:04 by 陵龙re</span>
+王者战斗力最强的可是某几个女英雄的女粉丝
+
+----
+
+##### <span id="pid740572453">18.[4] \<pid:740572453\> 2024-01-30 10:49:02 by warland</span>
+这才叫一般向游戏，二刺猿贴膜的一般向只配叫混厕向游戏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740572543">19.[3] \<pid:740572543\> 2024-01-30 10:49:27 by ASTRORANGERS</span>
+因为他们很诚实，只要二游也改成男头像就能和他们一样赚哦。![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740573161">20.[0] \<pid:740573161\> 2024-01-30 10:52:13 by fly0o0521</span>
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)竞技类游戏，全看你水平，这才叫一般向，对着角色发癫不会让你的技术有丝毫进步
+
+----
+
+##### <span id="pid740574046">21.[0] \<pid:740574046\> 2024-01-30 10:55:56 by 一某宅一</span>
+告诉你个鬼故事，钱包在我手里
+
+----
+
+##### <span id="pid740574299">22.[0] \<pid:740574299\> 2024-01-30 10:56:56 by 鸟语猛猛</span>
+人家这才是真正的一般向，二次元傻卵闹麻了
+

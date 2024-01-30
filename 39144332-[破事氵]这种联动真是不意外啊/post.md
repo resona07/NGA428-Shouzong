@@ -89,3 +89,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 高品质？“其他手游可没有”
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740574018">14.[0] \<pid:740574018\> 2024-01-30 10:55:50 by 月酱月酱</span>
+>[jump](#pid740554012) 细雪之上(2024-01-30 09:16) 说: 
+>
+>很正常的联动吧
+>其他游戏也有
+
+![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)fgo联动过钟薛高，黑暗之神，联动餐厅都是食品分不了男女。碧蓝航线上年的巧克力联动，明日方舟开服KFC联动。谁联动化妆品啊是不知道自己游戏玩家群体吗？
+

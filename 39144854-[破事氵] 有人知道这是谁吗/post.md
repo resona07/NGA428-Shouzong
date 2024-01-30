@@ -35,3 +35,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 炮都开出来了，居然是友军？![中枪](https://img4.nga.178.com/ngabbs/post/smile/ac3.png)
 
+----
+
+##### <span id="pid740572352">5.[0] \<pid:740572352\> 2024-01-30 10:48:35 by Da4041</span>
+![img](./5_e1dfd93i.jpg)
+
+
+看不懂，到底钓的啥鱼
+

@@ -102,3 +102,22 @@ ATM不爆金币厂商不就急了![茶](https://img4.nga.178.com/ngabbs/post/smi
 ##### <span id="pid740571547">19.[0] \<pid:740571547\> 2024-01-30 10:44:50 by fervent159</span>
 ![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid740571573">20.[4] \<pid:740571573\> 2024-01-30 10:44:59 by 贝斯提尔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)普通结晶一砸就碎。
+有棉花的结晶，不好意思你遇到混凝土了
+
+----
+
+##### <span id="pid740571637">21.[0] \<pid:740571637\> 2024-01-30 10:45:16 by 鳄鱼力0</span>
+被栓住的奴隶如何反抗奴隶主呢？
+母系社会从未改变
+男性脖子上的枷锁从未摘下![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+唯有死亡之时可以豁免
+
+----
+
+##### <span id="pid740573279">22.[0] \<pid:740573279\> 2024-01-30 10:52:46 by GustPig_</span>
+手综集霸们，学学水区集霸们的攻击性
+
