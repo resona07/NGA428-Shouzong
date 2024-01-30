@@ -467,3 +467,12 @@ Zsbd
 ##### <span id="pid740524969">68.[0] \<pid:740524969\> 2024-01-30 00:30:45 by 算心无半</span>
 天下布魔![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740604832">69.[0] \<pid:740604832\> 2024-01-30 13:19:54 by 十一0402</span>
+>[jump](#pid740524969) 算心无半(2024-01-30 00:30) 说: 
+>
+>天下布魔![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+你说的这个ios应该不太方便![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)
+

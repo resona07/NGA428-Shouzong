@@ -80,3 +80,8 @@ mmr没见过暗区是这样的。
 ##### <span id="pid740602778">13.[0] \<pid:740602778\> 2024-01-30 13:08:55 by 风轻云际</span>
 八旗子弟碰见洋枪队是这样的
 
+----
+
+##### <span id="pid740604374">14.[0] \<pid:740604374\> 2024-01-30 13:17:35 by 黑社会与美食家</span>
+我什么时候看到海虎梗能不笑啊![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+

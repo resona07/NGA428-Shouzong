@@ -79,3 +79,30 @@ zimba！！！
 ##### <span id="pid740603820">10.[0] \<pid:740603820\> 2024-01-30 13:14:33 by QUSIWQVT</span>
 说到这个，我现在都怀念sc2演示时期的z，那个感染虫啥都能感染，好帅啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740604113">11.[0] \<pid:740604113\> 2024-01-30 13:16:18 by gundamgn009</span>
+>[jump](#pid740601722) 追寻愉悦的人(2024-01-30 13:03) 说: 
+>
+>自爆人太耗资源了，还是小短手，碰不到人家就被远程秒了，根本炸不了。评价为纯纯的玩具。
+
+怎么会呢  免疫塔伤自爆人不是想炸哪里炸哪里  资源还都是用的人族的![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740604288">12.[0] \<pid:740604288\> 2024-01-30 13:17:10 by 飞雪小狂</span>
+>[jump](#pid740603820) QUSIWQVT(2024-01-30 13:14):
+
+那时候是imba争霸![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)ptz各有各的imba![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740605513">13.[0] \<pid:740605513\> 2024-01-30 13:23:21 by 不会安宁的夜</span>
+哪位好心人私信我真像，cpu快干没了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)
+
+----
+
+##### <span id="pid740606574">14.[0] \<pid:740606574\> 2024-01-30 13:29:28 by Aytan_ ⑩</span>
+自爆感染人纯纯玩具，也就战役里能拿来整活
+如果是毛子那个感染基地还有点乐子，小腿一伸四处跑，还能挂虫子，可来劲了
+

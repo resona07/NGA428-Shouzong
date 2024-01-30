@@ -70,3 +70,8 @@ zsbd，还没有呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png
 ##### <span id="pid740599812">11.[0] \<pid:740599812\> 2024-01-30 12:52:44 by 神圣的卡苟斯</span>
 ~~你发这个是什么意思，你是不是粥批~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)哦不对，这才是混战前的日常
 
+----
+
+##### <span id="pid740606348">12.[0] \<pid:740606348\> 2024-01-30 13:27:58 by 吔！呱！</span>
+重建都快完了，你捐给谁去
+
