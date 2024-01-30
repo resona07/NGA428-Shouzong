@@ -49,3 +49,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740735027">7.[3] \<pid:740735027\> 2024-01-31 02:47:53 by 无花果的夏天</span>
 没错你眼里的宝宝真可爱，只可惜兄弟和她情投意合两情相悦，她看我眼里直冒爱心，真是抱歉了呢
 
+----
+
+##### <span id="pid740736816">8.[0] \<pid:740736816\> 2024-01-31 03:41:04 by darbox</span>
+有种当了黄毛的罪恶感怎么办
+

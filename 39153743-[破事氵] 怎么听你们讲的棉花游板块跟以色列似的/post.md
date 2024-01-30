@@ -136,3 +136,17 @@ A:![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](http
 
 你猜明日方舟为啥在手综变得有罪。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740736490">20.[1] \<pid:740736490\> 2024-01-31 03:29:50 by ywxyzz</span>
+要说的话其实都是以色列   只是看有没有触发机制![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740736783">21.[0] \<pid:740736783\> 2024-01-31 03:40:03 by 韩信有只萧何</span>
+>[jump](#pid740736490) ywxyzz(2024-01-31 03:29) 说: 
+>
+>要说的话其实都是以色列   只是看有没有触发机制![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不一样，鱿鱼2是因为它真的很弱鸡，被手综老哥们吊起来喷，棉花那可是红色高棉啊(
+
