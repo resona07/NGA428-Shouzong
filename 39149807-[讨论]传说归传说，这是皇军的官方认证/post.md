@@ -81,3 +81,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 还真是![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)尽孝的只能给瘤萎爆金币
 
+----
+
+##### <span id="pid740665391">12.[0] \<pid:740665391\> 2024-01-30 18:03:39 by Rooney256</span>
+>[jump](#pid740663251) 露露缇雅丨泽金(2024-01-30 17:53) 说: 
+>
+>热知识
+>
+>郑畜因为说原神像塞尔达，开服的时候就被做成门卫永世替米门孝子们看门了
+>
+>什么邪神永世神选![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+>
+>就像給原做视频的收不到商单一样，想被他米爹做进游戏里得是黑子![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+千岩军 振翔出列！
+
+----
+
+##### <span id="pid740665758">13.[1] \<pid:740665758\> 2024-01-30 18:05:33 by Madfrogkygdiddy</span>
+郑处骂了米哈游整整两年，最后还得到了一句米哈游的道歉呢。
+

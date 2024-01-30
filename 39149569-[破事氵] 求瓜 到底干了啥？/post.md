@@ -31,3 +31,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 祖国人打人本来就很符合人设
 不管是因为什么打的，总之就很还原![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740665354">4.[1] \<pid:740665354\> 2024-01-30 18:03:25 by 兰兰的马甲</span>
+聊天记录肯定是假的。
+人家祖国人cos动态发声明了，说是起了点口角，吵了一架，打了一下。没那么多前因后果。
+

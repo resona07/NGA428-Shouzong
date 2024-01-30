@@ -13,3 +13,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 专门掳走未婚的妙龄少女，活生生地挖取她们的心脏...
 ——在其他平台上看到的神探九凤诡事录剧情，这也太刺激了，有人知道最后的结局吗…
 
+----
+
+##### <span id="pid740667492">1.[0] \<pid:740667492\> 2024-01-30 18:14:27 by 天蚀10</span>
+啊？
+这是怎么回事呢？小编也很想知道？欢迎在评论区发表你的看法。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

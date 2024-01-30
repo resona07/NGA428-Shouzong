@@ -202,3 +202,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 只能说吊打了95活动的文案——零分&gt;负分![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)   
 
+----
+
+##### <span id="pid740665937">28.[2] \<pid:740665937\> 2024-01-30 18:06:29 by 露维杰路MK2</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我都不敢想原版剧情有多重量级，至少这次决定还算果断，哪怕劣质一点，没被继续架上火烤
+
+----
+
+##### <span id="pid740666608">29.[1] \<pid:740666608\> 2024-01-30 18:09:55 by bwbbs</span>
+>[jump](#pid740665937) 露维杰路MK2(2024-01-30 18:06) 说: 
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我都不敢想原版剧情有多重量级，至少这次决定还算果断，哪怕劣质一点，没被继续架上火烤
+
+但这也是不打自招，说明追悼的剧情确实天雷滚滚到改不完
+
+大家会把找瓜的热情累积到下个有剧情的活动![img](./1_3283bd31.png)
+
