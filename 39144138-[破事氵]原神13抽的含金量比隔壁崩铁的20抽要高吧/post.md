@@ -83,3 +83,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 底下都没什么有含金量的回复
 
+----
+
+##### <span id="pid740556771">14.[0] \<pid:740556771\> 2024-01-30 09:31:58 by 七月上秋</span>
+两坨屎罢了，你真当大伙像你一样，是觉得“崩铁福利好，为原神鸣不平”？笑死人了  
+
+
+这里没人因为原神发三抽而生气的，大伙都在当乐子看结晶破防![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)想洗地属实是发错地方了。
+
+----
+
+##### <span id="pid740558588">15.[0] \<pid:740558588\> 2024-01-30 09:41:55 by Aetherwind</span>
+是的，原13抽相当于铁26抽，相当于4000美刀，我们羡慕得不行呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740559040">16.[0] \<pid:740559040\> 2024-01-30 09:44:22 by JieDPJH</span>
+非常明显的分化玩家，让玩家内耗的操作。
+

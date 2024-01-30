@@ -178,3 +178,8 @@ https://alioss.yystv.cn/news/af89589c16c72d734971a708d2810af5.jpg
 ##### <span id="pid740554890">19.[0] \<pid:740554890\> 2024-01-30 09:21:43 by 彼养的卡丘</span>
 咦~  呀哈~~~~~~
 
+----
+
+##### <span id="pid740556754">20.[0] \<pid:740556754\> 2024-01-30 09:31:51 by btpeterpan</span>
+换成伊落玛丽我才会开祷![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -203,3 +203,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740543298">26.[1] \<pid:740543298\> 2024-01-30 07:48:45 by 零之使魔怪</span>
 你不就来了吗？打情骂俏的事就滚回你们厕所互捅就是了，别tm装什么纯良，周处散发的都是厕味和头皮味，好臭
 
+----
+
+##### <span id="pid740558919">27.[1] \<pid:740558919\> 2024-01-30 09:43:46 by SenKs_Zhu</span>
+笑死，你在害怕什么。
+什么叫反攻，原来你一直把兄弟当作是填线宝宝啊。
+

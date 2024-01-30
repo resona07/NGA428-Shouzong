@@ -299,3 +299,8 @@ tap上看到过，本来以为是全女，结果有极低比例的男角色![冷
 
 虽然玩法不容易吸引xxn ，但涩气上也不行啊![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
 
+----
+
+##### <span id="pid740558830">36.[0] \<pid:740558830\> 2024-01-30 09:43:16 by 玩他喵的</span>
+手综立场是有男不玩啊，你这一般向指挥官类主角来这讨不到好处的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
