@@ -260,3 +260,13 @@ YGOpro![img](./35_3283bd31.png)
 
 ……串流？![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
 
+----
+
+##### <span id="pid740602003">39.[0] \<pid:740602003\> 2024-01-30 13:04:34 by 贫乳傲娇夜樱子</span>
+还是换pc吧，错玻璃是真没意思![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740603053">40.[0] \<pid:740603053\> 2024-01-30 13:10:27 by sxfx5251</span>
+没提到密教模拟器，我推荐一下这个
+

@@ -197,3 +197,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740600964">33.[0] \<pid:740600964\> 2024-01-30 12:58:39 by LHT_Commander</span>
 是的是的，不过感觉还是我们粥游的角色更涩![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![img](./33_80d0663i.jpg)![img](./33_051c7bl7.jpg)
 
+----
+
+##### <span id="pid740601853">34.[0] \<pid:740601853\> 2024-01-30 13:03:41 by 牟薇</span>
+我的评价是，感谢米桑让我复习了一下东施效颦这个成语的含义。
+
+----
+
+##### <span id="pid740603852">35.[0] \<pid:740603852\> 2024-01-30 13:14:47 by 无寿之梦</span>
+>[jump](#pid740600964) LHT_Commander(2024-01-30 12:58):
+
+这角色有种![img](./35_387c8cmb.jpg)的感觉![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
