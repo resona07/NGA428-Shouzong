@@ -7,3 +7,83 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid0">0.[0] \<pid:0\> 2024-01-30 08:24:22 by aidnk？</span>
 本来我自己是个玩舟的还想帮舟版说两句，结果看完手综的贴后突然明悟，卧槽，这不比游戏好玩，继续ttk，我要看见所有人战作一团，来一场大混操，把陈年旧事和新出的事都拿出来，暗区xz也拿出来，我要看舰圈大战重演，最好把米粥双方全部晋升到毒爆虫级别，再把所有提到过的二游也突突了，杀杀杀![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740547535">1.[16] \<pid:740547535\> 2024-01-30 08:33:27 by 奥影</span>
+虽然我也想看到血流成河
+
+但是手综区真的有这个体量吗
+
+----
+
+##### <span id="pid740547561">2.[24] \<pid:740547561\> 2024-01-30 08:33:43 by sadudas</span>
+你几把谁？
+
+----
+
+##### <span id="pid740547643">3.[10] \<pid:740547643\> 2024-01-30 08:34:16 by A_sys</span>
+你是？
+
+----
+
+##### <span id="pid740547702">4.[8] \<pid:740547702\> 2024-01-30 08:34:42 by sky2023</span>
+你早干嘛呢，谁问你了
+
+----
+
+##### <span id="pid740547746">5.[19] \<pid:740547746\> 2024-01-30 08:35:00 by 我是社管有男不玩</span>
+只会喊打打杀杀的魔怔人能不能滚出手综
+我们只想安安静静的磕米x粥 仙x舟
+
+----
+
+##### <span id="pid740547775">6.[2] \<pid:740547775\> 2024-01-30 08:35:18 by 煤滤镜</span>
+怕不是癔症了
+
+----
+
+##### <span id="pid740547787">7.[12] \<pid:740547787\> 2024-01-30 08:35:22 by 代用编号9527</span>
+>[jump](#pid740547561) sadudas(2024-01-30 
+
+![img](./7_0b9ad8sg.jpg)08:33):
+
+当然是某些复活者啦
+
+----
+
+##### <span id="pid740547866">8.[7] \<pid:740547866\> 2024-01-30 08:36:03 by Alice_Carroll</span>
+米粥69，有南部湾![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+
+----
+
+##### <span id="pid740547938">9.[3] \<pid:740547938\> 2024-01-30 08:36:42 by nextGenerationBell</span>
+下一步是去异色格少前r碧二半雪快雪mihoyo吧自由搬屎？
+
+----
+
+##### <span id="pid740547944">10.[0] \<pid:740547944\> 2024-01-30 08:36:45 by 纯纯fenkeng</span>
+支持把混厕全炸了，男厕女厕好好开
+
+----
+
+##### <span id="pid740547956">11.[13] \<pid:740547956\> 2024-01-30 08:36:53 by 西皮解有点数</span>
+你哪怕装乐子人，都说不出想看粥版血流满地，真的是太孝了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740548060">12.[0] \<pid:740548060\> 2024-01-30 08:37:38 by 尖叫抓挠小娇妻</span>
+这下真成红棉了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740548257">13.[4] \<pid:740548257\> 2024-01-30 08:39:03 by mianmi123</span>
+哪怕我再恭维这里，手综也只是个发泄情绪的地方吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+要是牺牲手综真能让米舟那些极端群体受到该有的制裁，那不用你来了
+
+我想坛友早就把手综放火架上烤了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740548944">14.[0] \<pid:740548944\> 2024-01-30 08:44:24 by old_driver</span>
+那你自己动手啊![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+

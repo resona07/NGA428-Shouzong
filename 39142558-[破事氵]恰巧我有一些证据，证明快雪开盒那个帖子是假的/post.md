@@ -205,3 +205,19 @@ OK
 
 ![img](./22_411c0ehu.jpg)
 
+----
+
+##### <span id="pid740548720">23.[0] \<pid:740548720\> 2024-01-30 08:42:46 by 剑已归</span>
+>[jump](#pid740521656) 白川付田(2024-01-30 00:00) 说: 
+>
+>我看了一下，专栏似乎删了，没存档又可惜又无所谓的，低能弱智的样子存了又有乐子又晦气降智
+>![img](./16_b38ebdsg.jpg)
+>总之是这个人
+>![img](./15_3a6713sg.jpg)
+>哦，这一看还会IP飘移的，挺厉害![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>
+>至于那个尘光，下午那个帖子里有人发了尘光自证账号，这里另有其人
+>相当于蛆裹一身屎到别人面前碰瓷吧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)乐死我了
+

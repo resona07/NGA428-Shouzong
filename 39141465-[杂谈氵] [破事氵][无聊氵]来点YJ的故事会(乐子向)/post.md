@@ -476,3 +476,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740546420">62.[0] \<pid:740546420\> 2024-01-30 08:24:32 by jerry233</span>
 支持史官
 
+----
+
+##### <span id="pid740547263">63.[0] \<pid:740547263\> 2024-01-30 08:31:30 by 小汤圆109</span>
+>[jump](#pid740517749) 弗罗西诺内(2024-01-29 23:29) 说: 
+>
+>还有什么楼,我让佩特哥也顺手全标了。一起掉头皮的人是真的少。
+
+刚发现原版务下场那俩高楼帖的活人也很多。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

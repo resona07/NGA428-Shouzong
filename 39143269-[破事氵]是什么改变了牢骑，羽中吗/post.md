@@ -59,3 +59,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 什么？这不是老玩家最喜欢的老头斗法嘛？你不喜欢？那你被开除老玩家籍了呀。贴吧刚开服那段时间说剧情的全被拿老玩家喜欢老头斗法堵嘴了。
 
+----
+
+##### <span id="pid740534770">9.[3] \<pid:740534770\> 2024-01-30 02:45:13 by An2A</span>
+老雷，想你了![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)![img](./10_100327j.jpeg)
+
+----
+
+##### <span id="pid740547251">10.[0] \<pid:740547251\> 2024-01-30 08:31:24 by 理塘弦一郎</span>
+>[jump](#pid740534770) An2A(2024-01-30 02:45) 说: 
+>
+>老雷，想你了![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)![img](./10_100327j.jpeg)
+
+键政军宅基本不是胖的像ntr本子汁男，就是瘦的穿女装，天天网上键政，基本没有坚持锻炼和控制饮食的，也算这圈子特色了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
