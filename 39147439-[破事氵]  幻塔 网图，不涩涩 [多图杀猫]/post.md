@@ -141,3 +141,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 正式服是个人就行
 回溯服现在也可以找师傅带本了
 
+----
+
+##### <span id="pid740716702">16.[0] \<pid:740716702\> 2024-01-30 23:28:52 by 炎弹</span>
+这游戏还可以。什么时候打算把前面剧情和新手引导修一修？总不能一直保送维拉逃避现实吧
+
