@@ -154,3 +154,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740656476">22.[0] \<pid:740656476\> 2024-01-30 17:22:32 by aisqgl</span>
 其他社区不知道，手综的可能被顺手割了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740658643">23.[0] \<pid:740658643\> 2024-01-30 17:31:35 by CrniBombarderi</span>
+被我大明水师干沉了，我大明天下无敌啊！
+
+----
+
+##### <span id="pid740659704">24.[0] \<pid:740659704\> 2024-01-30 17:36:25 by fgowhut</span>
+>[jump](#pid740653989) ftz1993721(2024-01-30 17:12) 说: 
+>只有南云这种自备干粮的人会真下场
+>花钱雇的朝天放两枪，对得起黄老爷的饷银就行了
+
+![img](./15_3283bd31.png)鸟妈妈自从那个打到七寸之后就闭嘴了吧。
+

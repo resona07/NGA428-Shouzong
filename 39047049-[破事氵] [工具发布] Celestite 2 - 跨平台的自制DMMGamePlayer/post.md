@@ -794,3 +794,10 @@ System.NullReferenceException: Object reference not set to an instance of an obj
 ##### <span id="pid740614727">107.[0] \<pid:740614727\> 2024-01-30 14:12:25 by 棟方愛海</span>
 大佬，不想重新下载游戏了，所以就继续用1.9，但是每次打开都会跳更新公告，有办法关掉吗![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
 
+----
+
+##### <span id="pid740661400">108.[0] \<pid:740661400\> 2024-01-30 17:44:40 by Switch46</span>
+>[jump](#pid740614727) 棟方愛海(2024-01-30 14:12):
+
+1.9的更新服务器已经退回之前的版本了 不会弹了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -1,0 +1,26 @@
+### [破事氵]我们来看看牢骑6年前是怎么评价少前设定的
+
+Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md)
+
+----
+
+##### <span id="pid0">0.[1] \<pid:0\> 2024-01-30 17:40:20 by ジャガイモの花茶</span>
+![img](./0_91fba5sg.jpg)
+再看看他现在![img](./0_a3c435sg.jpg)
+怎么，被羽中开后门了想通了![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+
+----
+
+##### <span id="pid740660769">1.[1] \<pid:740660769\> 2024-01-30 17:41:36 by bobobrobo</span>
+可能是变成翀的嘴替，啊不，星怒了
+
+----
+
+##### <span id="pid740660864">2.[1] \<pid:740660864\> 2024-01-30 17:42:02 by nhlqe</span>
+没啥变化啊，价值全在羽中的架空历史，所以一点都不硬核
+
+----
+
+##### <span id="pid740661446">3.[0] \<pid:740661446\> 2024-01-30 17:44:53 by 胖子猎人</span>
+就陈友谅那水准，那世界观根个弱智一样
+

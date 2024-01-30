@@ -21,3 +21,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 难得的欧美slg亚洲风佳作啊，有没有别的推荐？
 
+----
+
+##### <span id="pid740660711">3.[0] \<pid:740660711\> 2024-01-30 17:41:20 by 悲寂寥1</span>
+>[jump](#pid740656631) duqlwx(2024-01-30 17:23) 说: 
+>
+>难得的欧美slg亚洲风佳作啊，有没有别的推荐？
+
+经典 美德，以及作者新作 Phoenix，听说特工17不错
+
