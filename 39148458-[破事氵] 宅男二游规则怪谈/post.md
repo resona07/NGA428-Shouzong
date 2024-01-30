@@ -239,3 +239,37 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740650923">27.[0] \<pid:740650923\> 2024-01-30 16:59:34 by ck正义</span>
 扩写了一道？
 
+----
+
+##### <span id="pid740651048">28.[0] \<pid:740651048\> 2024-01-30 17:00:09 by PersonaZzz</span>
+>[jump](#pid740650624) solasl(2024-01-30 16:58):
+
+![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)做好文档备份保存啊
+哥们儿你这个设定丰富可以单读成篇了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid740651381">29.[1] \<pid:740651381\> 2024-01-30 17:01:35 by PersonaZzz</span>
+>[jump](#pid740650923) ck正义(2024-01-30 16:59):
+
+修正了一些文笔不通顺的地方![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+其实我本意是坛友每人都提一条规则怪谈的。
+但是点赞和回复好少。2024年不是规则怪谈的年代了![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+
+----
+
+##### <span id="pid740651425">30.[1] \<pid:740651425\> 2024-01-30 17:01:47 by solasl</span>
+>[jump](#pid740651048) PersonaZzz(2024-01-30 17:00) 说: 
+>
+>![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)做好文档备份保存啊
+>哥们儿你这个设定丰富可以单读成篇了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+等都写完了单独发一帖讲述一下幽暗地域探索指南![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740652402">31.[0] \<pid:740652402\> 2024-01-30 17:06:10 by ck正义</span>
+>[jump](#pid740651381) PersonaZzz(2024-01-30 17:01):
+
+往日和和睦睦的坛友现在却一个个消失不见或者用怪异仿佛要吃人般的眼神窥视着你也是一种怪谈
+

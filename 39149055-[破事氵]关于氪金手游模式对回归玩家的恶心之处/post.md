@@ -79,3 +79,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740649769">8.[0] \<pid:740649769\> 2024-01-30 16:54:48 by 一只書</span>
 这是养成模式和无养成的区别，和氪不氪没关系，和手游端游也没关系
 
+----
+
+##### <span id="pid740652763">9.[0] \<pid:740652763\> 2024-01-30 17:07:40 by 不戴帽子先生</span>
+我玩逆水寒手游感觉还不错
+

@@ -74,3 +74,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 顶一下，让更多人看到
 ~~希望这次不会被锁~~
 
+----
+
+##### <span id="pid740651442">12.[0] \<pid:740651442\> 2024-01-30 17:01:51 by 河马大旋风</span>
+>[jump](#pid740641563) ypsys(2024-01-30 16:19):
+
+双手失明![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)
+

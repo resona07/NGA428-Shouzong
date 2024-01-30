@@ -17,3 +17,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740648096">1.[1] \<pid:740648096\> 2024-01-30 16:47:49 by 汪小柒ミ是只喵</span>
 版本末期，就等版本更新了。
 
+----
+
+##### <span id="pid740649629">2.[0] \<pid:740649629\> 2024-01-30 16:54:18 by 韩国的虾米诺手</span>
+恋活伤身体又伤电脑，之前玩kks工作室摄影 电脑经常爆内存卡死，只能强行重启，上个月给我机械硬盘整没了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid740652112">3.[0] \<pid:740652112\> 2024-01-30 17:04:57 by Kingdomrushemmm</span>
+恋活的人物卡咋删去自带的饰品啊，求求大佬教一下![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+
+----
+
+##### <span id="pid740654085">4.[0] \<pid:740654085\> 2024-01-30 17:13:07 by 理塘弦一郎</span>
+>[jump](#pid740652112) Kingdomrushemmm(2024-01-30 17:04) 说: 
+>
+>恋活的人物卡咋删去自带的饰品啊，求求大佬教一下![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+
+在饰品栏删
+
+----
+
+##### <span id="pid740654291">5.[0] \<pid:740654291\> 2024-01-30 17:13:57 by PersonaZzz</span>
+>[jump](#pid740652112) Kingdomrushemmm(2024-01-30 17:04):
+
+换衣服啊。或者读取时只读取角色不读取服装()
+

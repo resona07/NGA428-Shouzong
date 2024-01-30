@@ -146,3 +146,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 咩姐稳定接近30w秒伤，太猛了，杰西卡的九灵秒伤也离谱![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
 
+----
+
+##### <span id="pid740652196">21.[0] \<pid:740652196\> 2024-01-30 17:05:17 by 曙光丶0107</span>
+>[jump](#pid740647940) 七烨丶殇(2024-01-30 16:47) 说: 
+>
+>咩姐稳定接近30w秒伤，太猛了，杰西卡的九灵秒伤也离谱![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+就是好像师姐倒了，昨天师姐一直都是中下水准![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740652866">22.[0] \<pid:740652866\> 2024-01-30 17:08:04 by 天剑歌</span>
+这次逆水寒还更新了一个只有周末才出现的无敌暴龙，设定是小学生。周末才上线![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740654193">23.[0] \<pid:740654193\> 2024-01-30 17:13:32 by 快快快快乐</span>
+>[jump](#pid740643634) 曙光丶0107(2024-01-30 16:29) 说: 
+>
+>最近AI又站起来了，我还在可怜巴巴的秒伤5W，AI已经15W了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+>
+>昨天杰西卡富婆联手神相大爹跟咩姐帮我暴打李白![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+一般大跌都是碎梦和龙吟天问吧，昨天咩姐带我秒伤20w![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

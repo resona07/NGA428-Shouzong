@@ -294,3 +294,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740544102">42.[0] \<pid:740544102\> 2024-01-30 07:59:38 by 0083星辰回忆</span>
 这么躲毒害青少年的新游戏，要我说一年批2、3个就可以了，这么多不害人嘛
 
+----
+
+##### <span id="pid740651421">43.[0] \<pid:740651421\> 2024-01-30 17:01:46 by 不戴帽子先生</span>
+有没有公司倒闭游戏有版号的
+
