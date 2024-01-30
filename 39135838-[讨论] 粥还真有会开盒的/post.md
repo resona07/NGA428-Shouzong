@@ -909,3 +909,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740542944">119.[0] \<pid:740542944\> 2024-01-30 07:43:04 by 夜用加长型黑又硬</span>
 竟能如此相像
 
+----
+
+##### <span id="pid740543782">120.[0] \<pid:740543782\> 2024-01-30 07:55:22 by 碳基猴子与猫猫</span>
+粥粥又在装纯良嘞，累不累啊![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+大家伙可没忘了是谁在二游里挑起争端，率先动用核武器的呢![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+有男不玩，正义反击![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
