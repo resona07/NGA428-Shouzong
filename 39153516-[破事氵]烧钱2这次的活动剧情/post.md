@@ -76,3 +76,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740729678">10.[0] \<pid:740729678\> 2024-01-31 01:16:04 by 冷夜千星</span>
 但凡雇一个兼职网文写手，花一天时间逼他看完设定集写出来的也比现在的好
 
+----
+
+##### <span id="pid740739940">11.[0] \<pid:740739940\> 2024-01-31 06:16:22 by xiebazhi110</span>
+>[jump](#pid740718659) 请问你是老娘的Master吗(2024-01-30 23:43) 说: 
+>
+>我能说就这点字让我看的都浑身难受么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，感觉非常的脑残且刻意，特别是最后瘸指突然出现之后，G36的发言充满了那种偷吃后不知道苦主发没发现，疯狂刻意示好找补的感觉![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+他们是懂写高质量ntr文案的
+
