@@ -408,3 +408,11 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 潜水员戴夫算不算独立游戏其实是有争议的，因为MINTROCKET是NEXON旗下子品牌![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740862782">49.[0] \<pid:740862782\> 2024-01-31 17:34:49 by ZYQGZENX</span>
+正常投资行为吹到手游圈拯救独立游戏第一人不就是过了？
+就像大陆秀夫当初被吹一年四开一样，让舆论回到正常位置而已
+
+还有注意后排棉花出没视奸，没有名字哥都出来了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

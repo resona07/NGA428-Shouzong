@@ -113,3 +113,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 字节的游戏部门不是已经似了吗
 ![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
 
+----
+
+##### <span id="pid740863983">20.[0] \<pid:740863983\> 2024-01-31 17:40:29 by 二刺螈之王师傅</span>
+好家伙，游戏葡萄。和米进一个榜真是天造地设。
+
+编辑：这玩意给米写的典文可不少。
+

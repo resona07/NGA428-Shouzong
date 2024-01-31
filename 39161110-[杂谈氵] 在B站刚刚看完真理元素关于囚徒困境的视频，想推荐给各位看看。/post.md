@@ -75,3 +75,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我超，这个级别可不常见啊。
 
+----
+
+##### <span id="pid740862330">8.[0] \<pid:740862330\> 2024-01-31 17:32:30 by dandanlong</span>
+>[jump](#pid740856735) DuskyElf(2024-01-31 17:06):
+
+OG都被割了头皮，这下汗流浃背了
+
+----
+
+##### <span id="pid740862609">9.[0] \<pid:740862609\> 2024-01-31 17:33:56 by 有男不玩，是米不碰</span>
+>[jump](#pid740856735) DuskyElf(2024-01-31 17:06) 说: 
+>
+>![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)禁言结束了，赶紧来复读一下有男不玩
+>
+>顺便个大伙说下，我吃了个6+300不是因为米粥，而是另有高手啊，我反正不敢说他坏话了
+
+大眼还是库洛？手综说大眼坏话死的比说棉花还快![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740862729">10.[0] \<pid:740862729\> 2024-01-31 17:34:33 by 荆条花3</span>
+>[jump](#pid740856735) DuskyElf(2024-01-31 17:06):
+
+og还能被割头皮？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)到底是个什么机制
+
+----
+
+##### <span id="pid740864515">11.[0] \<pid:740864515\> 2024-01-31 17:42:59 by ypsys</span>
+还有高手？
+

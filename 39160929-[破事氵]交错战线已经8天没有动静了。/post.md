@@ -164,3 +164,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740861547">24.[0] \<pid:740861547\> 2024-01-31 17:28:42 by qabcdfoobar</span>
 这b游戏下载渠道都无了，想知道咋换升版本![img](./24_3283bd31.png)
 
+----
+
+##### <span id="pid740864559">25.[0] \<pid:740864559\> 2024-01-31 17:43:10 by 丶lore丶</span>
+这个没动而已，但是云宝前几天才动了几下![img](./25_8171c005.png)![img](./25_8171c005.png)
+
+----
+
+##### <span id="pid740864817">26.[0] \<pid:740864817\> 2024-01-31 17:44:24 by lancer_m</span>
+年前能开服就是胜利，开不了不如安静的当个尸体罢
+
