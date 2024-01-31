@@ -66,3 +66,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 有一说一瓶子没说过仙开盒![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)原话是转米黑微博说有更过分的事情，还是啥来着
 
+----
+
+##### <span id="pid740867790">10.[0] \<pid:740867790\> 2024-01-31 17:58:38 by 炎弹</span>
+告了，结果反被真查出来公之于众，等着看米哈游笑话![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

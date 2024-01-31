@@ -174,3 +174,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740864817">26.[0] \<pid:740864817\> 2024-01-31 17:44:24 by lancer_m</span>
 年前能开服就是胜利，开不了不如安静的当个尸体罢
 
+----
+
+##### <span id="pid740865217">27.[1] \<pid:740865217\> 2024-01-31 17:46:23 by 贯穿蓝天的非矛</span>
+再涼也不是你這東西有資格評價的
+

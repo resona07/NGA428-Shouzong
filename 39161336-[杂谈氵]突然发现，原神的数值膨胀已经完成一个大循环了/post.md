@@ -40,3 +40,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740863098">5.[0] \<pid:740863098\> 2024-01-31 17:36:18 by 爱与勇气的使者</span>
 ![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)你说的对，但不如水龙一喷
 
+----
+
+##### <span id="pid740865107">6.[0] \<pid:740865107\> 2024-01-31 17:45:51 by NＯ10999</span>
+啊？你还玩啊
+
+----
+
+##### <span id="pid740867404">7.[0] \<pid:740867404\> 2024-01-31 17:56:49 by o5-9</span>
+>[jump](#pid740865107) NO10999(2024-01-31 17:45) 说: 
+>
+>啊？你还玩啊
+
+只是最近关注了一下罢了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)你看我多久没发过原神相关帖了
+

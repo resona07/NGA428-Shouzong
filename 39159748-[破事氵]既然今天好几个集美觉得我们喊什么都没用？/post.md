@@ -413,3 +413,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740859278">49.[0] \<pid:740859278\> 2024-01-31 17:18:20 by 安塞腰鼓对</span>
 头都被红色高棉砍光了当然没用![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740864918">50.[4] \<pid:740864918\> 2024-01-31 17:44:55 by Ayona</span>
+美国佬割印第安人头皮；
+粥解在手综赛博割头皮。
+美国又称米国，m可比美帝，称米帝；
+鹰是美国国鸟，z也可比美帝，称鹰帝。
+鹰帝，阴蒂；鹰解，yj。
+~~被自己奇怪的笑点逗乐了~~
+
+----
+
+##### <span id="pid740867046">51.[0] \<pid:740867046\> 2024-01-31 17:55:09 by yffiM_333</span>
+>[jump](#pid740830943) asteroidsssss(2024-01-31 15:13) 说: 
+>
+>姐我们都滚了咋还来追杀呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不可以刷吗？爱玩玩不玩滚个有男不玩一样，想刷就刷了，没有理由。
+
+----
+
+##### <span id="pid740867835">52.[0] \<pid:740867835\> 2024-01-31 17:58:49 by asteroidsssss</span>
+>[jump](#pid740867046) yffiM_333(2024-01-31 17:55):
+
+当然可以，你看这里热情多了吧，也没吃ccq，谁的问题一目了然了吧
+

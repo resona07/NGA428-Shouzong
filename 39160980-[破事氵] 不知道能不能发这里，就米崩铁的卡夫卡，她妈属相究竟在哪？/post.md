@@ -275,3 +275,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 就kfk一次up的那个版本,应该是1.3下?反正说了是四个人的dna~~应该,过去有点久了~~
 
+----
+
+##### <span id="pid740865092">39.[0] \<pid:740865092\> 2024-01-31 17:45:46 by shandingren</span>
+只因厂的游戏氛围不一直这样吗，游戏里对角色喊，游戏外对攻略作者喊，很奇怪吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

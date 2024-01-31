@@ -313,3 +313,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740856840">45.[0] \<pid:740856840\> 2024-01-31 17:07:05 by 灵活的猫尾巴</span>
 年后又有一波新游上线了
 
+----
+
+##### <span id="pid740866735">46.[0] \<pid:740866735\> 2024-01-31 17:53:44 by Yvon_H</span>
+>[jump](#pid740083491) 死水浑水(2024-01-27 13:58):
+
+中国游戏产业网游、手游为主的这个行业格局又不是版号导致的![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)正是二十年前没有行业监管和引导，资本野蛮生长导致的这个现状
+
