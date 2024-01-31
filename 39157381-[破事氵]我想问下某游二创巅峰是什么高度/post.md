@@ -464,3 +464,9 @@ cm本子爆款的不都是全女的吗![汗](https://img4.nga.178.com/ngabbs/pos
 
 装棉花这种新词我听不懂什么意思，不过你说我是理客中我觉得我没那么厉害，我只是单纯给层主说话而已，如果我真能做到理性客观中立我倒是挺开心的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740818751">61.[0] \<pid:740818751\> 2024-01-31 14:17:48 by 灰流lu</span>
+你知道过去汐斯塔扭蛋广场的景象吗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+顺便二创热度当然是看国内，不会有国产游戏二创热度看霓虹吧![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+

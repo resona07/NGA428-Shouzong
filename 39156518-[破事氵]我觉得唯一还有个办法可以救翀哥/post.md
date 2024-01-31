@@ -60,3 +60,8 @@ ntr玩家
 ##### <span id="pid740817614">8.[0] \<pid:740817614\> 2024-01-31 14:12:46 by yyyy6723289</span>
 直接做成少妇前线，我肯定玩![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
 
+----
+
+##### <span id="pid740819082">9.[0] \<pid:740819082\> 2024-01-31 14:19:13 by 炎弹</span>
+建议把公司卖给米哈游![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

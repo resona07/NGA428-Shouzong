@@ -216,3 +216,38 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740817810">38.[0] \<pid:740817810\> 2024-01-31 14:13:38 by mityberry</span>
 有男脚色不玩，有女玩家不玩
 
+----
+
+##### <span id="pid740818173">39.[4] \<pid:740818173\> 2024-01-31 14:15:10 by Jusctica</span>
+4090+13代i9已经爽了快一年半了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+最近又安排上了quest3和模飞座椅+操纵杆![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+手游只玩一个NIKKE，每个月小充不到一千就当支持下愿意认真服务我们死宅郭楠的开发商和运营。
+至于其他各路手游，论游戏性比不上正经pc游戏一根毛；论角色互动和搞黄色比不上VR老滚，VRVAM一根毛，更别提NAS盘里存的好几个T vr片了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+现在这些国产拳女手游，处处夹私货明里暗里恶心目标人群。你连服务我都做不到，凭什么让我把质量远超于你的娱乐方式放在一边去坐你这赛博大牢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740818378">40.[0] \<pid:740818378\> 2024-01-31 14:16:04 by 阿宝片</span>
+不如屎来氪学院的玩意![img](./40_3d561008.jpg)
+
+----
+
+##### <span id="pid740818809">41.[4] \<pid:740818809\> 2024-01-31 14:18:01 by UID3244105</span>
+赶紧去做呗，你不会以为我反对厂商都去做全男吧？我巴不得你们都赶紧去做![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740819115">42.[0] \<pid:740819115\> 2024-01-31 14:19:27 by 抗韩奇侠米哈游</span>
+全男必玩  赶紧加大力度！！  ![计划通](https://img4.nga.178.com/ngabbs/post/smile/ac41.png)
+
+----
+
+##### <span id="pid740819202">43.[2] \<pid:740819202\> 2024-01-31 14:19:56 by SarDurkn_</span>
+喜欢我给自己买的i9+4090吗![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+![img](./43_0783282i.jpg)
+
+----
+
+##### <span id="pid740819451">44.[0] \<pid:740819451\> 2024-01-31 14:21:12 by 随机生成的id</span>
+快去做全男！赶紧去发大财，去晚了可没份了
+

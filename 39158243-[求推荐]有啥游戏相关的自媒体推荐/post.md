@@ -83,3 +83,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740817249">13.[0] \<pid:740817249\> 2024-01-31 14:11:06 by SAKURA*</span>
 以前看看机核，现在不知道怎么样了
 
+----
+
+##### <span id="pid740818103">14.[0] \<pid:740818103\> 2024-01-31 14:14:56 by lucifiniczw</span>
+如果是游戏自媒体不是手游自媒体，可以推荐一个疯猫MadcatClan，大多数时候就是做做游戏介绍。有个别恰饭商单自己分辨。自媒体不可能屁股不歪的。
+
+----
+
+##### <span id="pid740818823">15.[0] \<pid:740818823\> 2024-01-31 14:18:03 by 炎弹</span>
+多少都沾点米哈游
+
+----
+
+##### <span id="pid740819127">16.[0] \<pid:740819127\> 2024-01-31 14:19:31 by 无限Zero</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)自媒体本来就要吃饭的嘛，商单不可避免
+
+----
+
+##### <span id="pid740819787">17.[0] \<pid:740819787\> 2024-01-31 14:22:43 by 学渣华</span>
+nga手游综合区![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

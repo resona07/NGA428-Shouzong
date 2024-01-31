@@ -86,3 +86,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740816047">17.[0] \<pid:740816047\> 2024-01-31 14:05:16 by 赵十七</span>
 特么的全是这个，不知道开nga会员能不能屏蔽掉
 
+----
+
+##### <span id="pid740818139">18.[0] \<pid:740818139\> 2024-01-31 14:15:02 by 恺暗2679</span>
+>[jump](#pid740816047) 赵十七(2024-01-31 14:05) 说: 
+>
+>特么的全是这个，不知道开nga会员能不能屏蔽掉
+
+不能![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+我开了，还在
+
