@@ -287,3 +287,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 stn商单那个单纯的作秀，我觉得不会有人觉得他真在道歉
 
+----
+
+##### <span id="pid740753132">36.[0] \<pid:740753132\> 2024-01-31 09:05:50 by 悬崖边的不倒翁</span>
+>[jump](#pid740722021) 多看看合订本(2024-01-31 00:08):
+
+羽中觉得ml不符合一般向潮流 所以做ml的策划都被赶走叻
+
+----
+
+##### <span id="pid740754193">37.[0] \<pid:740754193\> 2024-01-31 09:11:41 by 绝望之诗</span>
+主要是这样东西二测就被爆料了，真就全项目上下没一个人觉得有问题吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

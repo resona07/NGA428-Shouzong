@@ -422,3 +422,8 @@ CF幽灵模式![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740751970">71.[0] \<pid:740751970\> 2024-01-31 08:59:16 by linkaM</span>
 当场斩首太乐了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740753427">72.[0] \<pid:740753427\> 2024-01-31 09:07:25 by 抽烟的指挥官</span>
+![img](./72_78c9ffd4.jpg)
+

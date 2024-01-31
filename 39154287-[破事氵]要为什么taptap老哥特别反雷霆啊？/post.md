@@ -97,3 +97,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我的，原来是识君代理的
 
+----
+
+##### <span id="pid740754712">15.[0] \<pid:740754712\> 2024-01-31 09:14:25 by nitroen1226</span>
+>[jump](#pid740751506) Bladerunner_2049(2024-01-31 08:56) 说: 
+>
+>![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我的，原来是识君代理的
+
+我就觉得你记错了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)。虽然雷霆很sb.但是代理开罗和弹射是为数不多的好事了。。
+

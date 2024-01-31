@@ -237,3 +237,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 破防更多的外娶帖一共才4页，楼里打滚的最少六七个了，有说国男丑没人爱的，有说国男是要买老婆，就楼里指出彩礼不也是买……结果破防得更多了，帖子没了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
 洋带人赐名某国女性是easy girl，搞笑的是国女骂国男造词侮辱女性![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)
 
+----
+
+##### <span id="pid740754330">36.[1] \<pid:740754330\> 2024-01-31 09:12:20 by 夜用加长型黑又硬</span>
+发现原本爆米的atm突然不肯爆米了自然气，毕竟真的有相关利益
+
