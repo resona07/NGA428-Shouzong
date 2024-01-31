@@ -68,3 +68,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740904708">9.[0] \<pid:740904708\> 2024-01-31 21:43:24 by 旋转跳跃秀木兰</span>
 工信部的含金量！![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740905436">10.[2] \<pid:740905436\> 2024-01-31 21:48:37 by 玩什么玩的</span>
+>[jump](#pid740903947) Dorothy_Goddess(2024-01-31 21:38) 说: 
+>
+>补一个历史记录，《比较低》
+>![img](./3_615435dl.jpg)
+
+米该去b站买热搜了，庆祝一下原神登顶![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

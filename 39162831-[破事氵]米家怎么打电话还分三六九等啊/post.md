@@ -132,3 +132,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740904683">19.[0] \<pid:740904683\> 2024-01-31 21:43:12 by 流离琉璃666</span>
 不能吧？我当时还在玩和刚跑路时也是一分钱没给米，照样坑我彩信费啊![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid740905593">20.[0] \<pid:740905593\> 2024-01-31 21:49:44 by va3kyrie</span>
+我也没有 氪了六位数吧
+

@@ -180,3 +180,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740904748">27.[0] \<pid:740904748\> 2024-01-31 21:43:42 by Soloist0048</span>
 真ml人 看到这坨早跑了
 
+----
+
+##### <span id="pid740905044">28.[0] \<pid:740905044\> 2024-01-31 21:45:56 by 高咲侑Official</span>
+因为要骗人进去鲨，享受快感，所以说<b>有男不玩</b>的打击感那么强，就是因为骗不到人，结晶就急了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
