@@ -1996,3 +1996,8 @@ zsbd![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
 水陈的活动加上干员密录描写其实还好，国外好评真有不少
 
+----
+
+##### <span id="pid740933256">226.[0] \<pid:740933256\> 2024-02-01 01:31:19 by samu11132</span>
+最近本想下载下来玩玩的，一进这贴立马看见俩男角色杵那儿，直接润![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
+

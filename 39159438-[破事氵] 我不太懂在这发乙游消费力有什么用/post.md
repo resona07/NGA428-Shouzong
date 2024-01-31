@@ -360,3 +360,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 再次说明了xxn的脑子只能把有男不玩理解成隔空喊话，多少有点自我意识过剩了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740933858">42.[0] \<pid:740933858\> 2024-02-01 01:39:50 by 奸奇至尊巫师</span>
+>[jump](#pid740929841) 极限剂量(2024-02-01 00:53):
+
+难绷，给你点了个赞然后一刷新看到当场掉了，看来这套百裂拳是真的有用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

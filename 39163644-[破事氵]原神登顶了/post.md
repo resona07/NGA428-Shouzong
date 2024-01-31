@@ -304,3 +304,8 @@ nga和米同样的遥遥领先呢![偷笑](https://img4.nga.178.com/ngabbs/post/
 ##### <span id="pid740925206">47.[0] \<pid:740925206\> 2024-02-01 00:14:28 by 你说的对但NGA是</span>
 我还是问这个表格能不能干死米，有没有处罚力度
 
+----
+
+##### <span id="pid740933523">48.[0] \<pid:740933523\> 2024-02-01 01:35:15 by ninesky1985</span>
+是这种登顶吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

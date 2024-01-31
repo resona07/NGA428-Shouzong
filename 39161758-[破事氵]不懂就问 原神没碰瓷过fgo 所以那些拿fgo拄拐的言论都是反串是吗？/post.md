@@ -453,3 +453,13 @@ sorry 我看的是标题，后来几次也都是看的标题。
 [url](https://bbs.nga.cn/read.php?tid=37754244&amp;authorid=17926900)
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这不是我们九月消失的赛博生命牢F同志吗，记得不要挖坟
 
+----
+
+##### <span id="pid740934118">60.[0] \<pid:740934118\> 2024-02-01 01:43:44 by 音无星梦</span>
+>[jump](#pid740922206) 神圣的卡苟斯(2024-01-31 23:52) 说: 
+>
+>[url](https://bbs.nga.cn/read.php?tid=37754244&amp;authorid=17926900)
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这不是我们九月消失的赛博生命牢F同志吗，记得不要挖坟
+
+小半年了还没打赢复活赛啊，缺的电子宠物这块哪个op给我补上啊？![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+

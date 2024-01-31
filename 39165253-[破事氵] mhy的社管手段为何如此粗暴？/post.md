@@ -202,3 +202,44 @@ Yj是罕见公司
 
 害怕，看了下，那哥们我印象里一开始还不愿意直接黑米来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740933226">26.[0] \<pid:740933226\> 2024-02-01 01:30:53 by 一曲浮生</span>
+>[jump](#pid740926061) ArthKurt(2024-02-01 00:20) 说: 
+>
+>只能说堵嘴是最低级的 管他是社管还是bw
+>所以
+>Yj是罕见公司
+
+别明早上起来你也寄了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740933364">27.[0] \<pid:740933364\> 2024-02-01 01:32:51 by mianmi123</span>
+>[jump](#pid740930957) lucifiniczw(2024-02-01 01:04):
+
+这下知道外服和外服不一样了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740933427">28.[1] \<pid:740933427\> 2024-02-01 01:33:37 by lucifiniczw</span>
+>[jump](#pid740932763) mianmi123(2024-02-01 01:25) 说: 
+>
+>害怕，看了下，那哥们我印象里一开始还不愿意直接黑米来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+因为这哥们是真的来车碧蓝航线的。真有仇那种![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只是为了自证说了一嘴米。
+
+----
+
+##### <span id="pid740933580">29.[0] \<pid:740933580\> 2024-02-01 01:36:04 by ArthKurt</span>
+>[jump](#pid740933226) 一曲浮生(2024-02-01 01:30) 说: 
+>
+>别明早上起来你也寄了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+目前还没寄 不知道是不是睡觉去了
+
+----
+
+##### <span id="pid740933646">30.[0] \<pid:740933646\> 2024-02-01 01:36:55 by coldse</span>
+发生甚么事了？你们说的是最近割头皮的m还是被工信部点名的m
+
