@@ -86,3 +86,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 怎么发了皮肤预告流水应声腰斩啊
 
+----
+
+##### <span id="pid740937662">11.[0] \<pid:740937662\> 2024-02-01 02:52:22 by 渣渣非洲提督</span>
+>[jump](#pid740935409) lingfengyuww(2024-02-01 02:05):
+
+用烧钱1的名言吧
+
+“我的士兵们能为我效忠到最后一刻，你的人形们呢？指挥官？”
+
+By叶戈尔
+
+追放的人形纷纷表示指挥官这人真不熟，顶多让他一瘸一拐地修天文台
+
+----
+
+##### <span id="pid740937894">12.[0] \<pid:740937894\> 2024-02-01 02:59:03 by 西施包子铺账房</span>
+你的id我很喜欢，你的私信记得关![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

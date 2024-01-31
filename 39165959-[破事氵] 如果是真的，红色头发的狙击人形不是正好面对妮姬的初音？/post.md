@@ -12,3 +12,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740937122">1.[1] \<pid:740937122\> 2024-02-01 02:38:51 by dogcmx</span>
 其实不一定，毕竟玩妮姬的人不会去玩龟游。
 
+----
+
+##### <span id="pid740937921">2.[0] \<pid:740937921\> 2024-02-01 02:59:39 by 胖子猎人</span>
+话说这个红色到底是指哪个?2000的话，不是紫发?
+
