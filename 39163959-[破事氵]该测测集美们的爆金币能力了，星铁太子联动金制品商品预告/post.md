@@ -110,3 +110,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740912654">20.[0] \<pid:740912654\> 2024-01-31 22:40:52 by 心★零</span>
 你让xxn买点同人吧唧支持就行了，金子就算了，人抽角色都靠攒还会买你这东西。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740915170">21.[0] \<pid:740915170\> 2024-01-31 22:59:22 by 奔波奔波霸</span>
+溢价这么高
+这种营销铁回本的
+

@@ -378,3 +378,28 @@ szb要火(确信)
 ##### <span id="pid740912857">45.[0] \<pid:740912857\> 2024-01-31 22:42:29 by dengzhuowei22</span>
 为什么没有fgo玩家聊烟雾镜啊，我一直觉得芜啸比咿呀哈更有震慑力![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
 
+----
+
+##### <span id="pid740913290">46.[0] \<pid:740913290\> 2024-01-31 22:45:44 by Starcoin</span>
+>[jump](#pid740912857) dengzhuowei22(2024-01-31 22:42):
+
+fgo玩家大概是忙着打2.7大蜘蛛，没时间吹水![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+而且兔子表情包相比烟雾镜表情包肯定更泛用
+
+----
+
+##### <span id="pid740913533">47.[0] \<pid:740913533\> 2024-01-31 22:47:51 by dengzhuowei22</span>
+>[jump](#pid740913290) Starcoin(2024-01-31 22:45) 说: 
+>
+>fgo玩家大概是忙着打2.7大蜘蛛，没时间吹水![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+错误的，fgo玩家在讨论螺旋色飞马，你说的是bgo
+
+----
+
+##### <span id="pid740915245">48.[0] \<pid:740915245\> 2024-01-31 22:59:50 by a22899256</span>
+>[jump](#pid740913533) dengzhuowei22(2024-01-31 22:47):
+
+老屁股在日服剛出那會都聊完了 新來的翻了翻 覺得自己講不出更好的 摸了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
