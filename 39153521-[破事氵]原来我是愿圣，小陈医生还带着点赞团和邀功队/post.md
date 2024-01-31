@@ -156,3 +156,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740760329">25.[0] \<pid:740760329\> 2024-01-31 09:42:07 by 东方豆腐饭店</span>
 很符合我对“网络中医”的刻板印象![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740770157">26.[0] \<pid:740770157\> 2024-01-31 10:27:45 by 罗马之花mkⅡ</span>
+额，现在不是中医也得学中医理论了
+
+----
+
+##### <span id="pid740770898">27.[0] \<pid:740770898\> 2024-01-31 10:31:05 by Ayona</span>
+粥版集美搁这养号呢，和外面的帖两个世界啊
+

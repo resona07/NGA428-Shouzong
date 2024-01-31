@@ -95,3 +95,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740765440">13.[0] \<pid:740765440\> 2024-01-31 10:05:38 by bsbot</span>
 完了，这是我对少钱2最失望的时候，就算是炸也只是蹦出来个闷声屁![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid740768152">14.[1] \<pid:740768152\> 2024-01-31 10:18:08 by ★星の在り処☆</span>
+只要没有剧情，剧情就不会暴雷![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

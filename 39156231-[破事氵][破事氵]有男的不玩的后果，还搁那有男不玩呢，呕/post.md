@@ -107,3 +107,37 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这游戏，夜兰甘雨直接各自单通一路不就好了吗？![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 还是说哥们弃坑这半年多，已经膨胀到单通不了了吗？
 
+----
+
+##### <span id="pid740767660">18.[1] \<pid:740767660\> 2024-01-31 10:15:48 by xiangtongs</span>
+>[jump](#pid740766240) 齐布_(2024-01-31 10:09) 说: 
+>
+>狗头加晚了，楼主要被撅力![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+太跳怕头皮没了，隐晦点，这可不光说二字的
+
+----
+
+##### <span id="pid740767790">19.[1] \<pid:740767790\> 2024-01-31 10:16:27 by 正邪flag</span>
+有男不玩，他玩了，所以他痛苦，我不玩，我开心的一比，我还可以看着他痛苦
+
+----
+
+##### <span id="pid740767825">20.[0] \<pid:740767825\> 2024-01-31 10:16:36 by 约束的现世</span>
+不氪6+5导致的
+
+----
+
+##### <span id="pid740767889">21.[2] \<pid:740767889\> 2024-01-31 10:16:52 by 缩小帽设定是神</span>
+有男还玩玩的
+
+----
+
+##### <span id="pid740768001">22.[3] \<pid:740768001\> 2024-01-31 10:17:22 by 樱木花kun</span>
+提瓦特大陆不止有马斯克礁![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740769193">23.[0] \<pid:740769193\> 2024-01-31 10:22:58 by 技竜</span>
+你不练?不练集美们可要攻击你了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
