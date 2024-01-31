@@ -168,3 +168,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./28_dbe29ffi.jpg)
 
+----
+
+##### <span id="pid740891475">29.[0] \<pid:740891475\> 2024-01-31 20:16:55 by linkaM</span>
+草 ……![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740891730">30.[0] \<pid:740891730\> 2024-01-31 20:18:24 by 无花果的夏天</span>
+我一开始还以为你说那个被骗去做巫女的v，结果才知道原来是硬币哥，确实挺像的，我是有点PTSD
+
+----
+
+##### <span id="pid740891985">31.[0] \<pid:740891985\> 2024-01-31 20:20:03 by 纯良棉花</span>
+>[jump](#pid740881035) ljn23500(2024-01-31 19:13) 说: 
+>
+>一句话，猴哥复播我肯定办个卡给他庆祝一下![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+作为白猴我衷心祝愿主播的家人排队生病捏![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)我是纯良白猴
+

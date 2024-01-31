@@ -76,3 +76,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740890595">11.[0] \<pid:740890595\> 2024-01-31 20:11:34 by 上单单排</span>
 版本答案是这样的
 
+----
+
+##### <span id="pid740891251">12.[2] \<pid:740891251\> 2024-01-31 20:15:31 by linkaM</span>
+>[jump](#pid740887528) 对对双双(2024-01-31 19:53) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)因为ai卡面都被骂烂了
+
+至少是没被骂的时候就出的公告表忠心 可不是翻车后才补救![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740891476">13.[0] \<pid:740891476\> 2024-01-31 20:16:56 by rream_kly</span>
+>[jump](#pid740885679) 药师鬼(2024-01-31 19:41):
+
+所以要向女玩家学习啊，多骂骂厂商才能然厂商更好的服务大众![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740891602">14.[4] \<pid:740891602\> 2024-01-31 20:17:40 by 水银之蛇2622</span>
+男性向游戏要是这样写怕是立马就有一群xxn跳出来和纸片人竞雌，并指着玩家鼻子大骂吊癌男凝性饥渴了吧？所以有男不玩捏，顺便还要举报xxn玩的游戏和看的小说，单输不如双输![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -150,3 +150,8 @@ DMM系会给你抠搜的一点让你体验下 然后想攒好感礼物不知道�
 ##### <span id="pid740890927">19.[0] \<pid:740890927\> 2024-01-31 20:13:36 by 来自AK47的问候</span>
 玩过，说实话太彻底确实容易审美疲劳![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740892689">20.[0] \<pid:740892689\> 2024-01-31 20:24:34 by 克难万嘉</span>
+欲神幻想吗![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)这游戏前一段时间的ntr可是整了个大活，就真正的ntr，夫目前犯被干了个爽那种，雷蒙夫人一比都显得很纯爱了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
