@@ -54,3 +54,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)如果你是为了给大伙当侦察兵探路找乐子，那我佩服你食雪的勇气。
 如果你只是想玩，那你多吃点，这是专属于你的会员制餐厅。
 
+----
+
+##### <span id="pid740792813">9.[0] \<pid:740792813\> 2024-01-31 12:06:13 by akihanami</span>
+你看到奇怪的，就是不值得奇怪的。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740794044">10.[0] \<pid:740794044\> 2024-01-31 12:12:02 by Gebra</span>
+>[jump](#pid740789255) 丿夕日坂(2024-01-31 11:49) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)如果你是为了给大伙当侦察兵探路找乐子，那我佩服你食雪的勇气。
+>如果你只是想玩，那你多吃点，这是专属于你的会员制餐厅。
+
+主要还是找乐子为主，可是g36剧情没了我乐子只能从这块来了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)
+~~还有把少前2的乐子发给我玩少前1还是95厨的朋友很好笑~~
+
+----
+
+##### <span id="pid740794061">11.[0] \<pid:740794061\> 2024-01-31 12:12:07 by Belfa</span>
+玩了半小时的含金量，就这水平也有脸在Steam上骂别人，自己就是依托答辩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740794540">12.[0] \<pid:740794540\> 2024-01-31 12:14:19 by ltgema</span>
+比起之前的，这并不离谱
+
+既然更离谱的都有了，这又算什么呢
+
+只能说福报![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

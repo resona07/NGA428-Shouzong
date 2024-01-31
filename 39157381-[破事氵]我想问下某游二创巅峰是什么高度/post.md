@@ -77,3 +77,29 @@ r18g二创倒是莫名的多。
 ##### <span id="pid740791413">13.[0] \<pid:740791413\> 2024-01-31 11:59:31 by fervent159</span>
 moo的短篇图集还是挺烧的![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
 
+----
+
+##### <span id="pid740793162">14.[1] \<pid:740793162\> 2024-01-31 12:07:52 by asbeersloth</span>
+感觉不如…
+![img](./14_bf6033b6.jpg)
+
+----
+
+##### <span id="pid740793675">15.[0] \<pid:740793675\> 2024-01-31 12:10:19 by sagan6</span>
+机能风太硬核，不好画![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740794096">16.[1] \<pid:740794096\> 2024-01-31 12:12:16 by 咪咔啵啦</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)方舟是不是PV动画还得等外服的
+
+----
+
+##### <span id="pid740794547">17.[1] \<pid:740794547\> 2024-01-31 12:14:21 by RX93牛高达</span>
+无能狂怒作者后来跑去画女同futa音趴了，已经被原谅了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740794633">18.[0] \<pid:740794633\> 2024-01-31 12:14:45 by 八舞的剑舞</span>
+不是开服就已经半壁江山了吗，你在胡说什么呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
