@@ -124,3 +124,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740878733">19.[0] \<pid:740878733\> 2024-01-31 18:59:13 by 玉不伤</span>
 这就是那个闻女神异味的游戏吗![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740880989">20.[0] \<pid:740880989\> 2024-01-31 19:13:29 by titwar</span>
+>[jump](#pid740868214) gymandyou(2024-01-31 18:00) 说: 
+>
+>虽然但是，这游戏是不是也有专武石块啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+有，很经典的米氏卡池。音乐剧情人设atlas，游戏设计应该是完美。宫殿有意思，养成非常非常非常麻烦，主角还不能带启示卡(圣遗物)挑战关卡还经典两队，有过之而无不及就是了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+本来想说说剧情的，结果今天赶最后一天累死累活打完5个6万血的血牛跳出来一个敬请期待![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)第二个剧情就断了。这还是3月份就要上的。就这个完成度来说非常悬，第一个宫殿悬崖勒马算低开，后面能不能高走就不得而知了
+总体质量评价在《制作组自己没玩过游戏吗》那一栏，就不要想这跟p5本体做比较了，还是和其他手游掰头吧，能有很大优势
+顺便一提中午还发了5星角色自选和武器自选各3张，然后我不知道有什么用，抽出来了就半天能玩了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+

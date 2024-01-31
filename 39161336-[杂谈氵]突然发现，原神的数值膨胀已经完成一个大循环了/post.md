@@ -54,3 +54,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 只是最近关注了一下罢了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)你看我多久没发过原神相关帖了
 
+----
+
+##### <span id="pid740879073">8.[1] \<pid:740879073\> 2024-01-31 19:01:17 by Nekonya_</span>
+都没新韭菜了，剩下的老韭菜再不割就黄了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740879076">9.[0] \<pid:740879076\> 2024-01-31 19:01:18 by 暴风雨中的火花</span>
+倒不如说，只要出了一个强度碾压之前所有角色的新人，那其他老人在强度上对于回坑的人而言就等于不存在了，这点对于新人也是一样的，出强力角一般也是新人入坑的最好时机~~而这个时间点厂商一般会安排在周年或者春节等方便拉新的时候~~
+

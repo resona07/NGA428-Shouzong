@@ -399,3 +399,9 @@ op：不眠之夜![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_2
 ##### <span id="pid740871741">59.[0] \<pid:740871741\> 2024-01-31 18:19:04 by bsbot</span>
 投诉超抖也是一种赢![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
 
+----
+
+##### <span id="pid740880284">60.[0] \<pid:740880284\> 2024-01-31 19:08:51 by AAO233</span>
+你们截图泥潭的，不是正好说明米哈游被投诉多么？
+第三季度就是米哈游掌控NGA的时候。
+

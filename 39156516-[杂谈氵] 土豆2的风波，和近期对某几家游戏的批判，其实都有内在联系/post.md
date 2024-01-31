@@ -476,3 +476,44 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这倒不至于，抖音之类新媒体虽说泥潭看不上，但是人家是真把以色列的媒体霸权打碎了，要骂骂克苏鲁吧，克苏鲁不和雌性生物联合打压男性，男性文娱不会这样
 
+----
+
+##### <span id="pid740879018">51.[1] \<pid:740879018\> 2024-01-31 19:01:00 by 无寿之梦</span>
+>[jump](#pid740876528) 爱姆汉德桑(2024-01-31 18:46):
+
+成分查完了攻击不到是吧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+我对着lgbtq发这[视频](https://www.bilibili.com/video/BV1mV411c757)，你理解成我跟它们是一路的，你的理解力给出答案了。![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+打滚是只能打滚的，咬了人认错是不可能的。
+
+只能最后[帮你一把吧](https://mp.weixin.qq.com/s?__biz=MzA4Mjg5MDYwMw==&amp;mid=2650083997&amp;idx=1&amp;sn=5400af1f5c0441f99f6506028ba044c6&amp;chksm=87ff6899b088e18f2fdb89f8aae2d8629d5f7768a953d112be76394d80b0abb6c055657d7021&amp;scene=27)
+
+----
+
+##### <span id="pid740879747">52.[0] \<pid:740879747\> 2024-01-31 19:05:26 by 爱姆汉德桑</span>
+>[jump](#pid740879018) 无寿之梦(2024-01-31 19:01) 说: 
+>
+>成分查完了攻击不到是吧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>
+>我对着lgbtq发这[视频](https://www.bilibili.com/video/BV1mV411c757)，你理解成我跟它们是一路的，你的理解力给出答案了。![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+>
+>打滚是只能打滚的，咬了人认错是不可能的。
+>
+>只能最后[url=https://mp.weixin.qq.com/s?__biz=MzA4Mjg5MDYwMw==&amp;mid=2650083997&amp;idx=1&amp;sn=5400af1f5c0441f99f6
+
+笑了，那你来解释下“最后由外部炸场留下BAT这些国内互联网龙头”
+47l那第一句话我很喜欢
+我可以听听你咋解释的
+
+----
+
+##### <span id="pid740880143">53.[1] \<pid:740880143\> 2024-01-31 19:07:55 by 无寿之梦</span>
+>[jump](#pid740877048) 黄前久美子子(2024-01-31 18:49):
+
+那就真键政了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+不过文娱这块连写地区行业发展白皮书的社科学者都是女性居多，大龄社科女比网上这帮xxn的味儿大多了。
+
+草，怎么就成了这个样子。![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
