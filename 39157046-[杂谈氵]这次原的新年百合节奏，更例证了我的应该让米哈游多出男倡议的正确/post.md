@@ -141,3 +141,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740788472">19.[0] \<pid:740788472\> 2024-01-31 11:46:05 by tmacx4</span>
 真的，你们看mhy流水都要被那俩乙女游戏抢完了，显然是男人出太少了，快速进化到全男别肘之后mhy的游戏性、建模等等不是吊打？穿少点还不怕举报，制作组做的也开心，米也爆得多。
 
+----
+
+##### <span id="pid740796973">20.[0] \<pid:740796973\> 2024-01-31 12:26:35 by absordh2odemon</span>
+>[jump](#pid740784384) dandanlong(2024-01-31 11:28) 说: 
+>
+>先生不去米哈游任职策划真是屈才啊
+
+我不够阴湿，他们不要我的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

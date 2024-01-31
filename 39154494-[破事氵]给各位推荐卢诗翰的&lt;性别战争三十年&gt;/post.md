@@ -382,3 +382,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你这里打开的那篇我确实想看看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740795354">43.[0] \<pid:740795354\> 2024-01-31 12:18:23 by 未來文楽</span>
+>[jump](#pid740740939) 狗熊叔(2024-01-31 06:59) 说: 
+>
+>恰饭也得懂得避嫌吧？这就和有人前脚在喊打倒日本帝国主义，后脚因为太君给的钱多说this way一样![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)何况从他第一次恰饭好多人就在提醒他这玩意不是啥好东西了。这种人以后写的文章还有啥参考性么？他写文章的动机就是为了恰口饭罢了。探店博主还知道接广告得去孵蛋不能收饭店钱呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不愧是糖ga，国产tga年度最佳手游不是好东西，避嫌，日本帝国主义，好多人，参考性，一句话几个典，家里开典当铺的？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740796481">44.[1] \<pid:740796481\> 2024-01-31 12:24:05 by ypsys</span>
+>[jump](#pid740795354) 未來文楽(2024-01-31 12:18):
+
+ 米÷不去找粥÷贴贴，搁这浑水摸鱼你M呢??
+
