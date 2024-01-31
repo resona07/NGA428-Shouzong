@@ -143,3 +143,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740916758">23.[0] \<pid:740916758\> 2024-01-31 23:10:43 by 没活了硬整是吧？</span>
 ![img](./23_c56b22mw.jpg)
 
+----
+
+##### <span id="pid740917357">24.[0] \<pid:740917357\> 2024-01-31 23:15:23 by 鲜血旋律</span>
+但是领取红包人的这个ID让我有点费解
+
