@@ -89,3 +89,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 其实我已经买了几个了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是更想玩格斗性弱一点的抽卡手游，毕竟老年人手残![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740922398">14.[0] \<pid:740922398\> 2024-01-31 23:53:37 by WoCa8793</span>
+>[jump](#pid740920956) 7X28X9(2024-01-31 23:42) 说: 
+>
+>其实我已经买了几个了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是更想玩格斗性弱一点的抽卡手游，毕竟老年人手残![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+那就只能是激战传说了……但这个新卡越出越邪门，老卡很难保值，pvp越p越累。而且没有国服，国没真的没有人打算开发龙珠的
+

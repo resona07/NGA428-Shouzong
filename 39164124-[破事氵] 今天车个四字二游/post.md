@@ -328,3 +328,22 @@ Master Duel也是M，MXZ真的是![哭笑](https://img4.nga.178.com/ngabbs/post/
 ##### <span id="pid740920892">48.[0] \<pid:740920892\> 2024-01-31 23:42:22 by 香风智乃i</span>
 不懂就问，这个游戏不练男卡会被围攻吗？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740921440">49.[2] \<pid:740921440\> 2024-01-31 23:46:23 by malsjkpo</span>
+句句不提，句句都是![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740921544">50.[0] \<pid:740921544\> 2024-01-31 23:47:26 by 尚未转职枪兵的幸运E</span>
+>[jump](#pid740920892) 香风智乃i(2024-01-31 23:42) 说: 
+>
+>不懂就问，这个游戏不练男卡会被围攻吗？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+不用，但是你玩闪刀姬做个最大场会被嘲笑![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740921843">51.[0] \<pid:740921843\> 2024-01-31 23:49:38 by 韩国的虾米诺手</span>
+里面还有个叫阿尔贝的黑丝小男孩，恶心的一批![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

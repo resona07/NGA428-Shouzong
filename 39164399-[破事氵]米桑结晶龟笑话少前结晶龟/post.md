@@ -42,3 +42,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740920502">6.[0] \<pid:740920502\> 2024-01-31 23:39:22 by 猛干的小号</span>
 你猜龟仙人是谁给谁取得![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740922721">7.[0] \<pid:740922721\> 2024-01-31 23:56:02 by Milan米兰</span>
+算是五十步笑两百步吧，羽中确实做的有点夸张了。
+不过这些米哈游玩家自己不也得cp遍地，甚至原本的ml角色也被拉去组cp
+
+----
+
+##### <span id="pid740922854">8.[0] \<pid:740922854\> 2024-01-31 23:57:08 by lucifiniczw</span>
+评价为小龟笑大龟。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
