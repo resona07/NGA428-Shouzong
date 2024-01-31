@@ -220,3 +220,68 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 反击了还打不过，更惨了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid740830226">29.[0] \<pid:740830226\> 2024-01-31 15:10:06 by fcztswcbyy</span>
+>[jump](#pid740828440) 这里是狗粮爱好者协会(2024-01-31 15:02) 说: 
+>
+>一代新人换旧人很正常
+>
+>但是旧人看着新人越来越多被人脑控变成傻逼，还要被傻逼跳脸攻击
+>
+>反击了还打不过，更惨了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+自然世代更替导致的舆论变迁是很正常的，但是通过洗脑、控评、饭圈、举报、抹黑等等恶劣手段控制舆论变化，把黑的说成白的就很恶劣的
+
+----
+
+##### <span id="pid740831879">30.[2] \<pid:740831879\> 2024-01-31 15:17:24 by 沓野奏</span>
+6，证道了
+
+----
+
+##### <span id="pid740832602">31.[2] \<pid:740832602\> 2024-01-31 15:20:27 by 猛干的小号</span>
+哥们你被禁言了？
+只能说某厂又开始在这里续费是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+![img](./31_f58ab44i.jpg)
+
+----
+
+##### <span id="pid740832873">32.[0] \<pid:740832873\> 2024-01-31 15:21:38 by 己曹丁丙高姬</span>
+>[jump](#pid740819008) 丙常申乙卢寇(21楼)</span> (2024-01-31 14:18):
+
+得了吧，你也半斤八两好吧![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+![img](./32_04f8cb9j.jpg)
+
+----
+
+##### <span id="pid740832921">33.[1] \<pid:740832921\> 2024-01-31 15:21:50 by 沓野奏</span>
+>[jump](#pid740832602) 猛干的小号(2024-01-31 15:20) 说: 
+>
+>哥们你被禁言了？
+>只能说某厂又开始在这里续费是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+>![img](./31_f58ab44i.jpg)
+
+你再看看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  黑体加粗重点
+
+----
+
+##### <span id="pid740833448">34.[2] \<pid:740833448\> 2024-01-31 15:24:01 by fervent159</span>
+>[jump](#pid740832873) 己曹丁丙高姬(2024-01-31 15:21) 说: 
+>
+>得了吧，你也半斤八两好吧![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+>![img](./32_04f8cb9j.jpg)
+
+这个查匿名成分靠谱吗，我不太懂
+
+----
+
+##### <span id="pid740834586">35.[1] \<pid:740834586\> 2024-01-31 15:28:48 by 顺劈带暴击</span>
+>[jump](#pid740832602) 猛干的小号(2024-01-31 15:20) 说: 
+>
+>哥们你被禁言了？
+>只能说某厂又开始在这里续费是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+>![img](./31_f58ab44i.jpg)
+
+标题违规但没扣分，这倒是不用喷![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)可能是另一种保人手段
+

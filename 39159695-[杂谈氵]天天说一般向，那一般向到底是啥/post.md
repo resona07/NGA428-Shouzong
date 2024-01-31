@@ -122,3 +122,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740830220">21.[1] \<pid:740830220\> 2024-01-31 15:10:04 by lft521g</span>
 现在统一纠正为混厕了，但是原来的所谓一般向二游和现在的，最大的不同就是，原来的管理人员分开男女厕，现在的会优先照顾女性的厕所体验![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
 
+----
+
+##### <span id="pid740831477">22.[0] \<pid:740831477\> 2024-01-31 15:15:39 by 德国黑兔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)金铲铲之战这种绝对是一般向了吧，你怎么敢假定小小英雄的性别。
+
+----
+
+##### <span id="pid740834456">23.[0] \<pid:740834456\> 2024-01-31 15:28:15 by 在纽约的企鹅</span>
+你说的那是社交类，女的打拳没啥用![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -112,3 +112,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740829659">19.[0] \<pid:740829659\> 2024-01-31 15:07:47 by 无名猫猫头</span>
 没注销账号是这样的
 
+----
+
+##### <span id="pid740834227">20.[0] \<pid:740834227\> 2024-01-31 15:27:17 by 纯路人，有一说一</span>
+无所谓，为了防止沪圈游戏的骚扰，我直接屏蔽了上海地区的座机号![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

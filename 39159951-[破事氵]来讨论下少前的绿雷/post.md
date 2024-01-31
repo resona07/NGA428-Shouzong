@@ -41,3 +41,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 破鞋流牛战士提醒纯爱战神，永远警惕黄毛![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
 
+----
+
+##### <span id="pid740832994">1.[3] \<pid:740832994\> 2024-01-31 15:22:08 by 小小松003</span>
+我记得以前看过分析，sb才是黄毛，玩家是苦主，玩家的情感寄托人形是女主![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+NTR铁三角就此达成![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+----
+
+##### <span id="pid740833411">2.[1] \<pid:740833411\> 2024-01-31 15:23:53 by 94646843z</span>
+游戏第一个活动剧情上来就是玩家是个dvd只配看男角色和女角色之间的剧情录像，二游哪有像也中这么玩的，别说上不上车了你人都见不到就得花钱抽卡![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740833846">3.[0] \<pid:740833846\> 2024-01-31 15:25:45 by 节奏大师小号</span>
+>[jump](#pid740833411) 94646843z(2024-01-31 15:23) 说: 
+>
+>游戏第一个活动剧情上来就是玩家是个dvd只配看男角色和女角色之间的剧情录像，二游哪有像也中这么玩的，别说上不上车了你人都见不到就得花钱抽卡![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+啊忘了，素牛苦主等级再加1！连看都没得看![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

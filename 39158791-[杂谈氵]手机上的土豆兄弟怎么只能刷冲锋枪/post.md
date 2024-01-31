@@ -83,3 +83,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 有啊，土豆枪要大壮通关(任意难度)后解锁![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740832324">12.[0] \<pid:740832324\> 2024-01-31 15:19:19 by 0083星辰回忆</span>
+>[jump](#pid740824233) 东北龙卷风跳跳猴(2024-01-31 14:43) 说: 
+>
+>有啊，土豆枪要大壮通关(任意难度)后解锁![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+修改器有所有武器就这把没有，其他武器都不需要解锁吗
+
+----
+
+##### <span id="pid740832495">13.[0] \<pid:740832495\> 2024-01-31 15:20:02 by aqa20030001</span>
+不知道 没玩过破解
+

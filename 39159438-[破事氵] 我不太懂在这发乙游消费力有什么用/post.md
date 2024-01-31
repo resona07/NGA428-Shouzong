@@ -214,3 +214,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740825982">26.[0] \<pid:740825982\> 2024-01-31 14:51:32 by Mélusine003</span>
 没事，乙解打不过男同![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740832520">27.[0] \<pid:740832520\> 2024-01-31 15:20:07 by 无寿之梦</span>
+>[jump](#pid740822880) 蓝梦公司(2024-01-31 14:37):
+
+卧槽，这人设的吸引力感觉比二游的娘炮男大多了。
+
+不愧是专业搞男同的![自戳双目](https://img4.nga.178.com/ngabbs/post/smile/a2_28.png)
+
+----
+
+##### <span id="pid740834460">28.[1] \<pid:740834460\> 2024-01-31 15:28:16 by 鬼岛巨人一米四</span>
+快被赶下桌了，只能靠吹她们那个没人在意的“市场影响力”来给自己的话语权一点站得住脚的理由而已，没招儿了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+这就是从小到大娇纵惯了，逆风装死都不能接受。殊不知不管是公器私用滥用权限封杀异己还是大半夜开地图炮发癫，都只会让别人对她们的观感越来越差![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

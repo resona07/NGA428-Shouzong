@@ -76,3 +76,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 有啊，皮套人
 
+----
+
+##### <span id="pid740831943">12.[0] \<pid:740831943\> 2024-01-31 15:17:40 by Aclesion</span>
+原神之前有过不是5星限定站宣传图c位的么？
+
+----
+
+##### <span id="pid740832566">13.[0] \<pid:740832566\> 2024-01-31 15:20:20 by A_sys</span>
+笑点解析，中间最大的那个是四星
+
+----
+
+##### <span id="pid740833784">14.[0] \<pid:740833784\> 2024-01-31 15:25:30 by 一只火元素</span>
+>[jump](#pid740824189) 沓野奏(2024-01-31 14:43) 说: 
+>
+>......这图c位没个说法吗
+
+这四星可是总策划皮套，角色强度拉满了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

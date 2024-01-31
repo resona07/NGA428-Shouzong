@@ -325,3 +325,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740830951">58.[0] \<pid:740830951\> 2024-01-31 15:13:13 by ServalFriends</span>
 你等半年再在再说吧，hpma开服大爆过了半年成什么样了
 
+----
+
+##### <span id="pid740831347">59.[2] \<pid:740831347\> 2024-01-31 15:15:01 by 孩子们我没肘</span>
+那你赶紧全男，女性向要素拉满ALL IN进场
+
+----
+
+##### <span id="pid740831628">60.[0] \<pid:740831628\> 2024-01-31 15:16:22 by 无花果的夏天</span>
+>[jump](#pid740819202) SarDurkn_(2024-01-31 14:19):
+
+兄弟4090多少买的
+
+----
+
+##### <span id="pid740831672">61.[3] \<pid:740831672\> 2024-01-31 15:16:32 by A_sys</span>
+那为什么mrfz不出一年男限定连发呢？是不想挣钱吗
+
+----
+
+##### <span id="pid740831702">62.[2] \<pid:740831702\> 2024-01-31 15:16:42 by WRYYYYMU</span>
+交错未和谐前也冲到15的啊，收入曲线还在上涨，结果啪的一下和谐了，啪的一下下架了，没铁拳的地方，像日韩，steam，男性向还是主流，就大陆不正常罢了
+
+----
+
+##### <span id="pid740831864">63.[3] \<pid:740831864\> 2024-01-31 15:17:20 by kyle熙</span>
+点了！全男是下一个风口，集美们冲啊![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+----
+
+##### <span id="pid740832081">64.[1] \<pid:740832081\> 2024-01-31 15:18:15 by warland</span>
+你说得对，但是我有男不玩哩![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
+
+----
+
+##### <span id="pid740833984">65.[0] \<pid:740833984\> 2024-01-31 15:26:16 by 半久里</span>
+为什么这帖子里还有很多有逻辑的回复啊，都这样了，还学不会女拳那一套打法。![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
+
