@@ -329,3 +329,35 @@ FGO没保底这事最有说服力的是大肠老师没退坑的时候的抽卡�
 但是原文不是型月音乐嘛，
 你怎么自己改了个辩题开始发挥了
 
+----
+
+##### <span id="pid740883914">45.[1] \<pid:740883914\> 2024-01-31 19:30:41 by 请问你是老娘的Master吗</span>
+没碰瓷过FGO？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我近5年TM都没见过几个不拐FGO的二游，啥游戏有事没事都能拐一下FGO![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+----
+
+##### <span id="pid740884829">46.[1] \<pid:740884829\> 2024-01-31 19:36:00 by 苝昭</span>
+>[jump](#pid740872983) 真红眼教授(2024-01-31 18:26) 说: 
+>
+>经典回顾![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+>
+>![img](./15_395a37a0.jpg)
+
+感谢截图，这图真的看一次笑一次，真有人放着518不点一颗一颗氪石头啊![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740885721">47.[0] \<pid:740885721\> 2024-01-31 19:41:40 by 風追</span>
+>[jump](#pid740872983) 真红眼教授(2024-01-31 18:26):
+
+![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+----
+
+##### <span id="pid740885926">48.[0] \<pid:740885926\> 2024-01-31 19:42:48 by 月酱月酱</span>
+>[jump](#pid740883914) 请问你是老娘的Master吗(2024-01-31 19:30) 说: 
+>
+>没碰瓷过FGO？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我近5年TM都没见过几个不拐FGO的二游，啥游戏有事没事都能拐一下FGO![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+和行业冥灯比我也是看笑了![汗](https://img4.nga.178.com/ngabbs/post/smile/)
+

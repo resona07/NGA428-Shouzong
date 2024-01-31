@@ -14,3 +14,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 回到原图话题，我感觉经过了这么多节奏今后新出的还想恰宅男米的作品可能也会逐渐走到直球表忠心的道路上，集美确实遥遥领先
 
+----
+
+##### <span id="pid740885026">1.[2] \<pid:740885026\> 2024-01-31 19:37:07 by oududu</span>
+所以现在开始有男不玩，立刻，马上！
+
+----
+
+##### <span id="pid740885301">2.[1] \<pid:740885301\> 2024-01-31 19:39:00 by rream_kly</span>
+我们男玩家也想有这样的待遇![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)，决定了，我要向乙女玩家的国乙法学习![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+
+----
+
+##### <span id="pid740885679">3.[1] \<pid:740885679\> 2024-01-31 19:41:27 by 药师鬼</span>
+你去看看这家官博下面是怎么骂官方的 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，比手综的厉害多了
+

@@ -157,3 +157,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740875513">24.[0] \<pid:740875513\> 2024-01-31 18:40:06 by dkas333</span>
 神奇羽中不是你等凡人可以懂的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740886056">25.[0] \<pid:740886056\> 2024-01-31 19:43:44 by lucifiniczw</span>
+某些人要是脑子没问题会变成今天这个局面？![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+

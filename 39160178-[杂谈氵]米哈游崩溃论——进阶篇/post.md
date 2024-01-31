@@ -927,3 +927,17 @@ allin确实是小厂思维，但是你不持续allin，相信自己的判断，�
 zzz也一眼崩4
 老米和它的xxn殖人团队是真没活了
 
+----
+
+##### <span id="pid740883848">115.[0] \<pid:740883848\> 2024-01-31 19:30:15 by 长门有希的游戏</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)说实话我现在看到这种言论就感觉挺搞笑的
+
+----
+
+##### <span id="pid740884590">116.[0] \<pid:740884590\> 2024-01-31 19:34:34 by 不会安宁的夜</span>
+>[jump](#pid740841368) zzzzzzy25(2024-01-31 15:58) 说: 
+>
+>大伙要是都能像你这样看完理解我的意思就好了，那就真可以和平交流了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这里可是手综，别管咋样无脑黑米就对了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)大伙来这不就图个直抒胸臆的骂米吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
