@@ -75,3 +75,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740758827">11.[0] \<pid:740758827\> 2024-01-31 09:34:54 by Linde1997</span>
 什么宝宝，心疼，都是嘴巴上喊喊的。
 
+----
+
+##### <span id="pid740785438">12.[0] \<pid:740785438\> 2024-01-31 11:33:02 by 丿夕日坂</span>
+>[jump](#pid740733306) ShadowApocrypha(2024-01-31 02:11) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)女宝说这话哪里是心疼纸片人，这是把自己带入这个纸片人心疼自己活在一个男凝世界里
+>但可惜，就算最下头的郭楠也不会男凝恶魔波刚，当你凝视恶魔时，恶魔也在凝视你
+
+一针见血了老哥![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

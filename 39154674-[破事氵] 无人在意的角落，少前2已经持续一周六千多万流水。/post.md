@@ -220,3 +220,8 @@ kpi完的成吗
 ##### <span id="pid740769038">41.[0] \<pid:740769038\> 2024-01-31 10:22:19 by fddxgf</span>
 不是6000亿![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
 
+----
+
+##### <span id="pid740787994">42.[0] \<pid:740787994\> 2024-01-31 11:44:01 by 丿夕日坂</span>
+翀一定很高兴吧，要是觉得钱不够我给他烧点![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

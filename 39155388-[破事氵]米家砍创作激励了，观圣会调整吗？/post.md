@@ -265,3 +265,32 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 按仙二观睚眦必报的性格，这个事情可以攻击nga开盒，可以嘲笑nga男女不分，为什么不出一期梗百科，仙家军都帮他想好名字了
 ![img](./30_308fc6d7.gif)
 
+----
+
+##### <span id="pid740786154">31.[0] \<pid:740786154\> 2024-01-31 11:36:12 by 冰空真受</span>
+>[jump](#pid740780581) asbeersloth(2024-01-31 11:13) 说: 
+>
+>![img](./30_308fc6d7.gif)
+>截图里仙家军发的名字是米社的人事部门员工自己爆料的社保单子里的
+>(提一嘴，能拿到员工社保图片的要么人事(看单位性质这里简化)要么本人其他人拿到只能是这两当中有人转发给别人了)
+>![img](./30_308fc6d7.gif)
+>仙家军统一认定为唐ga又在胡编名字于是跑仙二观下发原名用这个名字
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我怎么看不懂你说的，国产二次元手游观察跟你发的仙二观不是同个人吧
+
+----
+
+##### <span id="pid740786789">32.[0] \<pid:740786789\> 2024-01-31 11:38:52 by MyGO_o</span>
+想想还挺抽象的，小红书退了，创作激励砍了，然后nga买回来了，是什么仙家必争之地啊![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)
+
+----
+
+##### <span id="pid740787751">33.[0] \<pid:740787751\> 2024-01-31 11:42:58 by asbeersloth</span>
+>[jump](#pid740786154) 冰空真受(2024-01-31 11:36) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我怎么看不懂你说的，国产二次元手游观察跟你发的仙二观不是同个人吧
+
+什么
+天底下还有两个观圣？
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

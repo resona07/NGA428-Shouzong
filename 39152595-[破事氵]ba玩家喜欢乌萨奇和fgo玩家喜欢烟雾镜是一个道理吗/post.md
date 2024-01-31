@@ -314,3 +314,34 @@ nga还收了米的钱呢，你总不能把nga卸了吧
 ##### <span id="pid740777608">37.[0] \<pid:740777608\> 2024-01-31 11:00:30 by 安堂Nay</span>
 我寻思玛丽这个视频不是玩的声优梗吗![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740784417">38.[0] \<pid:740784417\> 2024-01-31 11:28:41 by sjqdnwkbd</span>
+>[jump](#pid740718926) 叶湖EricWho(2024-01-30 23:45) 说: 
+>
+>好家伙，查了一下确实是……
+>
+>这年头粉日系ip，都不得不经历这一环吗![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+>
+>有时候真搞不懂日本人，那时候的事情这么耿耿于怀，怎么后来美国佬故意戳他们经济泡沫的事就没见有人明里暗里提起啊(更不用说肥仔和正太了)……
+
+喜欢日系IP是这样的，所以别随便投入真心![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740785345">39.[1] \<pid:740785345\> 2024-01-31 11:32:37 by sjqdnwkbd</span>
+>[jump](#pid740719182) dengzhuowei22(2024-01-30 23:47) 说: 
+>
+>这句话的重点从来不是我认为，而是你认为？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+害……粉丝是这样的，直接说我就是不在乎联动鬼子学院不就行了，但就是要打滚  。毕竟大家恨米也在用泥潭啊![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740787039">40.[0] \<pid:740787039\> 2024-01-31 11:39:56 by artrrrrr</span>
+>[jump](#pid740704659) GENGAR53880(2024-01-30 22:05) 说: 
+>
+>![img](./4_ef22753i.jpg)
+
+![img](./40_dcbce2sg.jpg)
+

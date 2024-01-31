@@ -32,3 +32,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740778954">5.[0] \<pid:740778954\> 2024-01-31 11:06:25 by Xxjod</span>
 我追的一部文都开始恶搞雷蒙了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740786362">6.[0] \<pid:740786362\> 2024-01-31 11:37:10 by solasl</span>
+>[jump](#pid740778954) Xxjod(2024-01-31 11:06) 说: 
+>
+>我追的一部文都开始恶搞雷蒙了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+我们不会看的同一本吧，也是最近几天开始玩雷蒙和二手烟的梗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740787782">7.[0] \<pid:740787782\> 2024-01-31 11:43:05 by 奇妙的后缀</span>
+我看的起点，虽然剧情用这个梗的没见到，但本章说里也有不少(类似评论区)。我还看到了猛干语录和95雷蒙![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

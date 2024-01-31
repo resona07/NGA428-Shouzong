@@ -192,3 +192,20 @@ su再弄它那个小丑黑深残就真该配它邻居去了
 不好说，双眼被什么东西蒙蔽了
 可恶的显示器![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
 
+----
+
+##### <span id="pid740783935">34.[0] \<pid:740783935\> 2024-01-31 11:26:35 by 潘纳科特福葛</span>
+![img](./34_893feesg.jpg)
+
+点击动态也更新了
+
+----
+
+##### <span id="pid740784977">35.[0] \<pid:740784977\> 2024-01-31 11:31:00 by JonathanJoestar</span>
+>[jump](#pid740776365) XXNnmsl(2024-01-31 10:55) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看完你的楼我直接保存下来仔细看
+>![img](./35_9bb6car8.jpg)
+
+我根本无法分辨是我的屏幕花了，还是确实画上去静脉了，我得凑近了好好看看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
