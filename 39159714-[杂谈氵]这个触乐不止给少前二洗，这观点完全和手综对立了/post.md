@@ -239,3 +239,18 @@ he    tui
 ##### <span id="pid740837742">41.[0] \<pid:740837742\> 2024-01-31 15:42:11 by 热舞老司机</span>
 懒得废话，有男不玩，秒了
 
+----
+
+##### <span id="pid740839198">42.[0] \<pid:740839198\> 2024-01-31 15:48:42 by ee艺术家～</span>
+所以啊，就该把二游里的女角色删了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740839477">43.[0] \<pid:740839477\> 2024-01-31 15:50:06 by 奸奇至尊巫师</span>
+这个文章我觉得写的很好啊，和有男不玩的说法完全不冲突嘛！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740841391">44.[0] \<pid:740841391\> 2024-01-31 15:58:15 by aluba000</span>
+建议熊以外那两个去做二游,我等着吃瓜![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

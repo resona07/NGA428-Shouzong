@@ -381,3 +381,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740835477">68.[0] \<pid:740835477\> 2024-01-31 15:32:36 by mhiyku</span>
 你整个能裸女怼脸的过审游戏出来再说![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
 
+----
+
+##### <span id="pid740840345">69.[0] \<pid:740840345\> 2024-01-31 15:53:54 by 咪咔啵啦</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我是真希望所有手游都跑去骗的幕刃的钱，强制远离518 648没什么不好。但是游戏厂商真做得到吗？
+
+----
+
+##### <span id="pid740841088">70.[0] \<pid:740841088\> 2024-01-31 15:56:57 by 司马忍</span>
+事实证明，服务指向明确的ML游戏，在不受约束的情况下，确实是能够爆米的。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740841284">71.[0] \<pid:740841284\> 2024-01-31 15:57:49 by inficyclone</span>
+我代表我的男性同胞们向你们投降咯，快去做全楠游戏吧，市场是你们的钱包也是你们的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740841476">72.[0] \<pid:740841476\> 2024-01-31 15:58:36 by 坑爹鄕</span>
+求求了，出全男我真支持，各自在各自的小圈子里不香吗？一堆xp对不上的硬凑一起，两边都不开心
+
+----
+
+##### <span id="pid740841595">73.[0] \<pid:740841595\> 2024-01-31 15:59:09 by 水银之蛇2622</span>
+说得好，但我有男不玩，厂商赶紧全去做全男乙游吧，算我求求你们啦，赶紧滚犊子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740841664">74.[0] \<pid:740841664\> 2024-01-31 15:59:28 by 心斎</span>
+你说得对，但你们xxn也爆不了米啊，不是全靠龟龟吗![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

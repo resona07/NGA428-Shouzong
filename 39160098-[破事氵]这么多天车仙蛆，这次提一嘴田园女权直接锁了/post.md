@@ -178,3 +178,13 @@ xxn公器私用，对味了对味了![你看看你](https://img4.nga.178.com/nga
 ##### <span id="pid740838046">31.[0] \<pid:740838046\> 2024-01-31 15:43:35 by 雨中樱花</span>
 仙在小仙女面前屁都不是，这就很乐了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740840335">32.[0] \<pid:740840335\> 2024-01-31 15:53:50 by titwar</span>
+我错过了什么
+
+----
+
+##### <span id="pid740841461">33.[0] \<pid:740841461\> 2024-01-31 15:58:34 by searchnone</span>
+版本T0是这样的，仙/除了自己就是XXN的，你让仙去WB啥的跟XXN打也是完全打不了的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

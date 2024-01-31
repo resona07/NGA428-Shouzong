@@ -252,3 +252,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 沃焯，反思哥！
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740838499">31.[1] \<pid:740838499\> 2024-01-31 15:45:27 by 取名字多麻烦</span>
+>[jump](#pid740821778) mianmi123(2024-01-31 14:31) 说: 
+>
+>虽然不准在论坛说话，被发现了会被挂起来打
+>但是可以偷偷地，给游戏打钱啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
+>
+>前阵子不有个话题，是一男的养一对女同做骑士么？
+>我想她们这么宣传，也是想多招一些高收入骑士进来吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+骑不到算什么骑士？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

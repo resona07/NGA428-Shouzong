@@ -130,3 +130,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740837233">17.[0] \<pid:740837233\> 2024-01-31 15:39:52 by Hoshino2004</span>
 少前那个世界观支撑的了什么自由吗，感觉有点搞笑了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740839174">18.[1] \<pid:740839174\> 2024-01-31 15:48:34 by 泡泡猪酱</span>
+宗教元素在acg比较常见，并不是说acg会直接上现实宗教的元素，这两者不一样。
+更别说国内搞宗教的结果是什么，大家应该都清楚，看看隔壁藤子怎么改的不就知道了？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740839536">19.[0] \<pid:740839536\> 2024-01-31 15:50:23 by ramones57</span>
+>[jump](#pid740825679) 咸菜白肚鱼(2024-01-31 14:50):
+
+![img](./19_6b5a42cr.jpg)这玩意怎么会被传成要生小孩了![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
