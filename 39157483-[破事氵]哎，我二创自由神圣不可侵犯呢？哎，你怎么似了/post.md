@@ -43,3 +43,16 @@ mygo的大家很可爱，所以全都要。毕竟我又不是阉割的太监
 ##### <span id="pid740809724">7.[0] \<pid:740809724\> 2024-01-31 13:33:42 by 57fhxbij</span>
 敢开mygo，猴区要是打过来我先润了![惊](https://img4.nga.178.com/ngabbs/post/smile/ac27.png)
 
+----
+
+##### <span id="pid740814449">8.[0] \<pid:740814449\> 2024-01-31 13:57:24 by IA2499274810</span>
+>[jump](#pid740802430) XXNnmsl(2024-01-31 12:54) 说: 
+>
+>百合÷是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>跑到后宫题材搞百合同人美名其曰二创自由你们麻辣人太极端了
+>结果只是在mygo视频里加了一个ba老师形象百合处就跳脚网暴了，怎么会是呢![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+>想起刺猬猫那个mygo加孤独摇滚的后宫同人，评论区应激跳脚的百合÷那可太多了，结果被后宫党杀的溃不成军，龟奴的帽子戴的稳稳的，那本后宫同人虽然写的垃圾，但是经过这次节奏成绩反而飙升，百合÷看着牙都要咬碎了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>唉，哥们看百合就是想着双飞啊，无论几个我都是一样的艹![jojo立5](https://img4.nga.178.com/ngabbs/post/smile/a2_40.png)精神阉人自己
+
+我问你，书名呢![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)我要去看看
+

@@ -71,3 +71,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740811688">11.[0] \<pid:740811688\> 2024-01-31 13:43:22 by 随机生成的id</span>
 没有zsbd
 
+----
+
+##### <span id="pid740813359">12.[0] \<pid:740813359\> 2024-01-31 13:51:48 by 宝妖镇河塔</span>
+游研社  爬爬娘 玩主小小虫
+
+我关注的这些都是玩老游戏和主机游戏的，二游自媒体就不知道除了攻略以外有啥看点。
+

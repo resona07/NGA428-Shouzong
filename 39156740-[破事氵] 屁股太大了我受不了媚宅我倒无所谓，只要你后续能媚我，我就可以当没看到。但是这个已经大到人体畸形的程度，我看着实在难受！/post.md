@@ -473,3 +473,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740811828">78.[0] \<pid:740811828\> 2024-01-31 13:44:06 by 零九二五0925</span>
 这才哪到哪啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740812321">79.[0] \<pid:740812321\> 2024-01-31 13:46:41 by 夜酱今天也要萌萌哒</span>
+这个还好吧，![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+
+----
+
+##### <span id="pid740812741">80.[0] \<pid:740812741\> 2024-01-31 13:48:50 by arcria</span>
+社管能不能换个号？你这个号太明显了
+
+----
+
+##### <span id="pid740813318">81.[0] \<pid:740813318\> 2024-01-31 13:51:35 by 哒哒块2号机</span>
+就这？![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid740813723">82.[0] \<pid:740813723\> 2024-01-31 13:53:38 by R9801</span>
+这s4立绘确实不如莫红袖
+
+![img](./82_05d87fhs.jpg)  
+
+构图不如金币姐，像是守财宝的巨龙
+
+![img](./82_8b6ed8j0.jpg)
+

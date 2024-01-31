@@ -204,3 +204,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740810605">31.[0] \<pid:740810605\> 2024-01-31 13:38:00 by 伤逝遐汐</span>
 这跪哪了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740814003">32.[0] \<pid:740814003\> 2024-01-31 13:55:02 by lnww</span>
+有点像&quot;不自杀声明&quot;![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+虽然我早就说千年这个肯定是长线运营的计划,不过还是观望,家人们,观望![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid740814324">33.[0] \<pid:740814324\> 2024-01-31 13:56:45 by 星十四</span>
+>[jump](#pid740809835) wwwwww931121(2024-01-31 13:34):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)差不多吧，可以宣判这个游戏彻底死了
+
+----
+
+##### <span id="pid740814752">34.[0] \<pid:740814752\> 2024-01-31 13:58:51 by 无瑕之时</span>
+搬个我在千年版发的吧
+[quote]![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我翻译一下 “六星池子被喷了，但是我们还是要出且不改” “我们还有新的限定，六星是额外的，你们不能就等着抽六星其他池子一概不抽” “温泉皮肤L2D皮肤在做了在做了，自动战斗也新建文件夹了”[/quote]![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)另外今天爆料的限定强度堪比原的水龙王，哪怕真的滑跪感觉也没啥用了，因为人已经在滑雪场上面了
+
+----
+
+##### <span id="pid740814901">35.[0] \<pid:740814901\> 2024-01-31 13:59:33 by LadyLex睡觉滚下床</span>
+没看懂哪里滑了，这篇公告给我的感觉和少前二那篇差不多呀
+
+通篇画饼，一点实际的补偿都没有
+

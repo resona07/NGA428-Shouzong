@@ -358,3 +358,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740811470">59.[0] \<pid:740811470\> 2024-01-31 13:42:14 by gamedruid117</span>
 当时第一次玩冒险岛 联盟意志时还上学呢，当时玩上就一发不可收拾，导致学习成绩直线下降 到家被暴打，之后就借了，是款好游戏。
 
+----
+
+##### <span id="pid740812576">60.[0] \<pid:740812576\> 2024-01-31 13:48:00 by gamedruid118</span>
+小时候玩过很好玩，现在也有时间了，下载下来玩。
+
