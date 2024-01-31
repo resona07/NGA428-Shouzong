@@ -43,3 +43,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740902720">6.[0] \<pid:740902720\> 2024-01-31 21:29:40 by Katyushagent</span>
 这种项目都是有人出钱出数据的，米盒犹他出什么啊，款都不捐的![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740903314">7.[3] \<pid:740903314\> 2024-01-31 21:34:02 by 猛男银鸽</span>
+正常人谁发这种弹幕  有这种弹幕不是恰恰说明了米哈游早就参透了脑控？
+
+----
+
+##### <span id="pid740903812">8.[0] \<pid:740903812\> 2024-01-31 21:37:22 by dengzhuowei22</span>
+因为他们觉得mhy是中国的希望啊，问题不大反正mhy玩家的寿命也就10年不到了，mhy最想复刻的是崩坏神域我最想复刻的是微笑棺木![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740904168">9.[0] \<pid:740904168\> 2024-01-31 21:39:42 by 不再嘴硬</span>
+脑这一块已经是我们mhy的领域了
+以后你鼻孔里插根吸管抽水也得感谢mhy
+

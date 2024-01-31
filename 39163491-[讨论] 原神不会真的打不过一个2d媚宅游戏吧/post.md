@@ -291,3 +291,15 @@ byd还以为你说龙珠来着，国际服玩家等的急死了，新卡太帅�
 先别急，如果之后登顶了小心mxz直接把图呼你脸上![你已经死了](https://img4.nga.178.com/ngabbs/post/smile/a2_45.png)  
 不过原也不太可能登顶了
 
+----
+
+##### <span id="pid740902767">43.[0] \<pid:740902767\> 2024-01-31 21:30:03 by Ranma0</span>
+>[jump](#pid740898072) 河马大旋风(2024-01-31 21:02):
+
+![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)麻了，我会错意了
+
+----
+
+##### <span id="pid740902811">44.[0] \<pid:740902811\> 2024-01-31 21:30:25 by 清风挽伈</span>
+只要日本社畜下班氪金了一起都会好起来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./44_a3eeb0d7.gif)
+

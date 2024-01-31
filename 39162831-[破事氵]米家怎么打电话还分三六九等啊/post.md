@@ -120,3 +120,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 赛博案底……很委屈吧，这个时候![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740903040">18.[0] \<pid:740903040\> 2024-01-31 21:32:03 by 弗罗西诺内</span>
+>[jump](#pid740894658) 一曲浮生(2024-01-31 20:37):
+
+没有给这个人，我是鉴定过的
+
+----
+
+##### <span id="pid740904683">19.[0] \<pid:740904683\> 2024-01-31 21:43:12 by 流离琉璃666</span>
+不能吧？我当时还在玩和刚跑路时也是一分钱没给米，照样坑我彩信费啊![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+

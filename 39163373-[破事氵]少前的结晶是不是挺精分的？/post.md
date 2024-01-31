@@ -166,3 +166,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 消费个性产品和做贼一样
 前恭后倨![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)龟而不得
 
+----
+
+##### <span id="pid740903299">26.[1] \<pid:740903299\> 2024-01-31 21:33:56 by scoutqq</span>
+>[jump](#pid740894854) 94646843z(2024-01-31 20:39) 说: 
+>
+>土豆2的学长疯狂杀麻辣人为游戏切割，怎么没先把塑造95的云图杀了？
+
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)最忠于土豆世界观的那个学长杀了啊,直接杀了制作组一半人呢
+
+----
+
+##### <span id="pid740904748">27.[0] \<pid:740904748\> 2024-01-31 21:43:42 by Soloist0048</span>
+真ml人 看到这坨早跑了
+

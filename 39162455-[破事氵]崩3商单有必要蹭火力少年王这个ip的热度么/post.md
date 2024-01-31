@@ -120,3 +120,16 @@ BV1PT411j7qq 这是布里姬特前年公布时的PV
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这个我知道啊，但国内游戏整个男娘，那是嫌凉的不够快啊
 
+----
+
+##### <span id="pid740903795">18.[1] \<pid:740903795\> 2024-01-31 21:37:15 by N3bu1a</span>
+直接照抄布里吉特，真的恶心，你可以说借鉴，也可以模仿，但是直接搬是真的懒。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740904858">19.[0] \<pid:740904858\> 2024-01-31 21:44:29 by A_sys</span>
+>[jump](#pid740900996) Ranma0(2024-01-31 21:17) 说: 
+>![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)那换成男娘吸引人吗
+
+这个男娘吸引人是因为悠悠球吗？你说悠悠球元素能占几分![img](./19_c321fb6e.png)
+
