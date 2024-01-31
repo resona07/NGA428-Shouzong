@@ -214,3 +214,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740787148">35.[2] \<pid:740787148\> 2024-01-31 11:40:21 by 随机生成的id</span>
 这是有男不练，关我有男不玩什么事
 
+----
+
+##### <span id="pid740788171">36.[0] \<pid:740788171\> 2024-01-31 11:44:49 by iaaaaaaaaaaaaaaa</span>
+玩混厕游戏导致的![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+----
+
+##### <span id="pid740788503">37.[1] \<pid:740788503\> 2024-01-31 11:46:14 by 暗辰灭斩</span>
+这时候mxz应该祭出6字真言了
+

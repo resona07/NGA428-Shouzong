@@ -622,3 +622,26 @@ bw快告诉我，是我不够努力吗？
 最后，有男不玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 盒狗藓出4000+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740788633">84.[0] \<pid:740788633\> 2024-01-31 11:46:46 by 五枝星穗</span>
+>[jump](#pid740781164) 91098qiao(2024-01-31 11:15):
+
+卧槽……这个我没了解到![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+这么……我真的难说，属于是给将老师了一点国服怀旧服的震撼了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740788866">85.[3] \<pid:740788866\> 2024-01-31 11:47:56 by 超越型莫德雷德</span>
+>[jump](#pid740785711) 安堂Nay(2024-01-31 11:34) 说: 
+>
+>我寻思我也没给弱智皱皮开脱啊
+>我只是强调谈皱皮冲将老师就只谈皱皮，不要把主祭混在里面拿皱皮给主祭的行为洗
+>因为在我的原则里骂主祭等盒狗的优先级比各种手游xz高
+>最后，有男不玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>盒狗藓出4000+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我看楼主也没否定猪鸡的严重性啊？
+拷打拷打纯良粥u冲画师还找借口罢了，也没见洗盒狗啊？
+你要真是纯良棉花就少说话，毕竟你的好棉花队友放的屁手综可都记着呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -214,3 +214,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 你以为刷胆是刷好玩的啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 <b></b>胆
 
+----
+
+##### <span id="pid740790021">33.[0] \<pid:740790021\> 2024-01-31 11:53:13 by mushishixian</span>
+搞得我每次看到硬核不媚宅都想笑
+
+----
+
+##### <span id="pid740790632">34.[0] \<pid:740790632\> 2024-01-31 11:56:00 by 我是社管有男不玩</span>
+>[jump](#pid740782599) KMPi7(2024-01-31 11:21):
+
+我就说米粥磕到饱吧
+又甜到了
+

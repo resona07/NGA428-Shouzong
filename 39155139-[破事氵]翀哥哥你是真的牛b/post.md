@@ -48,3 +48,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740759908">7.[0] \<pid:740759908\> 2024-01-31 09:40:09 by wmysh1627</span>
 这么恶心人的设计你不一样玩啊
 
+----
+
+##### <span id="pid740789255">8.[3] \<pid:740789255\> 2024-01-31 11:49:43 by 丿夕日坂</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)如果你是为了给大伙当侦察兵探路找乐子，那我佩服你食雪的勇气。
+如果你只是想玩，那你多吃点，这是专属于你的会员制餐厅。
+

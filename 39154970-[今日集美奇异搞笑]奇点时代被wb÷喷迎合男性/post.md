@@ -229,3 +229,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740771206">35.[0] \<pid:740771206\> 2024-01-31 10:32:24 by 百无聊赖纯混子</span>
 这游戏不是“乙男”/gal吗……锁男主，且一开始就在搞擦边，还有amsr。怎么还有女玩家赶上去的![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740789103">36.[3] \<pid:740789103\> 2024-01-31 11:48:58 by 无寿之梦</span>
+>[jump](#pid740755431) sadudas(2024-01-31 09:18):
+
+xxn整天用那芝麻脑子想怎么寄生想破头，结果还不想让男性玩导致大脑退化的二游也太乐了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+真玩不了二游了要么跑韩游去满足小头同时吸收先进韩服魔法对轰经验，要么直接去满足大头玩真一般向游戏去了。
+
+这结果……就还蛮好的？反正最后活的肯定不是如今的厕所游戏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

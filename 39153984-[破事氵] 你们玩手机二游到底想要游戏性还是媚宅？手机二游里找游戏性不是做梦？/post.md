@@ -261,3 +261,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你说二游要玩法有几款能跟单机比？等会手游孝子又要来一句武器角色不算游戏内容
 
+----
+
+##### <span id="pid740790931">39.[0] \<pid:740790931\> 2024-01-31 11:57:21 by 无寿之梦</span>
+你谁啊？谁跟你我们啊？软文狗滚好吗？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+有男不玩就是有男不玩，我需要你给我解释我怎么定义我的有男不玩？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

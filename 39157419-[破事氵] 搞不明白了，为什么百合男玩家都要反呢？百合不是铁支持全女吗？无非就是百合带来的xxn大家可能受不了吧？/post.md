@@ -164,3 +164,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740787916">26.[0] \<pid:740787916\> 2024-01-31 11:43:40 by Xxjod</span>
 为什么百合男要反有男不玩，难道他们希望百合游戏里面塞男主吗![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)玩的挺大
 
+----
+
+##### <span id="pid740788277">27.[0] \<pid:740788277\> 2024-01-31 11:45:17 by LLLL丶丶</span>
+百合?的有男不玩≠我的有男不玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+

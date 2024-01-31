@@ -120,3 +120,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)没关系，你觉得ok很好，只是我没能接受而已
 
+----
+
+##### <span id="pid740788447">17.[0] \<pid:740788447\> 2024-01-31 11:45:58 by 此恨悠悠</span>
+1999和舟的画面好？你是指立绘还是实际战斗小人？
+
