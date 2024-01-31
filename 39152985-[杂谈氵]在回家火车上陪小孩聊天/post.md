@@ -205,3 +205,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 到不了王者 吃鸡的程度，不过确实有不少非二次元的人在玩
 
+----
+
+##### <span id="pid740764935">34.[0] \<pid:740764935\> 2024-01-31 10:03:17 by bsbot</span>
+要知道手机上可是能玩二十年前的罪恶都市的，某些白羽肉鸡供应商能在自己的开放地图里塞个载具吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -463,3 +463,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 猴区吵柯南的你觉得是生理心理男性吗
 
+----
+
+##### <span id="pid740765370">63.[0] \<pid:740765370\> 2024-01-31 10:05:16 by 小米暖手宝</span>
+综上可以下结论了？
+智能机普及是物质基础，es炼狱制作人这些乙游是契机，从小被惯到大甚至手游圈子还都忍让到2023年是根本原因？
+这波啊是回旋镖打回来了，老龟龟 hurt 小龟龟 ，把小龟龟打破壳了，物攻特攻大幅提升![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

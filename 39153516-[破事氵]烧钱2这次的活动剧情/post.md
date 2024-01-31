@@ -90,3 +90,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740755640">12.[0] \<pid:740755640\> 2024-01-31 09:19:26 by 红色233</span>
 肯定废了很大力气才说服星姐别犯病，但是条件是等她一个人写好埋好雷再上，可不能惯着玩家一点嗷
 
+----
+
+##### <span id="pid740765440">13.[0] \<pid:740765440\> 2024-01-31 10:05:38 by bsbot</span>
+完了，这是我对少钱2最失望的时候，就算是炸也只是蹦出来个闷声屁![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+

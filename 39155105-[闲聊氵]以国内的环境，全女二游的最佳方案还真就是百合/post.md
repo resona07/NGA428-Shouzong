@@ -635,3 +635,13 @@ sif系列都暴毙了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.p
 ##### <span id="pid740764069">95.[0] \<pid:740764069\> 2024-01-31 09:59:34 by 碇真特有的冒烟</span>
 ![img](./95_241a727i.gif)
 
+----
+
+##### <span id="pid740764896">96.[1] \<pid:740764896\> 2024-01-31 10:03:05 by Tea_Moon</span>
+建议看看啊B自研硬核不媚宅百合神游，斯露德![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740765947">97.[0] \<pid:740765947\> 2024-01-31 10:07:57 by old_driver</span>
+![img](./97_a8b180df.jpg)![冷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_31.png)
+

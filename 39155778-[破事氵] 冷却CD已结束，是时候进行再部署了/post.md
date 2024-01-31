@@ -123,3 +123,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740764201">17.[0] \<pid:740764201\> 2024-01-31 10:00:08 by 有男来玩</span>
 ![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)我军敗哩
 
+----
+
+##### <span id="pid740764367">18.[1] \<pid:740764367\> 2024-01-31 10:00:54 by mianmi123</span>
+>[jump](#pid740760180) 野獣の先輩(2024-01-31 09:41):
+
+参战率这么高 居然还能存活下来
+不愧是最强先锋啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740764465">20.[0] \<pid:740764465\> 2024-01-31 10:01:18 by 海豹嘴里的咸鱼</span>
+>[jump](#pid740763472) 野獣の先輩(2024-01-31 09:56) 说: 
+>
+>这位又是哪位无首，你们别起这种id了行不行，让摸鱼的哥们忍不住笑出来了怎么办![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+有黛烟关键词，看着像菠萝
+
+----
+
+##### <span id="pid740764946">21.[2] \<pid:740764946\> 2024-01-31 10:03:20 by argentCanteen</span>
+我必须重新集结头皮![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
