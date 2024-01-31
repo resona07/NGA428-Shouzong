@@ -479,3 +479,18 @@ Sex 強x 亂x都是基本款
 ##### <span id="pid740934969">66.[0] \<pid:740934969\> 2024-02-01 01:57:20 by tjz9527</span>
 这么离谱的吗![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740935398">67.[1] \<pid:740935398\> 2024-02-01 02:04:55 by 噗噜噗噜先生</span>
+太牛逼了，羡慕版本t0
+
+----
+
+##### <span id="pid740935903">68.[0] \<pid:740935903\> 2024-02-01 02:14:03 by 黑壳化身</span>
+有没有官方举报方式？这不集体举报一波？反正宅男游戏也没啥露的，一起爆了算了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740935909">69.[0] \<pid:740935909\> 2024-02-01 02:14:14 by yudingxuan</span>
+卧槽二楼这图惊到我了。
+

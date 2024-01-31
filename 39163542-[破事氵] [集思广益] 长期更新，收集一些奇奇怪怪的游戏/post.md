@@ -21,3 +21,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740928071">2.[0] \<pid:740928071\> 2024-02-01 00:37:11 by 玩他喵的</span>
 一个问题，ba算不算牢房![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740935811">3.[0] \<pid:740935811\> 2024-02-01 02:12:29 by cylep</span>
+>[jump](#pid740928071) 玩他喵的(2024-02-01 00:37) 说: 
+>
+>一个问题，ba算不算牢房![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不打总力战，不算![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

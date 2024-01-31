@@ -408,3 +408,8 @@ moba游戏不该犯这种错啊
 
 我感觉是从pay for cool慢慢向pay for win转变，efls再加上基本无前摇且4.5s无敌的大荒星陨，这b三体人强度是氪金来的，还是限时的，而不是武则天那种下水道强度，纯纯贩卖moba强度焦虑![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740935502">65.[0] \<pid:740935502\> 2024-02-01 02:07:07 by sxdrinovermindq</span>
+38就能虐菜，终于变成PAY TO WIN游戏了，好，加速！![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+

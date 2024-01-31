@@ -68,3 +68,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740934357">8.[0] \<pid:740934357\> 2024-02-01 01:47:19 by miyama</span>
 他们那个世界观地里就是会凭空冒出美食 也没什么危险(这一点还有蛮多黑暗解读) 小可爱能力不足的话薪水很少，与其花钱吃饭，不如在野外抓住机会，省钱买装备和其他喜欢的产品。乌萨奇是主角组里能力最强的，很会觅食，发现食物时也不会和别人太客气。
 
+----
+
+##### <span id="pid740935240">10.[0] \<pid:740935240\> 2024-02-01 02:02:36 by 梦之加护</span>
+因为乌萨奇是中国人(bushi)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+[[chiikawa]中 华 有 神 功-哔哩哔哩] [url](https://b23.tv/cWcEKSf)
+
+----
+
+##### <span id="pid740935263">11.[0] \<pid:740935263\> 2024-02-01 02:02:54 by dengzhuowei22</span>
+>[jump](#pid740933127) 一曲浮生(2024-02-01 01:29) 说: 
+>
+>我感觉肥龙还好吧
+
+还好是吧?
+![img](./11_4180e27q.gif)
+![img](./11_15e2964b.gif)
+![img](./11_ad3177dw.gif)
+
