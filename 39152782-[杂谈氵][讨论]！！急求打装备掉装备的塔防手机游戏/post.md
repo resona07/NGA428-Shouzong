@@ -41,3 +41,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 地牢战争2(Dungeon Warfare2)倒是能爆装备合装备，还可以刷符文调难度。就是优化不太行，打无尽怪多了怎么都会卡。![衰](https://img4.nga.178.com/ngabbs/post/smile/ac40.png)
 塔防游戏最大的问题还是流程毕业之后就失去大部分可玩性了，单纯刷资源挺无聊的。不过像隔壁infinitode2那样毕业难上天也不太可取。![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740851637">6.[0] \<pid:740851637\> 2024-01-31 16:43:56 by repeat19992000</span>
+打装备的塔防有吗
+

@@ -269,3 +269,38 @@ mxz的福报啊
 ##### <span id="pid740844302">47.[0] \<pid:740844302\> 2024-01-31 16:11:26 by 一叶渡风</span>
 这？也！真正的结晶龟龟根本看不见好吧，看见了也当看不懂继续玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740849105">48.[0] \<pid:740849105\> 2024-01-31 16:32:59 by WTzl</span>
+>[jump](#pid740842380) huangmu12(2024-01-31 16:02) 说: 
+>
+>“沙脂蛹”有什么内涵？
+
+谐音傻子用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740849844">49.[1] \<pid:740849844\> 2024-01-31 16:36:11 by 茶茶叶同学</span>
+![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)以后我看谁再说米家不看社区
+
+![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)龟龟！
+
+----
+
+##### <span id="pid740850333">50.[0] \<pid:740850333\> 2024-01-31 16:38:16 by 小小李探花</span>
+结晶龟：她还想着我，太开心了。
+
+----
+
+##### <span id="pid740851061">51.[0] \<pid:740851061\> 2024-01-31 16:41:22 by gouria</span>
+>[jump](#pid740825953) 二刺螈之王师傅(2024-01-31 14:51) 说: 
+>
+>~~这龟好像还真是新加的~~
+>龟、结晶，懂了是太乐巴戈斯。![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+>
+>![img](./19_b99eb4go.jpg)
+
+感觉不如太晶?可爱
+

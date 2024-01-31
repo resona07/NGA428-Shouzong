@@ -114,3 +114,22 @@ zsbd
 ##### <span id="pid740847385">18.[0] \<pid:740847385\> 2024-01-31 16:25:29 by Aclesion</span>
 后排问下流水穿越是有次复刻有个人拿几个月前的流水说超抖吗？具体哪个池子忘了
 
+----
+
+##### <span id="pid740849577">19.[0] \<pid:740849577\> 2024-01-31 16:35:06 by Mélusine003</span>
+>[jump](#pid740843380) 一曲浮生(2024-01-31 16:07) 说: 
+>
+>在回收站里找到了。止水哥怎么说[@止水-3]![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![img](./15_b37be03i.jpg)  没有学习品德导致的
+
+我超，顶级纯良![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+----
+
+##### <span id="pid740851816">20.[0] \<pid:740851816\> 2024-01-31 16:44:42 by 一曲浮生</span>
+>[jump](#pid740849577) Mélusine003(2024-01-31 16:35) 说: 
+>
+>我超，顶级纯良![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+当时手综还没被高强度噶头皮，止水哥还只是手综平平无奇的一员。但是他这个回复太肯定了，别人让他留后路他都不留![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)让我想到了当年做题教的太肯定的题干基本上都是错的。顺手截了个图
+本来都忘了，看到楼上的图才想起来，这种乐子岂能不找?
+

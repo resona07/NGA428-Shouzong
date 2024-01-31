@@ -232,3 +232,34 @@ fc是谁？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740847596">36.[0] \<pid:740847596\> 2024-01-31 16:26:20 by DGVHJKCX</span>
 想你了，老焰
 
+----
+
+##### <span id="pid740848774">37.[3] \<pid:740848774\> 2024-01-31 16:31:33 by SarDurkn_</span>
+It&#39;s been a long day without you my friend~
+And I&#39;ll tell you all about it when I see you again![冷](https://img4.nga.178.com/ngabbs/post/smile/a2_16.png)
+
+----
+
+##### <span id="pid740848853">38.[4] \<pid:740848853\> 2024-01-31 16:31:49 by scoutqq</span>
+牢焰：
+死于：2024.1.31 4.20PM
+死因：莱塔尼亚空军的大轰炸
+望粥知![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid740849171">39.[0] \<pid:740849171\> 2024-01-31 16:33:17 by 东方豆腐饭店</span>
+这是死了？
+
+----
+
+##### <span id="pid740849800">40.[0] \<pid:740849800\> 2024-01-31 16:36:01 by 至尊亚历山大</span>
+反盒先锋也似了啊,这下真T0了
+
+----
+
+##### <span id="pid740850522">41.[4] \<pid:740850522\> 2024-01-31 16:38:56 by 弗罗西诺内</span>
+名人堂向焰火先生表示哀悼,他的英名曾远播国际。
+
+虽然阿卡已经物是人非,我相信所有放飞飞艇的人都会尊敬焰火先生的举止。
+

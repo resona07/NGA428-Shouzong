@@ -521,3 +521,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 舅舅党没有一句话是真的
 这还能叫骑墙吗
 
+----
+
+##### <span id="pid740851203">71.[0] \<pid:740851203\> 2024-01-31 16:42:01 by bwbbs</span>
+烧钱要是不死，那玩家就是耻辱柱本柱![img](./71_3283bd31.png)
+
+现在的情况还真不能盲目乐观![img](./71_40b43743.png)
+
