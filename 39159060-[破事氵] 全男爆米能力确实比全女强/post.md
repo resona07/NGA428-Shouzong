@@ -362,3 +362,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740833984">65.[0] \<pid:740833984\> 2024-01-31 15:26:16 by 半久里</span>
 为什么这帖子里还有很多有逻辑的回复啊，都这样了，还学不会女拳那一套打法。![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
 
+----
+
+##### <span id="pid740834854">66.[0] \<pid:740834854\> 2024-01-31 15:29:54 by SarDurkn_</span>
+>[jump](#pid740831628) 无花果的夏天(2024-01-31 15:16) 说: 
+>
+>兄弟4090多少买的
+
+九月的抄底价还是不要参考了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在不推荐，纯纯给黄牛送钱
+
+----
+
+##### <span id="pid740835458">67.[0] \<pid:740835458\> 2024-01-31 15:32:31 by 月酱月酱</span>
+为什么明日方舟，fgo，阴阳师，崩坏三，轨子，游戏王不出全男卡或者全男角色呢？是不想吗![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)还是你()没有的事实你接受不了
+
+----
+
+##### <span id="pid740835477">68.[0] \<pid:740835477\> 2024-01-31 15:32:36 by mhiyku</span>
+你整个能裸女怼脸的过审游戏出来再说![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+

@@ -209,3 +209,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740834721">36.[0] \<pid:740834721\> 2024-01-31 15:29:21 by anda2200</span>
 绿色的乌龟结晶体![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)太绝了
 
+----
+
+##### <span id="pid740835204">37.[0] \<pid:740835204\> 2024-01-31 15:31:22 by 赛博班尼特</span>
+能在璃月做一只长寿的乌龟，也好过在枫丹做卫兵犬。
+
+----
+
+##### <span id="pid740835341">38.[0] \<pid:740835341\> 2024-01-31 15:32:01 by 一个NGA用户吧</span>
+玩梗仙人![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740836109">39.[0] \<pid:740836109\> 2024-01-31 15:35:14 by 哈士奇油蜡</span>
+mxz的福报啊
+
+----
+
+##### <span id="pid740837920">40.[0] \<pid:740837920\> 2024-01-31 15:43:01 by qq184861643</span>
+感觉可以搬到瓜版
+

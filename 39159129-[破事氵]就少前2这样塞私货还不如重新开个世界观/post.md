@@ -105,3 +105,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 细说小孩开大车，我就好这口![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740836077">14.[0] \<pid:740836077\> 2024-01-31 15:35:05 by 中道GG</span>
+别开了 直接做成红警那样的rts吧![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740836360">15.[0] \<pid:740836360\> 2024-01-31 15:36:18 by lucifiniczw</span>
+犹太教和基督教还是有点区别的，其次他的私货可是全天候全方面全无敌的。。。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)宗教元素和直接丢进去一本经书也是不可同日而语的
+
+----
+
+##### <span id="pid740836804">16.[0] \<pid:740836804\> 2024-01-31 15:38:05 by black0618</span>
+>[jump](#pid740825679) 咸菜白肚鱼(2024-01-31 14:50) 说: 
+>虽然但是，按照目前的爆料信息来看。
+><b>就算你指开局就失踪换个马甲出来</b>
+>这剧情也不是普通人能吃得下的。黛烟和黄毛男人型谈恋爱算是小的，女仆打算给小孩子生......
+
+细说小孩开大车![img](./16_3283bd31.png)
+
+----
+
+##### <span id="pid740837233">17.[0] \<pid:740837233\> 2024-01-31 15:39:52 by Hoshino2004</span>
+少前那个世界观支撑的了什么自由吗，感觉有点搞笑了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

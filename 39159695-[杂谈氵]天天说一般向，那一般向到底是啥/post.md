@@ -132,3 +132,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740834456">23.[0] \<pid:740834456\> 2024-01-31 15:28:15 by 在纽约的企鹅</span>
 你说的那是社交类，女的打拳没啥用![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740835409">24.[1] \<pid:740835409\> 2024-01-31 15:32:20 by anda2200</span>
+也就二游会标榜一般向，真一般向都会标榜社交属性![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740837180">25.[0] \<pid:740837180\> 2024-01-31 15:39:41 by 开屉</span>
+一般向肯定是重社交重玩法的啊，也就是大众都能玩的游戏，只不过二游有自己的一般向![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740837938">26.[0] \<pid:740837938\> 2024-01-31 15:43:05 by wanderer573</span>
+如果你说的是个以卖角色为核心的gacha游戏，喜欢自我标榜&quot;一般向&quot;，那就是骗国男转移支付的混厕，不需要怀疑。
+
+----
+
+##### <span id="pid740838414">27.[0] \<pid:740838414\> 2024-01-31 15:45:09 by 鲜血旋律</span>
+为了消歧义，你理解的那种现在可以叫大众向；而二游这种叫混厕向。
+

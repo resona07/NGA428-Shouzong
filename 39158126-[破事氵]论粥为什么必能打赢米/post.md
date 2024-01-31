@@ -147,3 +147,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 证据就在这源源不断的头……头脑风暴中![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
 ![img](./20_b1581fh.jpeg)
 
+----
+
+##### <span id="pid740836978">21.[1] \<pid:740836978\> 2024-01-31 15:38:43 by 我不会。</span>
+米还要交钱才能说句话，粥就不一样了。从上至下都是粥奴的ta们不仅不收钱，还倒贴尽孝呢。在这方面，米和粥都是一样的，给的钱越多，越看不起你。所以啊，米粥99啊，世另我啊。
+
+----
+
+##### <span id="pid740837562">22.[0] \<pid:740837562\> 2024-01-31 15:41:21 by 川景</span>
+说的好，黄票和合成玉什么时候打我号上？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

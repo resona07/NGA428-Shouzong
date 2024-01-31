@@ -101,3 +101,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740829923">14.[0] \<pid:740829923\> 2024-01-31 15:08:54 by Arashio_prpr</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)太牛了吧 这么快就有虚假宣传套皮的了
 
+----
+
+##### <span id="pid740837387">15.[0] \<pid:740837387\> 2024-01-31 15:40:38 by 廷达罗斯之主</span>
+>[jump](#pid740826902) ArcturusLi(2024-01-31 14:55):
+
+串子别串了，你看除了13楼和你打配合的纯良粥u，也没人理你![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

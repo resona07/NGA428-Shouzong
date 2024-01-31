@@ -249,3 +249,27 @@ TMD物化男性，这不举办能忍
 ##### <span id="pid740825774">38.[0] \<pid:740825774\> 2024-01-31 14:50:28 by wrffrva</span>
 ![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
 
+----
+
+##### <span id="pid740835497">39.[0] \<pid:740835497\> 2024-01-31 15:32:42 by 魔域真主</span>
+>[jump](#pid740818100) Aiabag(2024-01-31 14:14) 说: 
+>
+>“男性向游戏漏沟都不准”
+>不是，这话说的，我还以为大碧蓝似了呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+大碧蓝新活动都裹了全身黑丝了还在说啥呢，有沟吗？也是如有![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740835781">40.[1] \<pid:740835781\> 2024-01-31 15:33:51 by 顺劈带暴击</span>
+>[jump](#pid740723859) MBT96B(2024-01-31 00:21) 说: 
+>
+>我记得某个国产BL小说都成了文输典范了。本质上是男性重理工轻法学的后果。
+
+文科出去找工作真的是又没钱又卷，真算了吧![凌乱](https://img4.nga.178.com/ngabbs/post/smile/ac6.png)
+
+----
+
+##### <span id="pid740835901">41.[0] \<pid:740835901\> 2024-01-31 15:34:20 by 终将归尘</span>
+鬼图打码
+

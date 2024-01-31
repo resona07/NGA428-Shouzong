@@ -230,3 +230,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 这就是从小到大娇纵惯了，逆风装死都不能接受。殊不知不管是公器私用滥用权限封杀异己还是大半夜开地图炮发癫，都只会让别人对她们的观感越来越差![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740837091">29.[0] \<pid:740837091\> 2024-01-31 15:39:12 by 蓝羽鸦（鸡肉味）</span>
+>[jump](#pid740825509) R9801(2024-01-31 14:49) 说: 
+>
+>这不就一个
+>[url](https://tieba.baidu.com/p/8866852436?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=C4149900A07BA0B9473254F0228F925C&amp;st=1706683730&amp;client_type=1&amp;client_version=12.53.3.0&amp;sfc=copy&amp;share_from=post)
+
+草，还真有
+
+----
+
+##### <span id="pid740837389">30.[0] \<pid:740837389\> 2024-01-31 15:40:38 by Molotov鸡尾酒</span>
+>[jump](#pid740821873) Drunk醉梦(2024-01-31 14:32) 说: 
+>
+>为了证明你们的有男不玩没有用，你们不玩我们一样可以氪很多金
+>
+>有力的回击了之前那种女玩家希望男玩家进去氪金养游戏这种寄生虫论调，没有男玩家，女玩家一样有十足的消费能力
+
+沃焯，反思哥！
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
