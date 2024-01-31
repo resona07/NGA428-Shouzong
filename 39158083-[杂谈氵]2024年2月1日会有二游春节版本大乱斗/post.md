@@ -136,3 +136,8 @@ BA感觉可以提前划掉了，应该没人冲明天的池子![哭笑](https://
 ##### <span id="pid740805992">20.[0] \<pid:740805992\> 2024-01-31 13:13:22 by asteroidsssss</span>
 先更个原神，半波10，感觉超抖还是有可能![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740808888">21.[0] \<pid:740808888\> 2024-01-31 13:29:10 by 亚尔缇娜·奥莱恩</span>
+明天晚上终于能抽库库尔坎了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)芜！
+

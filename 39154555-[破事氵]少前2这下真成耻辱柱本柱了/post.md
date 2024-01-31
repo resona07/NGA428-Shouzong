@@ -481,3 +481,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 到现在为止羽中脸上还没有化学制剂，ml人战斗力跟日本恋爱轻小说读者一比简直就是腊鸡
 
+----
+
+##### <span id="pid740807323">65.[0] \<pid:740807323\> 2024-01-31 13:20:39 by 卜尸小号</span>
+冲了一万五，不提养成就嗯夸美术
+真的有如此抽象的玩家吗
+
+----
+
+##### <span id="pid740807719">66.[0] \<pid:740807719\> 2024-01-31 13:22:45 by A1ik</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  不如看这篇文章会不会被公关掉。如果会，那我信一点。如果不会，那这篇就是来洗的。
+

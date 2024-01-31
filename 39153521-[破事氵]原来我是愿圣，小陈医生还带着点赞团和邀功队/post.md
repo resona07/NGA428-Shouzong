@@ -199,3 +199,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740786337">32.[0] \<pid:740786337\> 2024-01-31 11:37:03 by 刘伟莱特。</span>
 老爆典人了![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)希望能继续把用中医赚来的钱全供给米桑
 
+----
+
+##### <span id="pid740808638">33.[0] \<pid:740808638\> 2024-01-31 13:27:43 by 木之白</span>
+>[jump](#pid740786337) 刘伟莱特。(2024-01-31 11:37) 说: 
+>
+>老爆典人了![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)希望能继续把用中医赚来的钱全供给米桑
+
+有句话说得好，钱和智商是匹配的
+

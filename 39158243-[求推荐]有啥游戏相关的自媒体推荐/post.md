@@ -46,3 +46,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740804823">6.[0] \<pid:740804823\> 2024-01-31 13:06:54 by Mélusine003</span>
 没有，除非你自己写，有流量了还可以收钱。
 
+----
+
+##### <span id="pid740808196">7.[0] \<pid:740808196\> 2024-01-31 13:25:18 by coldse</span>
+人家靠厂商吃饭，你玩家能给人打米吗？不自己断氪加开骂谁会替你说话![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740808729">8.[0] \<pid:740808729\> 2024-01-31 13:28:12 by lleevvin</span>
+理解王自如，成为王自如
+

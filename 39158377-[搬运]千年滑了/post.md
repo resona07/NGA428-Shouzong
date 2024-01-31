@@ -159,3 +159,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740806245">23.[0] \<pid:740806245\> 2024-01-31 13:14:43 by dferxxj</span>
 卡池又没改，就画了个饼，这算哪门子滑？
 
+----
+
+##### <span id="pid740806771">24.[0] \<pid:740806771\> 2024-01-31 13:17:25 by linkaM</span>
+这不是纯纯的画饼没一点实质内容吗..
+
+----
+
+##### <span id="pid740807251">25.[0] \<pid:740807251\> 2024-01-31 13:20:15 by マホウバニラ</span>
+这滑了啥，各种大饼，告诉你好日子还在后头，还有更多限定。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740807300">26.[0] \<pid:740807300\> 2024-01-31 13:20:32 by whzfjk</span>
+意思是新星级不是年内常态，老六星不贬值？
+
+----
+
+##### <span id="pid740807898">27.[0] \<pid:740807898\> 2024-01-31 13:23:42 by fsssfgn</span>
+>[jump](#pid740802666) 维尔薇VillV(2024-01-31 12:55) 说: 
+>
+>开放下载了吗
+>铁拳面前一切宣言都是画饼
+
+千年啥时候下了![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+

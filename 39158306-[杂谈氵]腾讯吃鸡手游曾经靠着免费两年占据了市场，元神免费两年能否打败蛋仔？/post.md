@@ -17,3 +17,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740802375">1.[0] \<pid:740802375\> 2024-01-31 12:53:50 by nodev</span>
 吃鸡免费是因为没版号吧，有版号肯定收钱啊
 
+----
+
+##### <span id="pid740806668">2.[0] \<pid:740806668\> 2024-01-31 13:16:54 by 不负遇见了</span>
+荒野那时候是没宣发渠道，全靠先出来
+
