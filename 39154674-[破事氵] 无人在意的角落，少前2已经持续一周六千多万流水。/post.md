@@ -121,3 +121,23 @@ kpi完的成吗
 ##### <span id="pid740742043">22.[0] \<pid:740742043\> 2024-01-31 07:27:58 by 壮士断袖</span>
 开服到现在流水都未必破亿，到你这一周就6000w了。ios近7天流水总共才&#36;35w，合￥251w左右，你这直接拉了24倍系数，pc黑箱恐怖如斯。![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740743261">23.[1] \<pid:740743261\> 2024-01-31 07:48:43 by 白未名霜</span>
+被陈友谅裁的人知道他们游戏流水这么高吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740743305">24.[0] \<pid:740743305\> 2024-01-31 07:49:20 by yau2447</span>
+100倍pc黑箱界王拳？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这下超鹰赶米了![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740743534">25.[0] \<pid:740743534\> 2024-01-31 07:52:44 by 兰德里的苦楚</span>
+羽中知道你贪了他这么多钱吗![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid740743614">26.[0] \<pid:740743614\> 2024-01-31 07:53:44 by ftz1993721</span>
+什么大本营氪金战报啊这是？
+

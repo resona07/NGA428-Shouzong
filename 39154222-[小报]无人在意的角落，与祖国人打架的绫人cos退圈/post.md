@@ -55,3 +55,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 瓜版不收玩家瓜
 
+----
+
+##### <span id="pid740743337">7.[0] \<pid:740743337\> 2024-01-31 07:49:51 by 马萨卡马萨卡～</span>
+最下面那个五级号的话术都能入典了
+
+----
+
+##### <span id="pid740743452">8.[0] \<pid:740743452\> 2024-01-31 07:51:33 by mianmi123</span>
+所以有人能帮我解下惑么？
+我真的很好奇为啥那个黑衣服的哥们在内八![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

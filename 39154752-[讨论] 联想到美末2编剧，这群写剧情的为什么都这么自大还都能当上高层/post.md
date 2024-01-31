@@ -81,3 +81,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740739741">12.[0] \<pid:740739741\> 2024-01-31 06:04:55 by 我想静静2023</span>
 那个好像是真犹太人，游戏里面设计的犹太物品无法攻击
 
+----
+
+##### <span id="pid740743566">13.[0] \<pid:740743566\> 2024-01-31 07:53:09 by xuruilove23</span>
+那你怎么不批评一下诺贝尔和平和文学奖
+
+别人是要搞意识形态的，你们二游编剧搞给谁看
+
