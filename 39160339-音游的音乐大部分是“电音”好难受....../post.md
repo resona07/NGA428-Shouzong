@@ -23,3 +23,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 来试试歌姬计划mega39![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 Steam上就有，虽然是电子歌姬，但是伴奏基本都是传统乐器，很少有电子乐
 
+----
+
+##### <span id="pid740868201">3.[0] \<pid:740868201\> 2024-01-31 18:00:36 by 齐布_</span>
+喜欢deemo的话Deemo2(花雨旋律)可以试试![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)，虽然说整体不如deemo本体但是挺适合楼主需求的
+ios美区有，国区好像计划要上，但是现在还没
+安卓我不知道
+

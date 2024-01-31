@@ -31,3 +31,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740865831">2.[0] \<pid:740865831\> 2024-01-31 17:49:26 by 贝斯提尔</span>
 ![img](./2_06f91d8s.gif)
 
+----
+
+##### <span id="pid740868661">3.[0] \<pid:740868661\> 2024-01-31 18:02:51 by Mélusine003</span>
+因为这是皈依者狂热带出来的东西，本质冠军粉，KOL还很容易配合着进行“正向宣传”。
+顺便，“刘总”2013年就看这个了。
+![img](./3_421b8b05.jpg)
+

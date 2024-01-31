@@ -71,3 +71,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740867790">10.[0] \<pid:740867790\> 2024-01-31 17:58:38 by 炎弹</span>
 告了，结果反被真查出来公之于众，等着看米哈游笑话![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740869068">11.[2] \<pid:740869068\> 2024-01-31 18:04:55 by Madfrogkygdiddy</span>
+![img](./11_f5b174bu.jpg)
+人家原话是这个
+
