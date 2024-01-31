@@ -79,3 +79,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740936656">9.[0] \<pid:740936656\> 2024-02-01 02:28:35 by 胖子猎人</span>
 还是太高了，希望这个6340是烧2以后最高的流水，平时最好只有三位数。
 
+----
+
+##### <span id="pid740936815">10.[0] \<pid:740936815\> 2024-02-01 02:31:53 by DuskyElf</span>
+玉玲珑攻势不是很好使啊
+
+怎么发了皮肤预告流水应声腰斩啊
+
