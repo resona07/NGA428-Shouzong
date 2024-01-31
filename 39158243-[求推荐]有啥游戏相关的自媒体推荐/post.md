@@ -78,3 +78,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我关注的这些都是玩老游戏和主机游戏的，二游自媒体就不知道除了攻略以外有啥看点。
 
+----
+
+##### <span id="pid740817249">13.[0] \<pid:740817249\> 2024-01-31 14:11:06 by SAKURA*</span>
+以前看看机核，现在不知道怎么样了
+

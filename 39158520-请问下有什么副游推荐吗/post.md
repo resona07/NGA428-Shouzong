@@ -146,3 +146,24 @@ nikke，白荆
 
 感谢分享，不过这个9是什么游戏百度搜不到![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
 
+----
+
+##### <span id="pid740815053">20.[0] \<pid:740815053\> 2024-01-31 14:00:21 by 黑 魂</span>
+啊，对了，玩粥的话极度推荐玩原神，![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740815474">21.[0] \<pid:740815474\> 2024-01-31 14:02:23 by NＯ10999</span>
+>[jump](#pid740814431) 某块面包(2024-01-31 13:57):
+
+玩过元气骑士，不过这种肉鸽类型的对我来说偏难啦![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740816348">22.[0] \<pid:740816348\> 2024-01-31 14:06:47 by NＯ10999</span>
+>[jump](#pid740815053) 黑 魂(2024-01-31 14:00) 说: 
+>
+>啊，对了，玩粥的话极度推荐玩原神，![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+我论坛头像就是原![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，受不了剧情也不能跳，现在只玩朋友的号打打深渊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

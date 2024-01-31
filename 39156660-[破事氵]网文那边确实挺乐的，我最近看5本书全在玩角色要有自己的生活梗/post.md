@@ -149,3 +149,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 话说95好惨，她的剧情感觉应该往被肥婆鱿鱼附体这方面写。
 
+----
+
+##### <span id="pid740816272">21.[0] \<pid:740816272\> 2024-01-31 14:06:28 by 7X28X9</span>
+印象中cwm卖得好的手游同人，大多是后宫和百合后宫吃桃文，所以网文读者和手游玩家这么割裂的吗，玩手游的一堆喊着嗑cp，看网文的只想看代入的“自己”开后宫![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -71,3 +71,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740809248">12.[1] \<pid:740809248\> 2024-01-31 13:31:10 by 云卷云舒1234</span>
 最近手游都喜欢占用闪信来宣传，我不知道哪个b那么没公德想起来的，你怎么不用防空警报呢？
 
+----
+
+##### <span id="pid740816769">13.[0] \<pid:740816769\> 2024-01-31 14:08:45 by kumi式</span>
+![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)“你为什么会收到此信息”
+
+----
+
+##### <span id="pid740817045">14.[0] \<pid:740817045\> 2024-01-31 14:10:03 by 土渣饼</span>
+嗯，你要说如果是女角色的话
+我刚收到一个刻晴电话
+~~最搞笑的是，被因“骚扰电话”拦截了~~
+
