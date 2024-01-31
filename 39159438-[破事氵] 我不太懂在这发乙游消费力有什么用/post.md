@@ -265,3 +265,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 骑不到算什么骑士？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740841773">32.[0] \<pid:740841773\> 2024-01-31 16:00:00 by 西皮解有点数</span>
+>[jump](#pid740821873) Drunk醉梦(2024-01-31 14:32) 说: 
+>
+>为了证明你们的有男不玩没有用，你们不玩我们一样可以氪很多金
+>
+>有力的回击了之前那种女玩家希望男玩家进去氪金养游戏这种寄生虫论调，没有男玩家，女玩家一样有十足的消费能力
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)对啊，所以你们和有男不玩不应该是一边的吗？
+

@@ -30,3 +30,37 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 不像有的逼数没有的文案玩着这点破梗路径依赖当奶嘴嘬
 所以盒厂，是不是该继续推出崭新的风系小男孩了？罗白先生那么憔悴，一定是一整年没有出风系小男孩导致的吧？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740842338">1.[1] \<pid:740842338\> 2024-01-31 16:02:41 by 顺劈带暴击</span>
+什么时候轮到那几个风系小男孩死![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740842994">2.[1] \<pid:740842994\> 2024-01-31 16:05:27 by ncqbxh</span>
+说到平藏，当时角色背景故事，讲他神之眼怎么来的就死人了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![img](./2_7f5df1o3.jpg)
+
+----
+
+##### <span id="pid740843367">3.[0] \<pid:740843367\> 2024-01-31 16:07:12 by 今麦郎550</span>
+啊，温迪是男的？
+
+----
+
+##### <span id="pid740843469">4.[0] \<pid:740843469\> 2024-01-31 16:07:38 by NＯ10999</span>
+梗shit
+
+----
+
+##### <span id="pid740843676">5.[2] \<pid:740843676\> 2024-01-31 16:08:37 by Dorothy_Goddess</span>
+别说了，再说不锈钢脸盆就要叮当响了![img](./5_eaa96bcm.jpg)
+
+----
+
+##### <span id="pid740844945">6.[0] \<pid:740844945\> 2024-01-31 16:14:24 by coldse</span>
+今年神父推荐口味的是冰系小男孩，特点是温柔腼腆内向。从相对正常的重云，到有些逆天的米卡再到完全病态的菲米尼 诸君喜欢吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+对了，请大家放心神父并没有放弃风系小男孩。这不春节池子up两个风系小男孩的星怒。 “晚安，我在”
+

@@ -347,3 +347,12 @@ ctmd
 
 啊这。她现在不是扮演商会小姐吗？我刚刚还在原版看到夸主角终于开始骚话起来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740841482">45.[0] \<pid:740841482\> 2024-01-31 15:58:38 by wyfmmmmm</span>
+>[jump](#pid740840283) 骨灰也有爱(2024-01-31 15:53) 说: 
+>
+>![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)你花钱买和谐还跑来手综哭诉。。。就有种小区外自拉横幅告知你吃了电信诈骗的美
+
+为了不让更多人上当![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

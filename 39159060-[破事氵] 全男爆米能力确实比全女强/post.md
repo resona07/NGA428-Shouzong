@@ -411,3 +411,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740841664">74.[0] \<pid:740841664\> 2024-01-31 15:59:28 by 心斎</span>
 你说得对，但你们xxn也爆不了米啊，不是全靠龟龟吗![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740842231">75.[0] \<pid:740842231\> 2024-01-31 16:02:10 by AiakosG</span>
+好的，希望以后所有手游都是全男，集美们狠狠地爆米证明自己的实力，让我们这些幻想靠有男不玩来逼厂商站队的顺直男啊、郭楠啊、ZNG们啊破大防痛哭流涕后惶惶不可终日，最后拜倒在女性力量下俯首称臣哈![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740842285">76.[1] \<pid:740842285\> 2024-01-31 16:02:24 by 西皮解有点数</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)对啊，所以你不是应该支持男玩家有男不玩吗？
+
+----
+
+##### <span id="pid740842556">77.[0] \<pid:740842556\> 2024-01-31 16:03:38 by 西皮解有点数</span>
+>[jump](#pid740833984) 半久里(2024-01-31 15:26) 说: 
+>
+>为什么这帖子里还有很多有逻辑的回复啊，都这样了，还学不会女拳那一套打法。![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)女拳那套打法是逻辑有问题的就汴京，逻辑没问题的才打滚
+
+这楼主明显属于是逻辑有问题的那类
+
+----
+
+##### <span id="pid740842685">78.[0] \<pid:740842685\> 2024-01-31 16:04:12 by ZGDX夜</span>
+你知道的我一直支持厂商出全男乙游的![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

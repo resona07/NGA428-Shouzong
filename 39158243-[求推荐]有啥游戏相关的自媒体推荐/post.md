@@ -103,3 +103,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740819787">17.[0] \<pid:740819787\> 2024-01-31 14:22:43 by 学渣华</span>
 nga手游综合区![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740843472">18.[0] \<pid:740843472\> 2024-01-31 16:07:38 by HEARTUNDERBLΛDE</span>
+自媒体靠金主吃饭，金主也要求自媒体有粉丝基础，所以自媒体既要又要，最终都会活得像个胡锡进，左右摇摆中肯。
+感觉不如，，，某+论坛水友的测评
+
