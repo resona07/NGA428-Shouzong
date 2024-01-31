@@ -980,3 +980,31 @@ zzz也一眼崩4
 说好的把头拧下来关号什么事![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
 啥时候直播了直播间留一个![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
 
+----
+
+##### <span id="pid740911739">122.[0] \<pid:740911739\> 2024-01-31 22:34:16 by 轻尘啊</span>
+米哈游现在几个游戏都是一坨(崩坏三玩了4年多卖号了，现在好像出了个2狗尾续貂，原神断断续续差不多三年，崩铁开服剧情打完就卸了)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740911975">123.[0] \<pid:740911975\> 2024-01-31 22:36:05 by 止水-3</span>
+>[jump](#pid740902130) KewIin(2024-01-31 21:25) 说: 
+>
+>说好的把头拧下来关号什么事![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+>啥时候直播了直播间留一个![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+好家伙竟然还有人记得![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我才刚想起来这事，没事我直接滑跪，已经连夜学习瘤萎莱特品格了
+
+----
+
+##### <span id="pid740912446">124.[0] \<pid:740912446\> 2024-01-31 22:39:21 by UID2283314</span>
+.....楼主这种 难道是米哈游员工 故意的新套路 给原神提升热度？![抢镜头](https://img4.nga.178.com/ngabbs/post/smile/a2_52.png)
+
+----
+
+##### <span id="pid740912922">125.[0] \<pid:740912922\> 2024-01-31 22:43:00 by Alice_Carroll</span>
+这么说吧，我是比较认可6z哥的看法的，
+只从海外23年成绩是1+1=1.14看，
+米桑的车实质上已经开在下坡路上，
+现在就看油门踩得多用力了。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

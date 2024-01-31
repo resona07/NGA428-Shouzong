@@ -105,3 +105,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我先放一个《集美不爱在游戏里氪金但是买周边很猛的》在这里
 集美加油![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740912654">20.[0] \<pid:740912654\> 2024-01-31 22:40:52 by 心★零</span>
+你让xxn买点同人吧唧支持就行了，金子就算了，人抽角色都靠攒还会买你这东西。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

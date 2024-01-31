@@ -198,3 +198,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 最好笑的不是佐伊像玛雅吗
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)一个玛雅打比赛永远不敢用，问就是在练了，排位拿出来都是A女的幽默英雄
 
+----
+
+##### <span id="pid740912897">34.[0] \<pid:740912897\> 2024-01-31 22:42:45 by 鸭梨果汁</span>
+我觉得像这个![img](./34_f93e0cgp.jpg)
+
