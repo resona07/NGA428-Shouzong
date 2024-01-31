@@ -450,3 +450,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那你们这些木构能不能上报给厂商让他们全去做全男，毕竟有你们氪![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
 
+----
+
+##### <span id="pid740853278">81.[1] \<pid:740853278\> 2024-01-31 16:51:03 by 不会安宁的夜</span>
+所以厂商赶紧做啊，我们这盘子小经不起xxn折腾敢接哪来的回哪去吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740854365">82.[2] \<pid:740854365\> 2024-01-31 16:55:47 by mp36969</span>
+我一直都支持厂商全去做乙游啊![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

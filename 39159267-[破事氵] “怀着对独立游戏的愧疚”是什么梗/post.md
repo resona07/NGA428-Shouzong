@@ -359,3 +359,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740846859">43.[0] \<pid:740846859\> 2024-01-31 16:23:05 by 向着天空的彼方</span>
 说说客套和场面话罢了, 可某些&quot;货&quot;连场面也不愿维护;![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)
 
+----
+
+##### <span id="pid740855106">44.[0] \<pid:740855106\> 2024-01-31 16:58:53 by orange88662</span>
+做手游玩手游是赛博原罪，需要独立游戏这个赎罪劵，我愿称其为赛博红衣大主教![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

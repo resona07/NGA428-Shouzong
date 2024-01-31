@@ -108,3 +108,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 串子别串了，你看除了13楼和你打配合的纯良粥u，也没人理你![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740853907">16.[0] \<pid:740853907\> 2024-01-31 16:53:50 by Xpke</span>
+这煞笔游戏那个优化，手机会怎么样我都不敢想![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid740855070">17.[0] \<pid:740855070\> 2024-01-31 16:58:46 by VVVVBBS</span>
+比起优化问题操作逻辑问题更大吧......
+优化如果你玩服务器版其实1650都能玩，毕竟服务器承担了很多东西
+这游戏的操作逻辑放在PC上都算反人类的......特别是切换和建筑摆放。
+我都不敢想这放手机上是什么级别的灾难，而且我没记错的话和帕鲁公司合作的那个手游公司还是个菜狗公司![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

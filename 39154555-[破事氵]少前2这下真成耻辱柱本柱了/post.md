@@ -528,3 +528,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 现在的情况还真不能盲目乐观![img](./71_40b43743.png)
 
+----
+
+##### <span id="pid740853839">72.[0] \<pid:740853839\> 2024-01-31 16:53:31 by ABananas</span>
+不用去辫经这些歪屁股媒体。非要凑过去讲话，就“你说得对，但有男不玩”就足够了。
+他们有一万种帽子可以扣给你，但他们否定不了你不讲逻辑的纯粹意志
+

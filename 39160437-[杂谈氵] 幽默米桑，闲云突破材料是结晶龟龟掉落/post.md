@@ -67,3 +67,32 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 还有一句是有些差一点的商品，日常使用没问题但顾客太挑剔，指妮露被车是玩家太挑剔
 还有一个是路人说分析剧场的表演，另一个说这样会失去乐趣，大概是在内涵油液那部分人吧![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid740852291">10.[1] \<pid:740852291\> 2024-01-31 16:46:50 by mp4rock</span>
+更好笑的难道不是策划这么讽刺玩家，一样一堆赶着当xz么，早就调教完成了
+
+----
+
+##### <span id="pid740853101">11.[0] \<pid:740853101\> 2024-01-31 16:50:20 by 西宫硝子00</span>
+领带海洋！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740853410">12.[0] \<pid:740853410\> 2024-01-31 16:51:35 by GENGAR53880</span>
+唉，黑子带节奏
+还是看看再度超神剧情的考据吧
+
+----
+
+##### <span id="pid740853569">13.[0] \<pid:740853569\> 2024-01-31 16:52:21 by linkaM</span>
+太幽默啦 还好我早就不玩力 还在玩的也配得上这个内涵
+
+----
+
+##### <span id="pid740854176">14.[0] \<pid:740854176\> 2024-01-31 16:55:00 by QUSIWQVT</span>
+>[jump](#pid740849832) NO10999(2024-01-31 16:36):
+
+有一说一，人家这么玩还真拿牠没办法![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+人家现在既能快乐工作又赚得盆满钵满，骂是骂不动的![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
