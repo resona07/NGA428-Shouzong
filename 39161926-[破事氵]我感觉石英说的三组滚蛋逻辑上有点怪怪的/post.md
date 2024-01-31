@@ -162,3 +162,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740886056">25.[0] \<pid:740886056\> 2024-01-31 19:43:44 by lucifiniczw</span>
 某些人要是脑子没问题会变成今天这个局面？![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
 
+----
+
+##### <span id="pid740886507">26.[1] \<pid:740886507\> 2024-01-31 19:46:36 by 非要当厂商学长吗</span>
+你都得出正确答案了，为啥要怀疑自己呢？
+
+----
+
+##### <span id="pid740886919">27.[0] \<pid:740886919\> 2024-01-31 19:49:14 by Void_free</span>
+>[jump](#pid740871300) 遙星旻月(2024-01-31 18:16) 说: 
+>
+>你这话什么意思
+>你觉得羽中是正常人？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+谜底就在谜面上
+
+----
+
+##### <span id="pid740887534">28.[0] \<pid:740887534\> 2024-01-31 19:53:14 by likeqin96</span>
+<b>除非有人脑子有问题</b>
+你不是知道答案吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740887872">29.[0] \<pid:740887872\> 2024-01-31 19:55:18 by 银月永存</span>
+羽中但凡有一点脑子也不至于一点脑子都没![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

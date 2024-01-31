@@ -361,3 +361,34 @@ FGO没保底这事最有说服力的是大肠老师没退坑的时候的抽卡�
 
 和行业冥灯比我也是看笑了![汗](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740886740">49.[1] \<pid:740886740\> 2024-01-31 19:48:05 by 洛阳米贵</span>
+我不是月厨也不玩fgo…
+单看动画都有川井宪次的孤独巡礼
+还有梶浦大妈套装吧……
+那时倍儿喜欢k团。
+fz算是相当一批人的入宅番了吧。
+为什么在音乐拉踩型月？
+还是说动画不算型月的？
+
+----
+
+##### <span id="pid740887148">50.[1] \<pid:740887148\> 2024-01-31 19:50:37 by 自然之源丨</span>
+>[jump](#pid740884829) 苝昭(2024-01-31 19:36) 说: 
+>
+>感谢截图，这图真的看一次笑一次，真有人放着518不点一颗一颗氪石头啊![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+颗晶颗晶氪![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740888008">51.[0] \<pid:740888008\> 2024-01-31 19:56:14 by 苝昭</span>
+>[jump](#pid740887148) 自然之源丨(2024-01-31 19:50) 说: 
+>
+>颗晶颗晶氪![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+想起来氪氪佬了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+大家氪大家氪![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+

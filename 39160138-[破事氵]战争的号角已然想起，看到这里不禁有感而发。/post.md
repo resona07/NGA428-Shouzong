@@ -131,3 +131,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740862130">16.[0] \<pid:740862130\> 2024-01-31 17:31:25 by 我不会。</span>
 ![img](./16_0fc628sg.jpg)
 
+----
+
+##### <span id="pid740888559">17.[0] \<pid:740888559\> 2024-01-31 19:59:36 by 纯良棉花</span>
+>[jump](#pid740837181) 两到三行(2024-01-31 15:39) 说: 
+>
+>都是兄弟的错，是兄弟来迟了，以后跟大家一起图图![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
+
+那倒也不用了，我怕你也变成幽默棉花![泪3](https://img4.nga.178.com/ngabbs/post/smile/pt40.png)
+
