@@ -164,3 +164,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740759948">26.[0] \<pid:740759948\> 2024-01-31 09:40:20 by QUSIWQVT</span>
 牠居然还写进更新公告里面了，没有直接偷偷去掉，牠真的，我哭死![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid740760508">27.[0] \<pid:740760508\> 2024-01-31 09:42:59 by 尚未转职枪兵的幸运E</span>
+>[jump](#pid740754736) lnsbhxh(2024-01-31 09:14) 说: 
+>
+>不改=不存在问题，全是米黑无中生有带节奏，无需回应
+>改了写出来=光明正大，不怕你说，本来就没问题
+>改了不写出来=从来没发生过这回事，全都是黑子岁月史书造谣，不然你找找哪里有修改公告？
+
+赢赢赢，赢麻了
+
+![img](./27_ce9d242v.jpg)
+

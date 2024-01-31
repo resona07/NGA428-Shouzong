@@ -250,3 +250,21 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 也就逮着男玩家踩了![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740762168">39.[1] \<pid:740762168\> 2024-01-31 09:51:02 by XXNnmsl</span>
+很喜欢触乐幕刃的几句话
+“虽然我对尼尔机械纪元里的小男孩9s发情，但是2b太男凝了。”
+“虽然我玩乙游b都要扣烂，但是galgame消失能让世界更美好。”
+建议所有人都品读一下触乐网之前妇女节发的几篇雌文，感受一下幕刃的双标和逆天程度，这就是我们高学历高审美有文化的理智女人啊，真是处处又生生啊。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740763607">40.[0] \<pid:740763607\> 2024-01-31 09:57:31 by liyunhao</span>
+这文章明早是春秋笔法拉满了，暗着损玩家群体![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740764055">41.[0] \<pid:740764055\> 2024-01-31 09:59:30 by D-命运</span>
+翀从16年分家学到的不会只有买水军通稿吧![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

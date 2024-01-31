@@ -7,3 +7,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid0">0.[0] \<pid:0\> 2024-01-30 21:50:35 by 微粒时机</span>
 zsbdzsbd
 
+----
+
+##### <span id="pid740764035">1.[0] \<pid:740764035\> 2024-01-31 09:59:24 by 星海游圣</span>
+昨晚刚下载，国内刚开始不删档测试，感觉还可以，毕竟是在海外比王者火多了的存在，据说是东南亚国民游戏？
+英雄画风不错，新手送的英雄皮肤不少，其他的还没太了解。被王者的匹配机制折磨累了，到这边开发一下
+

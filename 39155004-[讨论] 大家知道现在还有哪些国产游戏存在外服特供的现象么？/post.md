@@ -294,3 +294,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 因为以前真的因为登顶发过十连![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在因为登不了顶所以不发登顶十连，但是不能说外服登顶就发十连是外服特供吧![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)，除非他在登一次没发才算是外服特供
 
+----
+
+##### <span id="pid740762545">34.[0] \<pid:740762545\> 2024-01-31 09:52:44 by 环形ss</span>
+经典钓鱼话题了...尬黑=洗，有时候都怀疑车粥日供10连的是社管，专门用来截图举例“车粥的都是这种货色”
+
+----
+
+##### <span id="pid740763636">35.[0] \<pid:740763636\> 2024-01-31 09:57:37 by lnww</span>
+粥友自己都说日服十连是特供了,你们还不支持一下?![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
