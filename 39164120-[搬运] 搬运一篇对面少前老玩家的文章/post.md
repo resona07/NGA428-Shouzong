@@ -220,3 +220,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740909473">16.[0] \<pid:740909473\> 2024-01-31 22:17:28 by DrAgons_PriDe</span>
 虽然但是，2看着也没觉得哪里硬核了
 
+----
+
+##### <span id="pid740915283">17.[1] \<pid:740915283\> 2024-01-31 23:00:03 by 无聊毁灭世界</span>
+扯勾巴犊子，那为啥少前1就忍了？不是磕得很欢乐嘛
+

@@ -117,3 +117,21 @@ nga虽然充斥着RPG引战弱智贴，但大部分也就一时热度，最多�
 
 没事我心态好，之后几天少前2没新瓜的话就撤了。这一堆瓜可太乐。以后看缘分再去哪个版转转。玩手游也好，逛社区也好，说到底不就图一个开心吗。不开心就退坑呗，我一堆单机还没玩呢。
 
+----
+
+##### <span id="pid740915581">18.[0] \<pid:740915581\> 2024-01-31 23:02:14 by 请问你是老娘的Master吗</span>
+>[jump](#pid740908540) lucifiniczw(2024-01-31 22:10) 说: 
+>
+>正常聊也不会出事，只要该规避的规避就行![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+也不一定![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看见好几个不相干的莫名下面就有人刷棉花的帖了，看着怪烦人的![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)倒是感觉有男不玩变少了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)别轻易就扔掉啊。
+
+----
+
+##### <span id="pid740916184">19.[0] \<pid:740916184\> 2024-01-31 23:06:40 by fervent159</span>
+>[jump](#pid740915581) 请问你是老娘的Master吗(2024-01-31 23:02) 说: 
+>
+>也不一定![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看见好几个不相干的莫名下面就有人刷棉花的帖了，看着怪烦人的![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)倒是感觉有男不玩变少了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)别轻易就扔掉啊。
+
+大伙都享受这种试探的刺激感![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

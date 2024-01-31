@@ -1059,3 +1059,8 @@ bushi，配上doro这张剧情哭脸好笑程度简直加倍了(
 
 我认为这贴游戏性碾压棉花。
 
+----
+
+##### <span id="pid740917313">147.[0] \<pid:740917313\> 2024-01-31 23:14:54 by glotia</span>
+龟龟，好快的死![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
