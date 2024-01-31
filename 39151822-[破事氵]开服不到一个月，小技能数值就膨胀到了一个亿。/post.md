@@ -86,3 +86,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740725285">12.[0] \<pid:740725285\> 2024-01-31 00:32:54 by Carol骨头</span>
 你再看看boss的血条？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740825503">13.[0] \<pid:740825503\> 2024-01-31 14:49:18 by 黄昏色の詠使い</span>
+原图作者过来手综凑个热闹![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不得不说打出来的一瞬间还是有点爽的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，就是boss血有点少建议再翻两倍~~平砍一刀900w是真不够砍的~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

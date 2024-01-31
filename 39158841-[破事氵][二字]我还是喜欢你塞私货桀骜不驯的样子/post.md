@@ -35,3 +35,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740823592">5.[0] \<pid:740823592\> 2024-01-31 14:40:31 by DGVHJKCX</span>
 ![img](./5_55923ad7.gif)
 
+----
+
+##### <span id="pid740825518">6.[0] \<pid:740825518\> 2024-01-31 14:49:20 by 白川付田</span>
+刚刚恰好瞥到20赞变19赞，是员工还是学长![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+聊两句呗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

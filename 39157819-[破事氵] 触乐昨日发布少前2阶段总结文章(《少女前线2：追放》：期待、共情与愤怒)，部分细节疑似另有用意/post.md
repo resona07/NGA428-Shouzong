@@ -125,3 +125,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 不得不说，洗的不错
 最厉害的谎言是全说真话，让你自己脑补出一个他想要的结果，至于缺失的真相你不去探究是根本不知道的，这波黄老板钱花的不亏，可算干点正事了，就是不知道未来还能不能有钱办正事![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740826987">19.[1] \<pid:740826987\> 2024-01-31 14:56:05 by 樱花牌柴油</span>
+全文最抽象的是两位“沉默的大多数”玩家
+他展示了满命的g36![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740827316">20.[0] \<pid:740827316\> 2024-01-31 14:57:38 by XXNnmsl</span>
+触乐这种女拳游戏自媒体的文章跟厕纸有什么区别![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

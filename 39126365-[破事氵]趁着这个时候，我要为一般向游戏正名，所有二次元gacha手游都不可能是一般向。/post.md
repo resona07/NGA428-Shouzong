@@ -183,3 +183,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740824238">23.[0] \<pid:740824238\> 2024-01-31 14:43:25 by 红酒会</span>
 因为二次元本来就不能代表大众圈子，顶多算二次元里面的一般向![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740827902">24.[0] \<pid:740827902\> 2024-01-31 15:00:13 by sadudas</span>
+第七史诗算不算一般向？e7的老哥人均对着角色色图聊强度呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

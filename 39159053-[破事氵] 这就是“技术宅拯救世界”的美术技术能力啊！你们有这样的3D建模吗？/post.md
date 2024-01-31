@@ -60,3 +60,54 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 全身乌漆嘛黑+老套刻板到极致的红框眼镜
 我直接地图炮,喜欢这角色的人零审美,又土又丑![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740825304">11.[1] \<pid:740825304\> 2024-01-31 14:48:29 by 荆条花3</span>
+真没人觉得像那英吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740825783">12.[7] \<pid:740825783\> 2024-01-31 14:50:32 by 大雨滞水</span>
+还不如蛋哥
+![img](./12_dc1cd1g.jpeg)
+
+----
+
+##### <span id="pid740825886">13.[1] \<pid:740825886\> 2024-01-31 14:51:04 by 蹦哒的鱼鱼</span>
+这黑香蕉真tm丑，nga还有广告![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740826086">14.[2] \<pid:740826086\> 2024-01-31 14:51:59 by XXNnmsl</span>
+记得当年芭芭拉的透肉白丝甚至能看到内裤上的花纹![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)只能说女性向神游能给龟龟们出个女五星就感恩戴德吧
+
+----
+
+##### <span id="pid740826179">15.[0] \<pid:740826179\> 2024-01-31 14:52:25 by Mélusine003</span>
+人体彩绘怎么你了![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)![鬼脸](https://img4.nga.178.com/ngabbs/post/smile/a2_14.png)
+
+----
+
+##### <span id="pid740826339">16.[0] \<pid:740826339\> 2024-01-31 14:53:12 by 彼养的卡丘</span>
+>[jump](#pid740825783) 大雨滞水(2024-01-31 14:50):
+
+这是哪个角色来着
+
+----
+
+##### <span id="pid740827884">17.[0] \<pid:740827884\> 2024-01-31 15:00:07 by risyran</span>
+不说这丑到爆的建模和设计，女中配也难听的要死，真的会有人抽这个角色吗？？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740827890">18.[0] \<pid:740827890\> 2024-01-31 15:00:09 by glotia</span>
+2.0那批角色出完以后米厂的美术已经烂完了。没几个能看的。
+
+----
+
+##### <span id="pid740827966">19.[0] \<pid:740827966\> 2024-01-31 15:00:30 by 大雨滞水</span>
+>[jump](#pid740826339) 彼养的卡丘(2024-01-31 14:53) 说: 
+>这是哪个角色来着
+
+莱欧斯利(想了好久)
+

@@ -94,3 +94,48 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./16_f4141f7.webp)
 我一开始还以为是采矿那个水晶叠在龟上面了呢，结果一查好家伙是真的，应该是天赋突破材料，乐了
 
+----
+
+##### <span id="pid740825124">17.[0] \<pid:740825124\> 2024-01-31 14:47:41 by Mélusine003</span>
+笑点解析：<b>黄毛绿壳鬼</b>![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740825866">18.[2] \<pid:740825866\> 2024-01-31 14:50:57 by 神圣的卡苟斯</span>
+春节最佳GIF，谁赞同谁反对
+![img](./18_47d99088.gif)
+
+----
+
+##### <span id="pid740825953">19.[1] \<pid:740825953\> 2024-01-31 14:51:24 by 二刺螈之王师傅</span>
+~~这龟好像还真是新加的~~
+龟、结晶，懂了是太乐巴戈斯。![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+![img](./19_b99eb4go.jpg)
+
+----
+
+##### <span id="pid740826152">20.[3] \<pid:740826152\> 2024-01-31 14:52:18 by 在纽约的企鹅</span>
+当你怀疑米哈游恶心你的时候，一定没错![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，和羽中一样![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740826327">21.[5] \<pid:740826327\> 2024-01-31 14:53:08 by 大雨滞水</span>
+![img](./21_7f90c0t.jpeg)
+
+----
+
+##### <span id="pid740826606">22.[3] \<pid:740826606\> 2024-01-31 14:54:27 by 焰火蝉</span>
+在别的游戏，我会觉得你在过度联想
+但在，那当然就是真的，众所周知，米哈游非常注意游戏细节捏![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740827284">23.[1] \<pid:740827284\> 2024-01-31 14:57:29 by glotia</span>
+绿色结晶龟龟![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)确实很符合。
+
+----
+
+##### <span id="pid740827619">24.[1] \<pid:740827619\> 2024-01-31 14:58:54 by 顺劈带暴击</span>
+这个之前我也有说过，我还以为大伙都不在意呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -23,3 +23,65 @@ xxn在二游有龟男护主。
 ##### <span id="pid740824517">3.[0] \<pid:740824517\> 2024-01-31 14:44:50 by 沓野奏</span>
 热情好客，天天有癫狂屠戮和万军取首吃
 
+----
+
+##### <span id="pid740824814">4.[4] \<pid:740824814\> 2024-01-31 14:46:11 by Katyushagent</span>
+兄弟，会被暴打的，女人只会影响拔剑的速度![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740824931">5.[6] \<pid:740824931\> 2024-01-31 14:46:47 by lihnmu</span>
+![img](./5_6d095bcs.jpg)
+贴个刚抽出来的烧鸡  
+穷哥们十几个箱子出了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740825085">6.[0] \<pid:740825085\> 2024-01-31 14:47:29 by 沓野奏</span>
+>[jump](#pid740824931) lihnmu(2024-01-31 14:46) 说: 
+>
+>![img](./5_6d095bcs.jpg)
+>贴个刚抽出来的烧鸡
+
+我只看到你没有小花![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740825117">7.[1] \<pid:740825117\> 2024-01-31 14:47:38 by 彼养的卡丘</span>
+就我个人而言没见过女的玩杀的
+
+----
+
+##### <span id="pid740825208">8.[1] \<pid:740825208\> 2024-01-31 14:48:03 by lihnmu</span>
+>[jump](#pid740825085) 沓野奏(2024-01-31 14:47) 说: 
+>
+>我只看到你没有小花![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)
+
+----
+
+##### <span id="pid740825746">9.[0] \<pid:740825746\> 2024-01-31 14:50:21 by a小包子</span>
+玩这个的大部分都没有男女之分了，小部分偷偷发癫则明面上基本看不着![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740826347">10.[1] \<pid:740826347\> 2024-01-31 14:53:15 by jblz4743</span>
+听说三国杀因为和谐只能露jio，结果变成各种足技展示
+
+----
+
+##### <span id="pid740826407">11.[0] \<pid:740826407\> 2024-01-31 14:53:34 by Mélusine003</span>
+>[jump](#pid740824931) lihnmu(2024-01-31 14:46) 说: 
+>
+>![img](./5_6d095bcs.jpg)
+>贴个刚抽出来的烧鸡  
+>穷哥们十几个箱子出了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+草，我对三国杀的印象还停留在小乔上![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740827100">12.[0] \<pid:740827100\> 2024-01-31 14:56:37 by 萧西落</span>
+三国杀能像王者一样一直选个辅助让人带吗，不能，那有什么好说的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

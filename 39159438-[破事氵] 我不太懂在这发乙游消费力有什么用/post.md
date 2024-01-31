@@ -172,3 +172,45 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740824513">21.[0] \<pid:740824513\> 2024-01-31 14:44:50 by a小包子</span>
 因为这里是“精英论坛”吧，啥游戏都来这边走几圈，一边看不上一边又潜意识期待
 
+----
+
+##### <span id="pid740824743">22.[3] \<pid:740824743\> 2024-01-31 14:45:54 by NＯ10999</span>
+>[jump](#pid740824211) 神秘香香鸡(2024-01-31 14:43) 说: 
+>
+>就是因为我真见过才这么说的![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)不过我也懒得解释了，等会把我解释成男同就尴尬了
+
+你说的那种我猜大概是性别认知障碍吧，不能简单的说成是南通![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740825509">23.[0] \<pid:740825509\> 2024-01-31 14:49:18 by R9801</span>
+>[jump](#pid740822213) 蓝羽鸦(鸡肉味)(2024-01-31 14:33) 说: 
+>
+>男酮不是喜欢猛的么，那种牛郎在男酮里能吃得开么？
+
+这不就一个
+[url](https://tieba.baidu.com/p/8866852436?&amp;share=9105&amp;fr=sharewise&amp;is_video=false&amp;unique=C4149900A07BA0B9473254F0228F925C&amp;st=1706683730&amp;client_type=1&amp;client_version=12.53.3.0&amp;sfc=copy&amp;share_from=post)
+
+----
+
+##### <span id="pid740825549">24.[0] \<pid:740825549\> 2024-01-31 14:49:26 by NeonKight</span>
+>[jump](#pid740821873) Drunk醉梦(2024-01-31 14:32) 说: 
+>
+>为了证明你们的有男不玩没有用，你们不玩我们一样可以氪很多金
+>
+>有力的回击了之前那种女玩家希望男玩家进去氪金养游戏这种寄生虫论调，没有男玩家，女玩家一样有十足的消费能力
+
+没用怎么那么多集美红温破防了？
+
+----
+
+##### <span id="pid740825793">25.[0] \<pid:740825793\> 2024-01-31 14:50:36 by 未薇HAO</span>
+>[jump](#pid740822880) 蓝梦公司(2024-01-31 14:37):
+
+你这个游戏可能是这个板块最讨厌的cp游戏，这个游戏的氪金点好像是换装![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740825982">26.[0] \<pid:740825982\> 2024-01-31 14:51:32 by Mélusine003</span>
+没事，乙解打不过男同![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
