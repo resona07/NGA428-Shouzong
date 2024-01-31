@@ -38,3 +38,37 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740895365">5.[0] \<pid:740895365\> 2024-01-31 20:43:04 by 肯定是假的</span>
 我寻思没什么问题啊，以前版本是骂MXZ，现在还是
 
+----
+
+##### <span id="pid740897011">6.[4] \<pid:740897011\> 2024-01-31 20:54:28 by Mélusine003</span>
+去年就被拷打了，当时的套路是当没看见，故意放任团建挂城墙，结果今年温水煮青蛙煮不下去，青蛙全急了，这就开始直接往锅里倒热油了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740897223">7.[1] \<pid:740897223\> 2024-01-31 20:55:53 by 黄前久美子子</span>
+1234 biubiubiubiu 只能说人家一线部队还是专业 你先别说他们干了啥 你就说他们这个加密是不是很超前
+
+----
+
+##### <span id="pid740897454">8.[0] \<pid:740897454\> 2024-01-31 20:57:29 by 禁止窥屏00七</span>
+我只能说，你想在这个论坛树自己的旗，得明白 那个 是碰都不能碰的滑梯。
+![img](./8_34d0795h.jpg)
+
+----
+
+##### <span id="pid740897510">9.[0] \<pid:740897510\> 2024-01-31 20:57:50 by 纯良棉花</span>
+>[jump](#pid740895274) SANSSSSSSSS(2024-01-31 20:42) 说: 
+>
+>可不敢提某游，小号求留档图光速被锁扣球7天
+
+去知乎看，[url](https://zhuanlan.zhihu.com/p/680615867)，欢迎补充
+
+----
+
+##### <span id="pid740897595">10.[0] \<pid:740897595\> 2024-01-31 20:58:27 by 纯良棉花</span>
+>[jump](#pid740897011) Mélusine003(2024-01-31 20:54) 说: 
+>
+>去年就被拷打了，当时的套路是当没看见，故意放任团建挂城墙，结果今年温水煮青蛙煮不下去，青蛙全急了，这就开始直接往锅里倒热油了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+你看看我们纯良棉友的优越性，干锅牛蛙你就说好不好吃吧![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+

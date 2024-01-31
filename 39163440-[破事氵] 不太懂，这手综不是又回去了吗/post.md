@@ -55,3 +55,102 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740895658">9.[0] \<pid:740895658\> 2024-01-31 20:45:09 by 阿里里1222</span>
 这两家现在我只看戏，毕竟不知道什么时候就被当枪使了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740895751">10.[19] \<pid:740895751\> 2024-01-31 20:45:51 by 断神霹雳001</span>
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)小时候看哈利波特觉得罗琳是傻逼，怎么可能有人的名字提都不能提呢。长大了知道了傻逼的原来是自己，现实世界里伏地魔可太多了。
+
+----
+
+##### <span id="pid740895788">11.[7] \<pid:740895788\> 2024-01-31 20:46:05 by Deathana</span>
+那还是不一样的，以前是只能提某一家，现在是不能提某一家![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740895936">12.[0] \<pid:740895936\> 2024-01-31 20:47:09 by 衝破雷神槌</span>
+随便了，我还是有男不玩
+
+----
+
+##### <span id="pid740896108">13.[6] \<pid:740896108\> 2024-01-31 20:48:19 by Guidetowel-MK4</span>
+楼主的签名，对我们纯良舟友不太友好啊，
+
+唉，又要按坏一批键盘了。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740896130">14.[2] \<pid:740896130\> 2024-01-31 20:48:28 by Mélusine003</span>
+手综能说什么又不能说什么，不是我们说了算的。
+
+----
+
+##### <span id="pid740896133">15.[1] \<pid:740896133\> 2024-01-31 20:48:29 by 黄前久美子子</span>
+>[jump](#pid740895751) 断神霹雳001(2024-01-31 20:45):
+
+现在我竟然开始理解仙qu了，现在我们跟他们的叫法又有什么区别
+
+----
+
+##### <span id="pid740896200">16.[1] \<pid:740896200\> 2024-01-31 20:48:58 by 小卒龍寒</span>
+在这片中古世界，没有永远的王，但永远有个王![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740896287">17.[2] \<pid:740896287\> 2024-01-31 20:49:37 by 黄前久美子子</span>
+>[jump](#pid740896108) Guidetowel-MK4(2024-01-31 20:48):
+
+紧急打码，我先投降![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740896294">18.[3] \<pid:740896294\> 2024-01-31 20:49:38 by 寒风彻夜</span>
+你可以说米啊
+比如可以同时评价<b>崩</b>坏星穹轨道和<b>未</b>定事件簿
+歪屁股<b>崩未</b>是初升东曦
+(这是夸这俩游戏未来成绩会更好)
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740896353">19.[9] \<pid:740896353\> 2024-01-31 20:50:02 by 纯良棉花</span>
+>[jump](#pid740896133) 黄前久美子子(2024-01-31 20:48) 说: 
+>
+>现在我竟然开始理解仙qu了，现在我们跟他们的叫法又有什么区别
+
+截图了，等我回棉版这就是手综下头男投奔仙的力证![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)
+
+----
+
+##### <span id="pid740896466">20.[4] \<pid:740896466\> 2024-01-31 20:50:44 by dtvjde</span>
+现在可以理解部分仙蛆为什么用这么多外号了
+不过什么1234和biu之类的听起来也真幼稚
+
+----
+
+##### <span id="pid740896496">21.[3] \<pid:740896496\> 2024-01-31 20:50:56 by 纯良棉花</span>
+>[jump](#pid740896130) Mélusine003(2024-01-31 20:48) 说: 
+>
+>手综能说什么又不能说什么，不是我们说了算的。
+
+赫赫，手综是仙还是其他什么成分，要由我们棉版自己说了算![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)
+
+----
+
+##### <span id="pid740896598">22.[7] \<pid:740896598\> 2024-01-31 20:51:39 by 我是社管有男不玩</span>
+反仙队伍少了个人我就说一句
+
+----
+
+##### <span id="pid740896676">23.[1] \<pid:740896676\> 2024-01-31 20:52:16 by lucifiniczw</span>
+借用一句辐射台词war war never changed![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740897625">24.[0] \<pid:740897625\> 2024-01-31 20:58:40 by 泷泽晓夜</span>
+历史是个圈
+前有虫群
+后有利刃
+现有仙蛆
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+总会有些不可言说之物
+

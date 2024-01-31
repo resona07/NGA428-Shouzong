@@ -533,3 +533,44 @@ A你怎么死了
 ##### <span id="pid740895608">80.[0] \<pid:740895608\> 2024-01-31 20:44:44 by 猛男银鸽</span>
 ![img](./80_f2f15e3k.jpg)不知道谁给我鲨的![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)
 
+----
+
+##### <span id="pid740895940">81.[0] \<pid:740895940\> 2024-01-31 20:47:10 by 肯定是假的</span>
+楼主你换个思路，既然大家都因为同样的原因出事，何必吵来吵去呢
+
+----
+
+##### <span id="pid740896205">82.[5] \<pid:740896205\> 2024-01-31 20:49:01 by glotia</span>
+>[jump](#pid740895608) 猛男银鸽(2024-01-31 20:44):
+
+全版禁言，谁杀的没点B数![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)居然敢骂姥爷，不想活了。
+
+----
+
+##### <span id="pid740896245">83.[0] \<pid:740896245\> 2024-01-31 20:49:22 by 云戥</span>
+>[jump](#pid740895608) 猛男银鸽(2024-01-31 20:44) 说: 
+>
+>![img](./80_f2f15e3k.jpg)不知道谁给我鲨的![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)
+
+哥，知道厉害了吧![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740896368">84.[0] \<pid:740896368\> 2024-01-31 20:50:09 by Dorothy_Goddess</span>
+>[jump](#pid740895608) 猛男银鸽(2024-01-31 20:44) 说: 
+>
+>![img](./80_f2f15e3k.jpg)不知道谁给我鲨的![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)
+
+你别发出来，还会被杀的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740896926">85.[1] \<pid:740896926\> 2024-01-31 20:53:57 by 今日鸽</span>
+讲真，你拿悠星车大碧蓝属实有点幽默了，还不如拿悠星车小碧蓝，好歹姚小子多点
+
+----
+
+##### <span id="pid740896988">86.[0] \<pid:740896988\> 2024-01-31 20:54:19 by 整点鼠鼠</span>
+19年没嗦够24年继续是吧![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)，无所谓，我的钱包有自己的想法![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+![img](./86_a9a5d7nk.jpg)
+

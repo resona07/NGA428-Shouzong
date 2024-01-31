@@ -77,3 +77,39 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740894658">9.[0] \<pid:740894658\> 2024-01-31 20:37:53 by 一曲浮生</span>
 别急，明天就给你打![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid740895855">10.[0] \<pid:740895855\> 2024-01-31 20:46:30 by MYXYX</span>
+是的呢。服务器蛀虫从来没接到过电话。![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740895857">11.[0] \<pid:740895857\> 2024-01-31 20:46:31 by mxjv5</span>
+2.3w 来了个乌鸡 早几把退坑了![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740895980">12.[0] \<pid:740895980\> 2024-01-31 20:47:26 by 蔚蓝之青</span>
+成为这辉煌的注脚，不幸福吗？![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
+
+----
+
+##### <span id="pid740896140">13.[0] \<pid:740896140\> 2024-01-31 20:48:32 by Ranma0</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我这蛀虫都有甘雨打电话呢。你想想是不是得罪刘伟了
+
+----
+
+##### <span id="pid740896311">14.[0] \<pid:740896311\> 2024-01-31 20:49:45 by 你好再见88</span>
+![img](./14_557151k7.png)
+今天接到两次了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，问题是老早就弃坑了，当时3.6恶心坏了
+
+----
+
+##### <span id="pid740897338">15.[0] \<pid:740897338\> 2024-01-31 20:56:42 by qu1024</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)米家氪好几万的有专属客服呢，确实是分369等的
+
+----
+
+##### <span id="pid740897801">16.[0] \<pid:740897801\> 2024-01-31 21:00:04 by lance913</span>
+特烦这种打电话的，全拉黑了，你发短信也就算了，打骚扰电话是什么毛病
+

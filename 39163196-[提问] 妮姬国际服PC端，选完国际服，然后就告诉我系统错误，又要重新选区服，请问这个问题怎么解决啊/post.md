@@ -75,3 +75,24 @@ OK我试试
 ##### <span id="pid740893044">9.[0] \<pid:740893044\> 2024-01-31 20:27:04 by mxjv5</span>
 [url](https://nga.178.com/thread.php?fid=510371) 妮版this way![偷笑2](https://img4.nga.178.com/ngabbs/post/smile/pt03.png)
 
+----
+
+##### <span id="pid740896153">10.[0] \<pid:740896153\> 2024-01-31 20:48:35 by a7sama2000</span>
+现在可以直连了 和国服没区别![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740896243">11.[0] \<pid:740896243\> 2024-01-31 20:49:21 by Dorothy_Goddess</span>
+试试改host直连
+
+----
+
+##### <span id="pid740897127">12.[0] \<pid:740897127\> 2024-01-31 20:55:18 by 整点鼠鼠</span>
+试试改host直连，pc端改完甚至可以去商店里领每日钻，但手机端不知道为什么我不行
+加速器有时候是会这样的![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740897309">13.[0] \<pid:740897309\> 2024-01-31 20:56:27 by 猛男银鸽</span>
+加速器问题  如果和我用的一样是雷神的话  切一切线路等加速完全之后再打开客户端就行了
+
