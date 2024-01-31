@@ -135,3 +135,23 @@ blued过分醒目，原来这玩意是合法软件吗![瞎](https://img4.nga.178
 
 Blued草![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740874097">23.[1] \<pid:740874097\> 2024-01-31 18:32:17 by 银白风笛</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)你们对1.4分app是不是有什么误解![img](./23_85f3d2o.jpeg)
+
+----
+
+##### <span id="pid740875733">24.[0] \<pid:740875733\> 2024-01-31 18:41:24 by 神圣的卡苟斯</span>
+>[jump](#pid740874097) 银白风笛(2024-01-31 18:32) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)你们对1.4分app是不是有什么误解![img](./23_85f3d2o.jpeg)
+
+1.4分 X
+4个月发不起工资 √
+
+----
+
+##### <span id="pid740876001">25.[0] \<pid:740876001\> 2024-01-31 18:43:03 by 笑死我了AAA</span>
+这就是我们私人论坛的含金量啊
+

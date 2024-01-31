@@ -77,3 +77,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![img](./11_f5b174bu.jpg)
 人家原话是这个
 
+----
+
+##### <span id="pid740873908">12.[5] \<pid:740873908\> 2024-01-31 18:31:19 by 我不会。</span>
+>[jump](#pid740869068) Madfrogkygdiddy(2024-01-31 18:04) 说: 
+>
+>![img](./11_f5b174bu.jpg)
+>人家原话是这个
+
+这就是那维莱特的品德了，大家都知道他说的是什么，但你要是真去问他，只会来一句“谁让你对号入座了”，阴阳怪气的大师。
+
+----
+
+##### <span id="pid740874667">13.[1] \<pid:740874667\> 2024-01-31 18:35:15 by 奸奇至尊巫师</span>
+>[jump](#pid740864414) Mélusine003(2024-01-31 17:42):
+
+十分幽默，看来是内部也跟着仙蛆混混傻了，瓶皇那个话可是苏联笑话级别的不粘锅![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740875060">14.[1] \<pid:740875060\> 2024-01-31 18:37:33 by 狼牙破神势</span>
+他们最好真的去告![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
+
+----
+
+##### <span id="pid740875687">15.[0] \<pid:740875687\> 2024-01-31 18:41:10 by 雨中樱花</span>
+之前遇到的铁孝子，直接给这货发开盒的聊天记录，这位直接说造假，挺神奇的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

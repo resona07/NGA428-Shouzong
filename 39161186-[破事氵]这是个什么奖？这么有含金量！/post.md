@@ -165,3 +165,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740868716">27.[0] \<pid:740868716\> 2024-01-31 18:03:08 by hollyfool</span>
 最会恶心用户的公司最受从业者欢迎 含金量拉满了
 
+----
+
+##### <span id="pid740875544">28.[0] \<pid:740875544\> 2024-01-31 18:40:18 by 新年才醒</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)其实感觉榜单应该没问题，能这么高高在上恶心人的服务业钱还不少 谁不想干啊
+
+----
+
+##### <span id="pid740875587">29.[0] \<pid:740875587\> 2024-01-31 18:40:32 by 老憨痞了</span>
+有一说一，这是个死人频道![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+采访了一下投米哈游的，他们说是米哈游年薪70万![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

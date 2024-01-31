@@ -82,3 +82,54 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 丑的令人发指
 
+----
+
+##### <span id="pid740874078">10.[2] \<pid:740874078\> 2024-01-31 18:32:10 by 锍年</span>
+建模双肩都有的，但立绘里涂掉那对星星了，果然是捏鼻补膜，补膜都补不全的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)，什么时候解释一下那枚戒指是闪电姐送的还是季风乐队里的人送的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740875334">11.[0] \<pid:740875334\> 2024-01-31 18:39:09 by UID3244105</span>
+怎么这玩意也是午餐肉，幸好没去玩![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740875424">12.[0] \<pid:740875424\> 2024-01-31 18:39:38 by lhg1014953264</span>
+>[jump](#pid740874078) 锍年(2024-01-31 18:32) 说: 
+>
+>建模双肩都有的，但立绘里涂掉那对星星了，果然是捏鼻补膜，补膜都补不全的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)，什么时候解释一下那枚戒指是闪电姐送的还是季风乐队里的人送的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+问题补膜都补不利索，而且这皮肤也太丑了
+
+----
+
+##### <span id="pid740875589">13.[0] \<pid:740875589\> 2024-01-31 18:40:34 by 高咲侑Official</span>
+这是最开始的pv封面![img](./13_36c7e2sg.png)
+这是现在的pv封面![img](./14_55ac4esg.png)
+这是pv内容![img](./14_e5bc73cs.png)
+这是游戏内容![img](./13_380978g0.jpg)![img](./13_e06f71se.gif)
+
+----
+
+##### <span id="pid740875968">14.[0] \<pid:740875968\> 2024-01-31 18:42:50 by duqlwx</span>
+>[jump](#pid740875589) 高咲侑Official(2024-01-31 18:40) 说: 
+>
+>这是最开始的pv封面![img](./13_36c7e2sg.png)
+>这是现在的pv封面![img](./14_55ac4esg.png)
+>这是pv内容![img](./14_e5bc73cs.png)
+>这是游戏内容![img](./13_380978g0.jpg)[img].
+
+骚鸡，可惜属于雷蒙
+
+----
+
+##### <span id="pid740876148">15.[0] \<pid:740876148\> 2024-01-31 18:43:58 by lhg1014953264</span>
+>[jump](#pid740875589) 高咲侑Official(2024-01-31 18:40) 说: 
+>
+>这是最开始的pv封面![img](./13_36c7e2sg.png)
+>这是现在的pv封面![img](./14_55ac4esg.png)
+>这是pv内容![img](./14_e5bc73cs.png)
+>这是游戏内容![img](./13_380978g0.jpg)[img].
+
+怎么能蠢到这么令人发指
+
