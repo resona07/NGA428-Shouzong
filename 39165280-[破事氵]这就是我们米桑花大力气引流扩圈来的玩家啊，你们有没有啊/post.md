@@ -150,3 +150,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740930923">24.[0] \<pid:740930923\> 2024-02-01 01:04:14 by 念天冰凌</span>
 死猪是不怕开水烫的
 
+----
+
+##### <span id="pid740932181">25.[2] \<pid:740932181\> 2024-02-01 01:18:14 by 邀你共赏</span>
+你别说这说的好像挺有道理的，璃月服饰设计的还没稻妻有特色，之前还没出脑的时候看到天守阁榻榻米那种事真觉得他们做游戏挺认真的各种考据，现在想想还挺讽刺的![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+

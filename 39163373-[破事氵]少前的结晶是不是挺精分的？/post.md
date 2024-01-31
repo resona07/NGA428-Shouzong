@@ -306,3 +306,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740931432">46.[0] \<pid:740931432\> 2024-02-01 01:09:25 by 廷达罗斯之主</span>
 翀星怒是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)对游戏角色没感情，只想为翀尽孝
 
+----
+
+##### <span id="pid740932748">47.[0] \<pid:740932748\> 2024-02-01 01:25:07 by ZeroZaki77</span>
+这种精分XZ就是有男不玩诞生的直接原因啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -59,3 +59,8 @@ bcr开服我自建号蝗了一波，秉承玩游戏先交服务器钱的习惯�
 看送抽多不多![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 如果抽卡道具难获得的同时还有大保底的话肯定不想玩，因为玩起来我会感到很折磨
 
+----
+
+##### <span id="pid740933045">10.[0] \<pid:740933045\> 2024-02-01 01:28:30 by SAKURA*</span>
+我入坑fgo的时候从开服直到第一个福袋才有了第一个五星![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

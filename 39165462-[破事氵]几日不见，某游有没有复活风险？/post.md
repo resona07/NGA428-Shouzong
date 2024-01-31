@@ -172,3 +172,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740930618">23.[0] \<pid:740930618\> 2024-02-01 01:01:02 by mikolll</span>
 好嘛，6k流水，还是太高了  ，虽然被海军薄纱20倍
 
+----
+
+##### <span id="pid740932012">24.[0] \<pid:740932012\> 2024-02-01 01:16:16 by 暗辰灭斩</span>
+比起你版的有男不玩，实际上其他手游和它们的结晶更希望这某游死，那可是真正的利益相关，就这点它就不可能活过来
+

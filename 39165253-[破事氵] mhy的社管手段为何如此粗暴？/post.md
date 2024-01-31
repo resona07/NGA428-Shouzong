@@ -195,3 +195,10 @@ Yj是罕见公司
 ![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)赎罪券下个月底就要正式发售啦
 当然是先把加沙夷为平地，天兵才好入城清剿啊
 
+----
+
+##### <span id="pid740932763">25.[0] \<pid:740932763\> 2024-02-01 01:25:16 by mianmi123</span>
+>[jump](#pid740931039) ArthKurt(2024-02-01 01:05):
+
+害怕，看了下，那哥们我印象里一开始还不愿意直接黑米来的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

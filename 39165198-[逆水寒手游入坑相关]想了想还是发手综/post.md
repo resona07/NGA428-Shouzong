@@ -82,3 +82,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 因为逆子的剧情是男号安排师姐+女杀手路线 女号是师兄+男杀手路线 都是非常体贴关怀玩家的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740932867">14.[0] \<pid:740932867\> 2024-02-01 01:26:27 by 药师鬼</span>
+足控应该早点入坑的，上个小版本天天登录都是九灵撩水+南问雪倚月的镜头……![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740933044">15.[0] \<pid:740933044\> 2024-02-01 01:28:28 by 一曲浮生</span>
+>[jump](#pid740929728) 蜷守惠理(2024-02-01 00:51) 说: 
+>
+>为什么不能玩女号
+
+反正女号衣服要好看点。但是女号会和男NPC贴贴![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
