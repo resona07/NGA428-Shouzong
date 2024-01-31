@@ -92,3 +92,8 @@ Github 上自己分叉(fork)一下永流传 [url](https://github.com/hoyolife/li
 ##### <span id="pid740925686">11.[0] \<pid:740925686\> 2024-02-01 00:17:56 by 星空凛录</span>
 立言不是爆典啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740927916">12.[0] \<pid:740927916\> 2024-02-01 00:35:53 by chun1674</span>
+建议别跳，真能杀
+

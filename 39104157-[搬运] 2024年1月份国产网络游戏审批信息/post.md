@@ -320,3 +320,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 中国游戏产业网游、手游为主的这个行业格局又不是版号导致的![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)正是二十年前没有行业监管和引导，资本野蛮生长导致的这个现状
 
+----
+
+##### <span id="pid740927782">47.[0] \<pid:740927782\> 2024-02-01 00:34:50 by 浅川丶SunCi</span>
+腾讯的有什么
+
