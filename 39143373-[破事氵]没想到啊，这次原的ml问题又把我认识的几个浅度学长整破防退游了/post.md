@@ -378,3 +378,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 男角色服务女玩家中的老公党，女角色负责服务女玩家中的cpd
 真是周周又到到啊，你们有这么周到的女性向游戏吗
 
+----
+
+##### <span id="pid740775019">61.[0] \<pid:740775019\> 2024-01-31 10:49:13 by 月酱月酱</span>
+>[jump](#pid740533225) mianmi123(2024-01-30 02:13) 说: 
+>
+>啥，ml党还没跑？
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>都说麻辣人魔怔，现在还在玩原，我看这也太包容了
+
+早跑了![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)玩到稻妻汗都流完了，开始捣鼓ml，后面变成女酮。玩就知道该跑了
+

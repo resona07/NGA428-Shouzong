@@ -141,3 +141,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740769193">23.[0] \<pid:740769193\> 2024-01-31 10:22:58 by 技竜</span>
 你不练?不练集美们可要攻击你了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740776714">24.[0] \<pid:740776714\> 2024-01-31 10:56:31 by 来自AK47的问候</span>
+看到没有，极端派就是这种下场，还是我们有男不玩保守派快乐![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

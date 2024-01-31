@@ -19,3 +19,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740758968">2.[0] \<pid:740758968\> 2024-01-31 09:35:39 by Milan米兰</span>
 锁死，祝它们百年好合
 
+----
+
+##### <span id="pid740774779">3.[0] \<pid:740774779\> 2024-01-31 10:48:11 by 静幽魄</span>
+>[jump](#pid0) 先走的领导(2024-01-31 09:33) 说: 
+>
+>看不懂黑话了
+
+祝愿长长久久，我建议锁死
+

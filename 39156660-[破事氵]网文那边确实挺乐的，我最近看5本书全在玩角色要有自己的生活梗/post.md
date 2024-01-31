@@ -12,3 +12,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740773939">1.[0] \<pid:740773939\> 2024-01-31 10:44:46 by Guidetowel-MK4</span>
 激动死了，说个悲惨的事：笔在我手里。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740774112">2.[6] \<pid:740774112\> 2024-01-31 10:45:27 by 雨后池上</span>
+刺猬猫蹭二游的热梗很快的，最近是粥的角色有自己生活的节奏。之前还有FGO狮子夫人的节奏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740776924">3.[1] \<pid:740776924\> 2024-01-31 10:57:26 by 缠鲜血</span>
+刺猬猫的方舟有自己生活接火葬场的，十万字以上三十万字内太监的五六本了吧，三十万字以上写出点东西的我印象里都三本以上了，这还光是石棉的，少钱2有一本，手综有一本，反手大碧蓝薄纱其它手游角色的2,3本？你问米的？要么十万不到就自己割了要么被动割了
+
