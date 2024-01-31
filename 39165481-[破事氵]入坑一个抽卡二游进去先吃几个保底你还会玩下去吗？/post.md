@@ -22,3 +22,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740928822">3.[0] \<pid:740928822\> 2024-02-01 00:43:42 by 新水良真黑</span>
 第一个角色就吃保底，我肯定不玩了![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)
 
+----
+
+##### <span id="pid740929858">4.[0] \<pid:740929858\> 2024-02-01 00:53:15 by 鬼岛巨人一米四</span>
+抽卡能出货本身就是抽卡游戏正反馈的一部分，你伪随机卡井，说白了就是把最大的正反馈来源砍掉了，玩家不跑才怪
+
+----
+
+##### <span id="pid740930036">5.[0] \<pid:740930036\> 2024-02-01 00:55:04 by 黑夜宇光</span>
+pcr福利算好吧，送钻力度算T1梯队的了
+bcr开服我自建号蝗了一波，秉承玩游戏先交服务器钱的习惯氪了傻必就开始规划千里眼抽卡了，结果黑骑伊莉雅水黑三连井，歪都没给我歪出多少来，号直接被榨干，还因为缺角色游戏体验很差![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+遂弃，无缘![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid740930192">6.[0] \<pid:740930192\> 2024-02-01 00:56:47 by 一缕辰光</span>
+米氏卡池，十连九蓝一紫，挖一个版本然后赌50概率抽中，坚决不玩![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740930219">7.[0] \<pid:740930219\> 2024-02-01 00:57:02 by 不会安宁的夜</span>
+你要20发一个保底，三四块钱一抽我到可以考虑玩玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

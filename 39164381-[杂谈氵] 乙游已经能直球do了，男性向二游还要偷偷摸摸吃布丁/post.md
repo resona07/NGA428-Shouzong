@@ -428,3 +428,17 @@ Sex 強x 亂x都是基本款
 
 我挺悲观的 我感觉230年之后T0才能灭绝 因为有些东西根子上就是歪的
 
+----
+
+##### <span id="pid740929027">58.[1] \<pid:740929027\> 2024-02-01 00:45:31 by 炒股起家</span>
+>[jump](#pid740926869) 暗影观察者(2024-02-01 00:27) 说: 
+>
+>玩国产二次元手游就是活受罪，等版本t0都灭了才能变正常，还是玩国外游戏舒服![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+想多了，尺度最大的妮姬也比不上国产已游一根毛，只能狠生不逢时![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740929134">59.[0] \<pid:740929134\> 2024-02-01 00:46:26 by Schalke_04</span>
+乐![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)  遥遥领先
+
