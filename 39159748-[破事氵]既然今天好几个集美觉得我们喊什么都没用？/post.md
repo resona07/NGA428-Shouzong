@@ -399,3 +399,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我不玩，有的是人玩
 
+----
+
+##### <span id="pid740858903">48.[0] \<pid:740858903\> 2024-01-31 17:16:40 by 小汤圆109</span>
+>[jump](#pid740842150) 纯良棉花(2024-01-31 16:01) 说: 
+>
+>省流:27号晚上踩到棉花后四个号无了，现在你知道棉花是什么了吗
+
+老哥你是不是在我帖里发过言？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740859278">49.[0] \<pid:740859278\> 2024-01-31 17:18:20 by 安塞腰鼓对</span>
+头都被红色高棉砍光了当然没用![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+

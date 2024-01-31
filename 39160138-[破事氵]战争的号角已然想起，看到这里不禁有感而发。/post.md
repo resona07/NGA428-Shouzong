@@ -111,3 +111,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 也就日本最后一块净土了，欧美xxn都当上CEO了(比如玻璃渣)
 
+----
+
+##### <span id="pid740858793">14.[2] \<pid:740858793\> 2024-01-31 17:16:08 by ZGDX夜</span>
+哪里有战争不是单方面屠杀吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)不管是现实还是网络![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740859185">15.[0] \<pid:740859185\> 2024-01-31 17:17:57 by COREMS</span>
+>[jump](#pid740858423) 虎符白灵(2024-01-31 17:14) 说: 
+>
+>也就日本最后一块净土了，欧美xxn都当上CEO了(比如玻璃渣)
+
+日本并不是净土，因为日本市场太小，中国市场进不来，所以会向欧美市场妥协。
+现在日厂，特别是几个大厂的尺度都是越来越保守的。比如说SE，FF16加入LGBT，还出了黑人女主角的魔尼之地。模型建模省去内衣，锁视角不让全方面观察建模之类的近几年也是越来越多的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740862130">16.[0] \<pid:740862130\> 2024-01-31 17:31:25 by 我不会。</span>
+![img](./16_0fc628sg.jpg)
+

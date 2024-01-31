@@ -128,3 +128,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 得给这结晶龟龟换个绿色的
 
+----
+
+##### <span id="pid740858549">20.[0] \<pid:740858549\> 2024-01-31 17:15:01 by 保修肯德基</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)感觉还是手下留情了，不然给你打怪材料整龟结晶，采集材料给你整那个茶叶，今天就有更大的乐子了。
+
+----
+
+##### <span id="pid740859048">21.[0] \<pid:740859048\> 2024-01-31 17:17:19 by mr4648932</span>
+这游戏都烂成这样还玩的真就是结晶龟了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740859544">22.[0] \<pid:740859544\> 2024-01-31 17:19:32 by 请看我签名</span>
+毒血早排完了，不然你看贴吧那群嘴上骂的现在不还是在玩在氪![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740859590">23.[0] \<pid:740859590\> 2024-01-31 17:19:45 by abasiyalluo2</span>
+甚至还有一个华丽宝箱任务，任务流程浓缩一下就是“钓龟，启动”！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

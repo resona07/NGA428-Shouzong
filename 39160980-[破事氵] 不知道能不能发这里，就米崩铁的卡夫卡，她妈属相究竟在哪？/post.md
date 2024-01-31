@@ -260,3 +260,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740858412">36.[0] \<pid:740858412\> 2024-01-31 17:14:21 by 夜用加长型黑又硬</span>
 孝子自己认的
 
+----
+
+##### <span id="pid740858780">37.[1] \<pid:740858780\> 2024-01-31 17:16:05 by FeliciaStacy</span>
+罚你抄写猛干大作《母亲的怪纹身》十遍![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)阿刃的幻想启蒙当然得是妈妈了
+
+----
+
+##### <span id="pid740858907">38.[0] \<pid:740858907\> 2024-01-31 17:16:42 by scoutqq</span>
+>[jump](#pid740856275) 一曲浮生(2024-01-31 17:04) 说: 
+>
+>因为主角是他做出来的?
+>之前崩铁版还有人破防剧情说主角是几个人血脉，不知道是哪个版本
+
+就kfk一次up的那个版本,应该是1.3下?反正说了是四个人的dna~~应该,过去有点久了~~
+

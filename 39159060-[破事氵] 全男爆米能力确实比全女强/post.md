@@ -460,3 +460,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740854365">82.[2] \<pid:740854365\> 2024-01-31 16:55:47 by mp36969</span>
 我一直都支持厂商全去做乙游啊![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740855715">83.[0] \<pid:740855715\> 2024-01-31 17:01:48 by jake54133</span>
+但我有男不玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740858748">84.[0] \<pid:740858748\> 2024-01-31 17:15:54 by ee艺术家～</span>
+>[jump](#pid740814873) 932661769A(2024-01-31 13:59) 说: 
+>
+>说个悲伤的故事，钱包在我手里。
+>刚换了个34寸miniled带鱼屏，不给国内这群手游厂商上供我亏麻了![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)
+
+妈个鸡，今年算了算玩二游花的钱够我上4090了，我特么血亏
+
