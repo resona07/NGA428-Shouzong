@@ -141,3 +141,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740756698">21.[0] \<pid:740756698\> 2024-01-31 09:24:56 by 雨中樱花</span>
 仙如果真有脑子那就不会跑去当仙了
 
+----
+
+##### <span id="pid740759122">23.[0] \<pid:740759122\> 2024-01-31 09:36:25 by 卫星露天咖啡座</span>
+玩原神玩的，学中医学的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid740759242">24.[0] \<pid:740759242\> 2024-01-31 09:37:00 by 林忆莲梦露</span>
+信中医和玩原神，buff叠满了
+
+----
+
+##### <span id="pid740760329">25.[0] \<pid:740760329\> 2024-01-31 09:42:07 by 东方豆腐饭店</span>
+很符合我对“网络中医”的刻板印象![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -93,3 +93,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740755322">11.[0] \<pid:740755322\> 2024-01-31 09:17:43 by 约束的现世</span>
 直接看玩家社区xxn发声大不大不知可行不
 
+----
+
+##### <span id="pid740759495">12.[0] \<pid:740759495\> 2024-01-31 09:38:13 by JusticeSKL</span>
+>[jump](#pid740755322) 约束的现世(2024-01-31 09:17) 说: 
+>
+>直接看玩家社区xxn发声大不大不知可行不
+
+xxn这个群体往往是被热度吸引过来的。
+

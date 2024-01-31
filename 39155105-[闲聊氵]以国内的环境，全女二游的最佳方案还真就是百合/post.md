@@ -508,3 +508,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740757727">77.[0] \<pid:740757727\> 2024-01-31 09:29:45 by LlloIii</span>
 白河豚是不是没有jb啊？![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)真nm逆天
 
+----
+
+##### <span id="pid740759370">78.[0] \<pid:740759370\> 2024-01-31 09:37:38 by bsbot</span>
+然而你嘴里吹的sif正统续作sif2出道即出殡，三个月关服，还没舔狗神作解神者能苟活的东西也能跳出来叫了啊![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740760079">79.[0] \<pid:740760079\> 2024-01-31 09:40:53 by hi-na</span>
+那我倒希望以后厂商都做全女百合二游把河豚锁住别来祸害其他游戏
+
+----
+
+##### <span id="pid740760374">81.[0] \<pid:740760374\> 2024-01-31 09:42:19 by Storm烈风</span>
+所以有男不玩不是字面上的，那意义是啥![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid740760902">82.[0] \<pid:740760902\> 2024-01-31 09:44:54 by 白未名霜</span>
+sif系列都暴毙了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -275,3 +275,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 确实，钱少声音大，不如日服
 
+----
+
+##### <span id="pid740757955">31.[0] \<pid:740757955\> 2024-01-31 09:30:56 by Dorothy_Goddess</span>
+问题是有的游戏登顶发十连是不分区域的，甚至是跨代理商的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740758685">32.[1] \<pid:740758685\> 2024-01-31 09:34:16 by QUSIWQVT</span>
+我说句实话，这事基本也跟屁股有关
+车手游外服特供之前，先把索尼车了再说，第三方游戏PC玩家花了一样的钱买的，凭什么索尼独占那么多东西？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+如果你觉得索尼应该独占游戏额外内容，那外服特供也是合情合理的，就是这样![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid740758769">33.[0] \<pid:740758769\> 2024-01-31 09:34:37 by Maudy</span>
+>[jump](#pid740743666) 阳光低调行事(2024-01-31 07:54):
+
+因为以前真的因为登顶发过十连![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在因为登不了顶所以不发登顶十连，但是不能说外服登顶就发十连是外服特供吧![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)，除非他在登一次没发才算是外服特供
+

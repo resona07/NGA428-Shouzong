@@ -154,3 +154,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740756558">24.[0] \<pid:740756558\> 2024-01-31 09:24:12 by qu1024</span>
 公告里的冗余场景是不是璃月啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740758146">25.[0] \<pid:740758146\> 2024-01-31 09:31:49 by 终将归尘</span>
+冗余了三年是吧，真tm乐![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid740759948">26.[0] \<pid:740759948\> 2024-01-31 09:40:20 by QUSIWQVT</span>
+牠居然还写进更新公告里面了，没有直接偷偷去掉，牠真的，我哭死![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+

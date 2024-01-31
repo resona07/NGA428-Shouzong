@@ -38,3 +38,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740746104">5.[0] \<pid:740746104\> 2024-01-31 08:19:35 by 哒哒块2号机</span>
 好像云图挺多这样设计的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740759190">6.[0] \<pid:740759190\> 2024-01-31 09:36:45 by AC丿NTEP</span>
+你选的嘛，偶像
+
+----
+
+##### <span id="pid740759908">7.[0] \<pid:740759908\> 2024-01-31 09:40:09 by wmysh1627</span>
+这么恶心人的设计你不一样玩啊
+
