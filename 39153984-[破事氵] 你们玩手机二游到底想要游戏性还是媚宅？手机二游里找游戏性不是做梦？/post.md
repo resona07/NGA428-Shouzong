@@ -217,3 +217,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740754166">32.[0] \<pid:740754166\> 2024-01-31 09:11:33 by waterstars</span>
 我拿起手机就为了看美少女，要游戏性我可以去玩艾尔登法环或者塞尔达传说
 
+----
+
+##### <span id="pid740754894">33.[0] \<pid:740754894\> 2024-01-31 09:15:25 by 路过的白毛团子</span>
+完了，现在提到游戏性只剩激爽的操作游戏才有游戏性了吗![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)
+

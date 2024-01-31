@@ -85,3 +85,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 他们是懂写高质量ntr文案的
 
+----
+
+##### <span id="pid740755640">12.[0] \<pid:740755640\> 2024-01-31 09:19:26 by 红色233</span>
+肯定废了很大力气才说服星姐别犯病，但是条件是等她一个人写好埋好雷再上，可不能惯着玩家一点嗷
+

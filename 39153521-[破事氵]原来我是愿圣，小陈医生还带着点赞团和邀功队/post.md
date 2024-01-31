@@ -136,3 +136,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 某仙家军金主欲个人出资10万元成立仙家军基金会[url](https://nga.178.com/read.php?tid=39071719)
 
+----
+
+##### <span id="pid740756698">21.[0] \<pid:740756698\> 2024-01-31 09:24:56 by 雨中樱花</span>
+仙如果真有脑子那就不会跑去当仙了
+

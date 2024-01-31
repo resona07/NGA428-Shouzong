@@ -83,3 +83,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 广东米哈游分游你忘了！南山必胜客，打压的幕后黑手你忘了！
 
+----
+
+##### <span id="pid740754950">10.[0] \<pid:740754950\> 2024-01-31 09:15:43 by Dorothy_Goddess</span>
+直接从有没有国服开始问起吧![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)和谐就是一道坎
+
+----
+
+##### <span id="pid740755322">11.[0] \<pid:740755322\> 2024-01-31 09:17:43 by 约束的现世</span>
+直接看玩家社区xxn发声大不大不知可行不
+
