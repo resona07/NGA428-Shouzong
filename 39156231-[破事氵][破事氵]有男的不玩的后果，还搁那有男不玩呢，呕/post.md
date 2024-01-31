@@ -146,3 +146,26 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740776714">24.[0] \<pid:740776714\> 2024-01-31 10:56:31 by 来自AK47的问候</span>
 看到没有，极端派就是这种下场，还是我们有男不玩保守派快乐![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740778733">25.[0] \<pid:740778733\> 2024-01-31 11:05:23 by 坎蒂丝之盾</span>
+这是菜鸡而已 我不练男角色还不是随便满星 
+有男不玩！![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)贯彻核心思想远离痛苦
+
+----
+
+##### <span id="pid740778991">26.[0] \<pid:740778991\> 2024-01-31 11:06:34 by UID64792814</span>
+这也太菜了
+
+----
+
+##### <span id="pid740780804">27.[0] \<pid:740780804\> 2024-01-31 11:14:03 by linkaM</span>
+他要有男不玩会混成这个鸟样吗
+
+----
+
+##### <span id="pid740780850">28.[0] \<pid:740780850\> 2024-01-31 11:14:11 by Molotov鸡尾酒</span>
+“我们新式的 有男不抽 有男不练 已经完全超越了老式的 有男不玩”
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+~~你完全不懂老式天启的美~~
+

@@ -165,3 +165,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那个时候只能说是某一个游戏的强势期，那个游戏的硬生生把它压下去了而已。
 
+----
+
+##### <span id="pid740780925">25.[0] \<pid:740780925\> 2024-01-31 11:14:32 by 举声成霜</span>
+唉，内战内行。唉，都是利刃。
+
