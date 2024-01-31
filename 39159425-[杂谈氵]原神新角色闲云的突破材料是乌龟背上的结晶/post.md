@@ -139,3 +139,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740827619">24.[1] \<pid:740827619\> 2024-01-31 14:58:54 by 顺劈带暴击</span>
 这个之前我也有说过，我还以为大伙都不在意呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740829337">25.[0] \<pid:740829337\> 2024-01-31 15:06:30 by NＯ10999</span>
+这新角色又是皮套人？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740829529">26.[1] \<pid:740829529\> 2024-01-31 15:07:15 by 我想静静2023</span>
+噗，真不愧是米哈游，龟男们有福了
+
+----
+
+##### <span id="pid740829691">27.[0] \<pid:740829691\> 2024-01-31 15:07:55 by 有梦想的非酋</span>
+还挺生动形象的
+
+----
+
+##### <span id="pid740830437">28.[0] \<pid:740830437\> 2024-01-31 15:11:00 by berrysmithy</span>
+>[jump](#pid740821574) WTzl(2024-01-31 14:30) 说: 
+>
+>![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)原神再度超神![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)超越“沙脂蛹”![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)  还在玩米桑的龟龟的福报![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)尊重祝福锁死喵![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+沙脂蛹？
+
+傻子蛹？
+
+----
+
+##### <span id="pid740831071">29.[0] \<pid:740831071\> 2024-01-31 15:13:41 by coldse</span>
+绿氪结晶龟，米桑领带海洋，再度超神![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

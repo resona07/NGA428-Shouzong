@@ -91,3 +91,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740827797">12.[0] \<pid:740827797\> 2024-01-31 14:59:40 by 痛苦专家</span>
 四个字真的是给木构整急了![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
 
+----
+
+##### <span id="pid740828624">13.[0] \<pid:740828624\> 2024-01-31 15:03:24 by 黑色高級車</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)其他二游就算了，这也刷有男不玩，这不是自己给自己打标记
+
+----
+
+##### <span id="pid740829923">14.[0] \<pid:740829923\> 2024-01-31 15:08:54 by Arashio_prpr</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)太牛了吧 这么快就有虚假宣传套皮的了
+

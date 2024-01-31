@@ -211,3 +211,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740822447">27.[0] \<pid:740822447\> 2024-01-31 14:34:50 by DGVHJKCX</span>
 啊，才知道哇
 
+----
+
+##### <span id="pid740828440">28.[0] \<pid:740828440\> 2024-01-31 15:02:38 by 这里是狗粮爱好者协会</span>
+一代新人换旧人很正常
+
+但是旧人看着新人越来越多被人脑控变成傻逼，还要被傻逼跳脸攻击
+
+反击了还打不过，更惨了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+

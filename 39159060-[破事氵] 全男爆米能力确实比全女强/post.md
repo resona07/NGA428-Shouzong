@@ -303,3 +303,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740827778">54.[0] \<pid:740827778\> 2024-01-31 14:59:35 by 松愛推</span>
 乐，建议所有厂家allin乙游，反正我不玩![img](./54_eea2ab8w.gif)
 
+----
+
+##### <span id="pid740828568">55.[1] \<pid:740828568\> 2024-01-31 15:03:12 by 稚罗拉</span>
+这俩刚开服几天啊和大小碧蓝比流水![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)还没过半周年就开香槟只会让我觉得再不开就来不及了
+
+----
+
+##### <span id="pid740829745">56.[2] \<pid:740829745\> 2024-01-31 15:08:11 by 技竜</span>
+希望一个月后还能看到你的身影。开服几天的玩意闹麻了 ![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+裸男怼脸还爆不了米，我只能怀疑木构门全是女童了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740830277">57.[0] \<pid:740830277\> 2024-01-31 15:10:22 by jljhu</span>
+好！支持！有男不玩
+
+----
+
+##### <span id="pid740830951">58.[0] \<pid:740830951\> 2024-01-31 15:13:13 by ServalFriends</span>
+你等半年再在再说吧，hpma开服大爆过了半年成什么样了
+

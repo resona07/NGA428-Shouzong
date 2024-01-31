@@ -111,3 +111,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 莱欧斯利(想了好久)
 
+----
+
+##### <span id="pid740828332">20.[0] \<pid:740828332\> 2024-01-31 15:02:07 by 7X28X9</span>
+这下面是档还是屁股啊
+
+----
+
+##### <span id="pid740829619">21.[0] \<pid:740829619\> 2024-01-31 15:07:38 by 趴窝的花生</span>
+别尬黑，鸟类是用泄殖腔来繁殖的，没有批很正常
+这波啊，是原宝太细了
+![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740830348">22.[0] \<pid:740830348\> 2024-01-31 15:10:41 by zhz35</span>
+懂不懂什么叫核心技术啊，其他厂商做得到缝一堆足够让xxn破口大骂的“男凝”元素结果是依托丑的要死的答辩吗![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740831259">23.[0] \<pid:740831259\> 2024-01-31 15:14:33 by 顺劈带暴击</span>
+>[jump](#pid740814351) mianmi123(2024-01-31 13:56) 说: 
+>
+>感觉不如大蛋哥。。。 用心程度
+
+我想起一个好笑的事情，听说之前大蛋是在海森身上的
+
+然后被噶了![doge](https://img4.nga.178.com/ngabbs/post/smile/)
+
