@@ -68,3 +68,20 @@ B站就没罕见了？![你看看你](https://img4.nga.178.com/ngabbs/post/smile
 ##### <span id="pid740870674">12.[0] \<pid:740870674\> 2024-01-31 18:13:19 by 呵呵不会取名</span>
 差不多得了，近五年稍微出点圈的二游哪个没拿fgo拄过拐，甚至拄拐这个词都是fgo的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740871928">13.[0] \<pid:740871928\> 2024-01-31 18:20:06 by 咕哒小五郎</span>
+色彩和emiya都挺好的吧
+
+----
+
+##### <span id="pid740872125">14.[0] \<pid:740872125\> 2024-01-31 18:21:17 by 癸严池庚阮雷</span>
+他说型月音乐没有原神出圈你就信，你也就这样了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740872983">15.[0] \<pid:740872983\> 2024-01-31 18:26:05 by 真红眼教授</span>
+经典回顾![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)
+
+![img](./15_395a37a0.jpg)
+

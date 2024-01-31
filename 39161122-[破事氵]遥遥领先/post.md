@@ -312,3 +312,16 @@ mxz未必有那么大能量吧![哭笑](https://img4.nga.178.com/ngabbs/post/smi
 ##### <span id="pid740867804">50.[0] \<pid:740867804\> 2024-01-31 17:58:42 by gymandyou</span>
 这种投诉至少一半都是那种未成年退款的吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740872190">51.[0] \<pid:740872190\> 2024-01-31 18:21:40 by asbeersloth</span>
+>[jump](#pid740865791) daxi101(2024-01-31 17:49) 说: 
+>
+>这个榜NGA是常客了，2022年也有
+
+nga不被投诉就怪了
+
+ngaer可以把nga冲到下架整改
+某游厂家认玩家当义子，玩家开心的用义父攻击其他同公司的玩家
+高下立判
+

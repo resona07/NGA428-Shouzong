@@ -135,3 +135,60 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740870827">21.[0] \<pid:740870827\> 2024-01-31 18:14:04 by JusticeTheo</span>
 快看看角落里有没有熊猫和星做的标记![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740871524">22.[0] \<pid:740871524\> 2024-01-31 18:17:58 by xuruilove23</span>
+外包钱都舍不得了吗？
+
+----
+
+##### <span id="pid740871616">23.[0] \<pid:740871616\> 2024-01-31 18:18:24 by みずきしらぬい</span>
+![img](./23_0dabfasg.jpg)
+
+----
+
+##### <span id="pid740871746">24.[0] \<pid:740871746\> 2024-01-31 18:19:05 by 神代Loga</span>
+胶衣旗袍![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)雷蒙玩的挺花
+
+----
+
+##### <span id="pid740871826">25.[0] \<pid:740871826\> 2024-01-31 18:19:31 by coconautlau</span>
+啊？这什么建模
+我的评价是不如honeycome
+
+----
+
+##### <span id="pid740871847">26.[0] \<pid:740871847\> 2024-01-31 18:19:37 by 糸色 响</span>
+>[jump](#pid740870827) JusticeTheo(2024-01-31 18:14):
+
+熊猫估计得拆包找
+但是星不是很明显嘛![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+
+![img](./26_68a342f4.jpg)
+胳膊上的
+
+![img](./26_906730bj.jpg)
+然后再看看插画
+
+顺带提一下
+像这种标识在约稿绘画中是必然要重点提及的 也就是画画的是必须要遵守的
+Nikke之前的黑莲也是因为额外加了个朝圣标志然后紧急修改道歉
+那现在插画为什么胳膊上没有呢？
+我不好说![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740872149">27.[0] \<pid:740872149\> 2024-01-31 18:21:27 by みずきしらぬい</span>
+![img](./27_76155asg.jpg)
+
+----
+
+##### <span id="pid740872345">28.[0] \<pid:740872345\> 2024-01-31 18:22:23 by jake54133</span>
+不說我還以為塵白渲染![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740873363">29.[0] \<pid:740873363\> 2024-01-31 18:28:17 by sunshishi</span>
+这脸的建模也太像某国产虚拟偶像小队长了，看了ptsd
+

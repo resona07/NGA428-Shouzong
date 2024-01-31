@@ -48,3 +48,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 和小朋友一起玩蛋仔or元神
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740871115">8.[0] \<pid:740871115\> 2024-01-31 18:15:37 by 七彩人形</span>
+选一个需要值班的公司![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)我初二要值24小时，那天正好是亲戚聚会的日子
+
+----
+
+##### <span id="pid740871303">9.[0] \<pid:740871303\> 2024-01-31 18:16:41 by dtvjde</span>
+只能建议看书
+
+----
+
+##### <span id="pid740871415">10.[1] \<pid:740871415\> 2024-01-31 18:17:20 by HEARTUNDERBLΛDE</span>
+直接说过年要加班，出去玩几天
+
+----
+
+##### <span id="pid740871822">11.[1] \<pid:740871822\> 2024-01-31 18:19:30 by 穿上马甲就不认识了</span>
+找你老板，主动加班
+
+----
+
+##### <span id="pid740873008">12.[0] \<pid:740873008\> 2024-01-31 18:26:14 by 咸鱼二十九号</span>
+跟他们打游戏王，输的人手机下载原神
+
