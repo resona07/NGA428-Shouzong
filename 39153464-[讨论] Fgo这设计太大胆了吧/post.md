@@ -364,3 +364,13 @@ byd还画挺好![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740746199">69.[0] \<pid:740746199\> 2024-01-31 08:20:23 by 生气牛仔裤</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这才是nga！
 
+----
+
+##### <span id="pid740750489">70.[0] \<pid:740750489\> 2024-01-31 08:50:44 by 五百船的沉没</span>
+卧槽，巨阳仙尊![中枪](https://img4.nga.178.com/ngabbs/post/smile/ac3.png)
+
+----
+
+##### <span id="pid740751841">71.[0] \<pid:740751841\> 2024-01-31 08:58:35 by 奸奇至尊巫师</span>
+坏了，这线条感觉还挺合理![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

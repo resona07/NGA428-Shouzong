@@ -110,3 +110,14 @@ cy等安利。
 如果只是日系美少女的话那gal是不是也算![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)算的话还蛮多的哦，沙耶之歌、寒蝉。
 如果只要美少女不限定日系的话爱丽丝疯狂回归系列。
 
+----
+
+##### <span id="pid740750427">16.[0] \<pid:740750427\> 2024-01-31 08:50:21 by CourierSix</span>
+>[jump](#pid0) 灵魂大批量生产(2024-01-31 00:46) 说: 
+>
+>如题，最近想玩点新鲜的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>除了纸嫁衣![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>![img](./0_01ede762.jpg)![img](./0_0c34fdqo.jpg)![img](./0_ba23e25y.gif)
+
+心理恐怖的你在二游市场里面不是一捞一大把
+

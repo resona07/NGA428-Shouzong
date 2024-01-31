@@ -406,3 +406,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740747548">68.[0] \<pid:740747548\> 2024-01-31 08:31:35 by 最喜欢樱了</span>
 诶兄弟你怎么似了
 
+----
+
+##### <span id="pid740750124">69.[0] \<pid:740750124\> 2024-01-31 08:48:32 by 调皮的小灵通</span>
+真让人摸不着头脑![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740751038">70.[0] \<pid:740751038\> 2024-01-31 08:54:03 by Molotov鸡尾酒</span>
+CF幽灵模式![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+野隐刀一波 什么&#36;0&#36;战术![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
+
+----
+
+##### <span id="pid740751970">71.[0] \<pid:740751970\> 2024-01-31 08:59:16 by linkaM</span>
+当场斩首太乐了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -170,3 +170,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740749489">27.[0] \<pid:740749489\> 2024-01-31 08:44:39 by fsm4545</span>
 一开始以为是rpg，结果是新角色推广软文，手综是不是应该开个广告区了？
 
+----
+
+##### <span id="pid740749912">28.[0] \<pid:740749912\> 2024-01-31 08:47:11 by 河马大旋风</span>
+软文？ 硬文，硬洗
+

@@ -178,3 +178,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740746696">26.[0] \<pid:740746696\> 2024-01-31 08:24:30 by 炽天使の心</span>
 手游是可以做出来游戏性的，问题是你一上游戏性就会变得很肝![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，又咸又有游戏性的手游还真没见过，玩这种手游一定要多玩几个类似的不然要闲死
 
+----
+
+##### <span id="pid740751887">27.[0] \<pid:740751887\> 2024-01-31 08:58:51 by 橘ひなの</span>
+哪怕只说手机端很常见的音游，不同音游谱面质量玩过的都知道也有差异，这就是游戏性的体现
+
