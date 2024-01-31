@@ -153,3 +153,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740914577">24.[0] \<pid:740914577\> 2024-01-31 22:55:12 by 刘伟莱特。</span>
 ch早就原谅ou了，你们还惦记干什么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740920753">25.[0] \<pid:740920753\> 2024-01-31 23:41:18 by 隙间星云</span>
+不能理解，对于我来说我也很难觉得结晶龟是在骂我，这是骂自家的玩家和小盒仙们？
+
+----
+
+##### <span id="pid740920942">26.[0] \<pid:740920942\> 2024-01-31 23:42:48 by 说话可直了</span>
+龟龟结晶，怎么老米这么喜欢嘲讽它忠实的胃病？而不是嘲讽骂它的米黑呢![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

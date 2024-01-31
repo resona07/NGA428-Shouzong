@@ -73,3 +73,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 你让钱都给TX魔方工作室赚走了
 万代还怎么卖IP赚钱
 
+----
+
+##### <span id="pid740920497">12.[0] \<pid:740920497\> 2024-01-31 23:39:20 by WoCa8793</span>
+>[jump](#pid740910728) 7X28X9(2024-01-31 22:26) 说: 
+>
+>国内大厂有没有考虑过买龙珠ip啊，我想看玩大厂制作的龙珠手游，国际服不方便，现在国内的套皮龙珠手游太无聊了，起码制作水平精良点啊，我现在没手游氪金了，钱包正有闲呢，不行我就买steam和ns卡去了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+那还是建议买steam和ns卡。实际上腾讯买了爆裂大战的版权结果弄了个龙珠激斗出来……你可以看看和原版差距有多大。如果真想玩龙珠格斗游戏不如买龙珠斗士或者超宇宙，要么就等电光炸裂zero
+
+----
+
+##### <span id="pid740920956">13.[0] \<pid:740920956\> 2024-01-31 23:42:53 by 7X28X9</span>
+>[jump](#pid740920497) WoCa8793(2024-01-31 23:39):
+
+其实我已经买了几个了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是更想玩格斗性弱一点的抽卡手游，毕竟老年人手残![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

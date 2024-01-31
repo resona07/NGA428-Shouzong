@@ -97,3 +97,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740918579">15.[1] \<pid:740918579\> 2024-01-31 23:24:32 by glotia</span>
 当然是米厂之前的二游巫妖王，业界雪之下，硬核不媚宅，没有社管没有xz的()()()()咯![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)敢骂的都死了，刚刚才有个老哥骂碧蓝顺带喷了句伏地魔结果死了3回![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740920694">16.[3] \<pid:740920694\> 2024-01-31 23:40:53 by 优妮的温文儒雅</span>
+棉花游是这样的
+
+----
+
+##### <span id="pid740921171">17.[0] \<pid:740921171\> 2024-01-31 23:44:28 by 「剑指问苍天」</span>
+哥们第一次被割头皮就是因为棉花游，再也不敢攻击大人了，号还是想要的
+

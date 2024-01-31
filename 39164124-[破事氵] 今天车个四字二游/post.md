@@ -318,3 +318,13 @@ PPT不是可口可乐，全世界都一个味![别急](https://img4.nga.178.com/
 
 没被对面吹雪全场沉默那是对面鹰身女郎放过你了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740919328">47.[2] \<pid:740919328\> 2024-01-31 23:30:34 by glotia</span>
+Master Duel也是M，MXZ真的是![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740920892">48.[0] \<pid:740920892\> 2024-01-31 23:42:22 by 香风智乃i</span>
+不懂就问，这个游戏不练男卡会被围攻吗？![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+

@@ -15,3 +15,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
     这家公司从上到下都弥漫着背叛的气息。
     或许这游戏后两个字改成背德/背叛，会更加的贴切。
 
+----
+
+##### <span id="pid740919992">1.[0] \<pid:740919992\> 2024-01-31 23:35:29 by 岛风gogogo</span>
+叛徒比敌人更可恨
+
+----
+
+##### <span id="pid740920704">2.[1] \<pid:740920704\> 2024-01-31 23:41:00 by lucifiniczw</span>
+按骑士哥的说法，背叛可是从1就开始了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)![img](./2_ad4a112d.jpg)
+是谁给了羽中作妖的信心和勇气？这不是应得的福报 。
+

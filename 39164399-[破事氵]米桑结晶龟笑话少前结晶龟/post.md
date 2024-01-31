@@ -37,3 +37,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我也看到了
 他们以为是在yygq少前二![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740920502">6.[0] \<pid:740920502\> 2024-01-31 23:39:22 by 猛干的小号</span>
+你猜龟仙人是谁给谁取得![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
