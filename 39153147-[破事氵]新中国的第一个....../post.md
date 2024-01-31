@@ -327,3 +327,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 最好是圈地的，我前阵子在猴版都看到这个了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 
 被猴版的兄弟一顿骂
 
+----
+
+##### <span id="pid740744117">54.[0] \<pid:740744117\> 2024-01-31 08:00:03 by 孩子们我没肘</span>
+>[jump](#pid740728803) 平原兆力使(2024-01-31 01:06) 说: 
+>
+>这么龟的啊？抱歉我把他们跟公公比，公公至少还有些野心
+
+尬黑了，人公公自宫是讨生活
+
+----
+
+##### <span id="pid740744344">55.[0] \<pid:740744344\> 2024-01-31 08:02:51 by 大a加油</span>
+古代大多数公公自宫是活不下去了，但凡有条活路也不想阉了。图里这尊称一句——神龟![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

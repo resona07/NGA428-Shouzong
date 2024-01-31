@@ -25,3 +25,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740743461">1.[4] \<pid:740743461\> 2024-01-31 07:51:39 by 东方豆腐饭店</span>
 然后你娶的黄脸婆还和弟弟玩姐弟恋是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740744875">2.[0] \<pid:740744875\> 2024-01-31 08:08:10 by Molotov鸡尾酒</span>
+换游戏可比离婚的压力和阻力小多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+前者全看你自己想不想 沉没成本无非是氪的金和花的时间 之前的快乐不是假的 之后如果不快乐不爽没必要继续投入
+
+后者我不好说![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+毕竟有句老话 别把人生当游戏
+
+----
+
+##### <span id="pid740745002">3.[0] \<pid:740745002\> 2024-01-31 08:09:29 by 顺劈带暴击</span>
+>[jump](#pid740743461) 东方豆腐饭店(2024-01-31 07:51) 说: 
+>
+>然后你娶的黄脸婆还和弟弟玩姐弟恋是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+盲僧，你发现了华点![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

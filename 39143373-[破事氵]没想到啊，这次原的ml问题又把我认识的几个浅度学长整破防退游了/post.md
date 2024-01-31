@@ -270,3 +270,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740740294">45.[0] \<pid:740740294\> 2024-01-31 06:33:27 by 咕咕咕估</span>
 侏儒一出场就注定其他ml角色不会有说法了 ![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740744842">46.[0] \<pid:740744842\> 2024-01-31 08:07:52 by lgthesun</span>
+又有魈战？
+海灯节魈战剧情算是我第一次被一个游戏的剧情恶心到。
+
