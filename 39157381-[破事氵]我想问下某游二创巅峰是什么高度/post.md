@@ -222,3 +222,26 @@ cm本子爆款的不都是全女的吗![汗](https://img4.nga.178.com/ngabbs/pos
 可能是我信息茧房了吧，又不懂日语，没有什么新cm出了优质舟本的印象
 如果新出了优质的本子的话，请务必告诉我
 
+----
+
+##### <span id="pid740797474">32.[0] \<pid:740797474\> 2024-01-31 12:29:11 by ShadowApocrypha</span>
+我觉得圣经也应该算二创，所以我宣布方舟秒了![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+
+----
+
+##### <span id="pid740797604">33.[2] \<pid:740797604\> 2024-01-31 12:29:53 by malsjkpo</span>
+>[jump](#pid740797186) 祗堂鞠也不知道(2024-01-31 12:27):
+
+希望你去快雪猛嘬档案奶嘴时不是这副嘴脸哦![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740798497">34.[0] \<pid:740798497\> 2024-01-31 12:34:23 by 祗堂鞠也不知道</span>
+>[jump](#pid740797604) malsjkpo(2024-01-31 12:29) 说: 
+>
+>希望你去快雪猛嘬档案奶嘴时不是这副嘴脸哦![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+你喜欢去粪坑≠我喜欢去粪坑![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+我就贴了一个数据，你攻击我干什么？有点幽默了
+

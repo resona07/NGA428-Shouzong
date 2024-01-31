@@ -192,3 +192,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740734012">31.[0] \<pid:740734012\> 2024-01-31 02:25:46 by 幻想边缘</span>
 6![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
 
+----
+
+##### <span id="pid740799955">32.[0] \<pid:740799955\> 2024-01-31 12:41:42 by 燊尜酱</span>
+逆天，第一次知道乙游尺度这么大，那国内二游稍微漏点就吵吵闹闹？，要求一视同仁，男同志能团结起来？
+

@@ -224,3 +224,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740788503">37.[1] \<pid:740788503\> 2024-01-31 11:46:14 by 暗辰灭斩</span>
 这时候mxz应该祭出6字真言了
 
+----
+
+##### <span id="pid740798699">38.[0] \<pid:740798699\> 2024-01-31 12:35:23 by absordh2odemon</span>
+老哥你刚才新发的帖子无了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+

@@ -20,3 +20,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 现在看来，那句话可真的是各种意义上的“彩蛋”呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740800155">2.[0] \<pid:740800155\> 2024-01-31 12:42:39 by 河马大旋风</span>
+请问怎么开发票
+

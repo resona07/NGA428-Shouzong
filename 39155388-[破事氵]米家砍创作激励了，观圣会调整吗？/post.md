@@ -388,3 +388,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740797561">44.[0] \<pid:740797561\> 2024-01-31 12:29:41 by cccherch</span>
 营销费用砍了，那说明已经扩圈到极致了，系数肯定还要再涨！
 
+----
+
+##### <span id="pid740798317">45.[0] \<pid:740798317\> 2024-01-31 12:33:32 by Mélusine003</span>
+观圣的营收不靠创作激励，各家产品流水都要管，那岂不是要接几十个创作激励![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+不过米门KOL营销退潮，他那边数据确实也可能收缩，等等看吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

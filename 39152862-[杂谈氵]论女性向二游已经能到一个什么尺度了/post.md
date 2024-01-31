@@ -193,3 +193,19 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740763960">34.[0] \<pid:740763960\> 2024-01-31 09:59:03 by 鲜红威严の月</span>
 有没有举报方法，贴一下
 
+----
+
+##### <span id="pid740798135">35.[0] \<pid:740798135\> 2024-01-31 12:32:36 by 大a加油</span>
+麦艾斯![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid740798853">36.[0] \<pid:740798853\> 2024-01-31 12:36:10 by 扣1送颗粒石块</span>
+母枸真恶心啊，这么饥渴能不能买根电动棒塞自己批里![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740799471">37.[0] \<pid:740799471\> 2024-01-31 12:39:20 by setsuna2023</span>
+更有意思的是，这类游戏的受众在女玩家群体里是鄙视链下下游，各种“一般向”社区里的高贵女玩家嗦的奶嘴之一
+你们有没有想过，这种尺度都圈不住人而要去占领“一般向”话语权，背后映射出的群体心理又是什么不可名状之物![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

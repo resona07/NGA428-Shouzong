@@ -150,3 +150,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我不够阴湿，他们不要我的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740797667">21.[1] \<pid:740797667\> 2024-01-31 12:30:09 by XXNnmsl</span>
+原神还是称早改名gayshit吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)宅男费拉不堪钱少事多，还是仙女更高贵流水更多啊
+
+----
+
+##### <span id="pid740798406">22.[1] \<pid:740798406\> 2024-01-31 12:33:56 by 山花云锦里</span>
+宅宅穷哥们声音大没流水的，集美们谷子堆高高，消费力爆炸，出男角色没错
+
+----
+
+##### <span id="pid740798743">23.[2] \<pid:740798743\> 2024-01-31 12:35:38 by w103377197</span>
+对啊，米哈游就应该全面改乙女。
+
+----
+
+##### <span id="pid740799595">24.[0] \<pid:740799595\> 2024-01-31 12:39:52 by 帝辛子受</span>
+就应该支持大力口头支持，反正盲目信仰混沌大能要变混沌卵的又不是我![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
