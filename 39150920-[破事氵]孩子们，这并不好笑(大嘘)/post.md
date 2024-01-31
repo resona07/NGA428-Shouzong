@@ -263,3 +263,34 @@ And I&#39;ll tell you all about it when I see you again![冷](https://img4.nga.1
 
 虽然阿卡已经物是人非,我相信所有放飞飞艇的人都会尊敬焰火先生的举止。
 
+----
+
+##### <span id="pid740855837">42.[0] \<pid:740855837\> 2024-01-31 17:02:20 by sbsx123</span>
+>[jump](#pid740705900) 蹦哒的鱼鱼(2024-01-30 22:14) 说: 
+>
+>别了吧，不是一个性质的![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
+
+现在呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740856045">43.[0] \<pid:740856045\> 2024-01-31 17:03:19 by 庸医X</span>
+>[jump](#pid740855837) sbsx123(2024-01-31 17:02):
+
+棉花是自称，红色高棉才是外号，还是不一样的
+
+----
+
+##### <span id="pid740856207">44.[0] \<pid:740856207\> 2024-01-31 17:04:08 by 不能水经验三号机</span>
+fc不会是搞笑鸡funny chicken吧
+
+----
+
+##### <span id="pid740857267">45.[0] \<pid:740857267\> 2024-01-31 17:09:04 by 弱智吧同学</span>
+哈人，烟火佬这是被ccq了嘛![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)，反盒先锋都死了这也太惨了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid740857920">46.[0] \<pid:740857920\> 2024-01-31 17:12:07 by skq000</span>
+这下惹到棉花了
+

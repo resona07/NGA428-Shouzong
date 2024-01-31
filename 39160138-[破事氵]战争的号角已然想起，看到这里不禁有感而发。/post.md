@@ -98,3 +98,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 都是兄弟的错，是兄弟来迟了，以后跟大家一起图图![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
 
+----
+
+##### <span id="pid740858423">13.[0] \<pid:740858423\> 2024-01-31 17:14:24 by 虎符白灵</span>
+>[jump](#pid740835131) absordh2odemon(2024-01-31 15:31) 说: 
+>
+>其实我根本不想和他们开战
+>
+>我希望他们多出男性角色，把xxn锁死在国内
+>
+>我麻溜的滚出去玩外服游戏
+
+也就日本最后一块净土了，欧美xxn都当上CEO了(比如玻璃渣)
+

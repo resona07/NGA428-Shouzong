@@ -121,3 +121,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这游戏的操作逻辑放在PC上都算反人类的......特别是切换和建筑摆放。
 我都不敢想这放手机上是什么级别的灾难，而且我没记错的话和帕鲁公司合作的那个手游公司还是个菜狗公司![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740856072">18.[0] \<pid:740856072\> 2024-01-31 17:03:28 by 浮桥湾</span>
+哈？真的？
+

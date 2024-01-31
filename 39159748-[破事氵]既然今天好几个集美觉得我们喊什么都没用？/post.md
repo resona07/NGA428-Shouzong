@@ -375,3 +375,27 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 乖，学会了吧，回去教教其他人都这么喊。
 
+----
+
+##### <span id="pid740857956">46.[0] \<pid:740857956\> 2024-01-31 17:12:16 by 我不会。</span>
+>[jump](#pid740846122) Final Vent(2024-01-31 16:19) 说: 
+>
+>这不是痒痒鼠玩家先提出来的么……结合前面的回复，太讽刺了。~~再次让我回忆起退坑跑路的原因之一~~![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+少说两句，它还在看着你呢。
+
+![img](./46_134c65ce.jpg)
+
+----
+
+##### <span id="pid740858177">47.[0] \<pid:740858177\> 2024-01-31 17:13:17 by 蓝羽鸦（鸡肉味）</span>
+>[jump](#pid740828964) 依水观澜(2024-01-31 15:04) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)魔兽国服死之前我都能看到awwbwg
+>暴白别的不说至少嘴硬到底
+>现在喊有男不玩反而没人喊awwbwg了
+>你猜这是为什么呢
+>任何不用awwbwg来反驳有男不玩的就说明他不希望你不玩
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我不玩，有的是人玩
+

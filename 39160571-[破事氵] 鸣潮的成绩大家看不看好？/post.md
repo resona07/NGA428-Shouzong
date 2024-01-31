@@ -286,3 +286,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740854083">46.[0] \<pid:740854083\> 2024-01-31 16:54:34 by 反逆的W君</span>
 米池吗![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid740857193">47.[1] \<pid:740857193\> 2024-01-31 17:08:44 by mp36969</span>
+不关心，反正我不玩，混厕游戏都不关心
+
+----
+
+##### <span id="pid740857295">48.[0] \<pid:740857295\> 2024-01-31 17:09:10 by 瑞之海、凤之空</span>
+估计也就跟幻塔差不多
+
