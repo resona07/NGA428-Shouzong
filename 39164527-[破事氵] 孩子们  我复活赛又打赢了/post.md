@@ -794,3 +794,8 @@ bushi，这个doro哭脸真是看的绷不住了，配上这帖的荒唐程度�
 ##### <span id="pid740921469">123.[9] \<pid:740921469\> 2024-01-31 23:46:35 by 三灵寺。</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我现在觉得这事不是所谓的xxn版务干的了，因为有另一个更合适的人选，且他以前确实干过类似事，对，就是zeg。(看看我明天还能活着吗)
 
+----
+
+##### <span id="pid740938324">124.[0] \<pid:740938324\> 2024-02-01 03:12:00 by SmallYue</span>
+有没有前情提要的前情提要![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

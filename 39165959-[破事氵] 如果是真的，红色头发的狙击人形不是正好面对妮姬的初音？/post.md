@@ -17,3 +17,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740937921">2.[0] \<pid:740937921\> 2024-02-01 02:59:39 by 胖子猎人</span>
 话说这个红色到底是指哪个?2000的话，不是紫发?
 
+----
+
+##### <span id="pid740938242">3.[0] \<pid:740938242\> 2024-02-01 03:09:10 by MBT96B</span>
+>[jump](#pid740937122) dogcmx(2024-02-01 02:38):
+
+不少少前玩家转投nikke的。
+
