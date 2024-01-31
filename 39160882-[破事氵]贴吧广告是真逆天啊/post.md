@@ -136,3 +136,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 总体质量评价在《制作组自己没玩过游戏吗》那一栏，就不要想这跟p5本体做比较了，还是和其他手游掰头吧，能有很大优势
 顺便一提中午还发了5星角色自选和武器自选各3张，然后我不知道有什么用，抽出来了就半天能玩了![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
 
+----
+
+##### <span id="pid740881247">21.[0] \<pid:740881247\> 2024-01-31 19:14:51 by dkas333</span>
+又是一个惊世智慧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740881275">22.[0] \<pid:740881275\> 2024-01-31 19:15:02 by 汤圆史莱姆</span>
+笑喷了
+
+----
+
+##### <span id="pid740881357">23.[0] \<pid:740881357\> 2024-01-31 19:15:37 by 星姐专用检疫合格章</span>
+当个人吧，吃点好的
+

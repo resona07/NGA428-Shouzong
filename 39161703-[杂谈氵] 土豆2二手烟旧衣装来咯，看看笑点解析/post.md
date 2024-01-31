@@ -233,3 +233,12 @@ Nikke之前的黑莲也是因为额外加了个朝圣标志然后紧急修改道
 ##### <span id="pid740879991">36.[0] \<pid:740879991\> 2024-01-31 19:06:58 by kokoro331</span>
 材质太烂了![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)  那玩家也摆烂吧
 
+----
+
+##### <span id="pid740881181">37.[0] \<pid:740881181\> 2024-01-31 19:14:31 by みずきしらぬい</span>
+>[jump](#pid740867469) 高咲侑Official(2024-01-31 17:57) 说: 
+>
+>腿上还有一把手枪，识货的看看是不是雷蒙手枪？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./12_b09ddecs.png)
+
+不不不，这个是CZ75斧王。前一阵子有人扒出来CZ75的剧情瓜版补瓜了![img](./37_080f683i.jpg)![img](./37_2485dcwx.jpg)![img](./37_f37c1c3i.jpg)![img](./37_0f456esg.jpg)![img](./37_dbab75cs.jpg)![img](./37_a95747na.jpg)
+

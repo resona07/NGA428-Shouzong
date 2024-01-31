@@ -132,3 +132,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740881224">22.[0] \<pid:740881224\> 2024-01-31 19:14:43 by 西宫硝子00</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)还真挺像
 
+----
+
+##### <span id="pid740881400">23.[0] \<pid:740881400\> 2024-01-31 19:15:51 by ljn23500</span>
+>[jump](#pid740881167) 西施包子铺账房(2024-01-31 19:14) 说: 
+>
+>是说金畜？说到这个逼别人该交钱交钱该罚款罚款卵事没有，这屌人跑得飞快回不来了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+妹子天天吐槽这人，我有S9滤镜，本来没觉得啥，结果23年这B人天天蹭这个骂那个，看的恶心![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
+

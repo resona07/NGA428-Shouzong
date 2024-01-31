@@ -49,3 +49,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 不然呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)总不能让他大方承认自己就是抄的GG的布里姬特吧？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 BV1PT411j7qq 这是布里姬特前年公布时的PV
 
+----
+
+##### <span id="pid740881265">7.[0] \<pid:740881265\> 2024-01-31 19:14:58 by 笑死我了AAA</span>
+可能是因为抄袭的罪恶装备蹭不到吧
+
+----
+
+##### <span id="pid740881575">8.[0] \<pid:740881575\> 2024-01-31 19:16:58 by 大崎甜花p</span>
+>[jump](#pid740880447) GENGAR53880(2024-01-31 19:09):
+
+主要最近米站热门榜好几次同时出现米的复制人商单了，封面标题基本都一样就差几个字。
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)说到底米的受众也不少了吧，有必要好几次商单特意去蹭其他作品么，不会是“双厨”狂喜上瘾了吧
+

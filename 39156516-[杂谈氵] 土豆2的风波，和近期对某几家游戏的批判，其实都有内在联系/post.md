@@ -517,3 +517,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 草，怎么就成了这个样子。![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid740882120">54.[0] \<pid:740882120\> 2024-01-31 19:20:13 by 遥かな空</span>
+退无可退？忍无可忍？
+
+在我看来还早着呢，在“一般向”彻底死绝之前，还有巨大的压力空间，福报还会继续
+

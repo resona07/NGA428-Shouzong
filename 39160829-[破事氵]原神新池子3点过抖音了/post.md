@@ -197,3 +197,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740878321">34.[0] \<pid:740878321\> 2024-01-31 18:56:45 by 刘伟莱特。</span>
 整个世界都在好评，你们看不好m是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740881470">35.[0] \<pid:740881470\> 2024-01-31 19:16:17 by 猛干的小号</span>
+<b><span style="font-size:300%;line-height:183%"><span class="blue">哦</span></span></b>
+<b><span style="font-size:300%;line-height:183%"><span class="red">有男不玩</span></span></b>
+

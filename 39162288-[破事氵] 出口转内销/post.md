@@ -55,3 +55,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740881165">7.[0] \<pid:740881165\> 2024-01-31 19:14:25 by 化骨咩咩掌</span>
 呆在一个自己觉得耻辱的公司里拧螺丝 日日夜夜担心自己的电阻 很好受吧
 
+----
+
+##### <span id="pid740881533">8.[0] \<pid:740881533\> 2024-01-31 19:16:40 by 一曲浮生</span>
+坏了，被认成8u了。不过认识NGA的也有![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

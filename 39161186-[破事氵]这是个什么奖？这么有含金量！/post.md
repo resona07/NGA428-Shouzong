@@ -176,3 +176,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 有一说一，这是个死人频道![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 采访了一下投米哈游的，他们说是米哈游年薪70万![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740881724">30.[0] \<pid:740881724\> 2024-01-31 19:17:56 by 冰狱半世浮屠</span>
+游戏从业者选择奖![img](./30_c5abeaen.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)客观性不如大学生暑期调研
+
+----
+
+##### <span id="pid740883167">31.[0] \<pid:740883167\> 2024-01-31 19:26:29 by 扁舟舟舟舟子</span>
+这个榜还有几张图，你甚至可以看到任天堂影响力不如mhy![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
