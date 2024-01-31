@@ -166,3 +166,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740770898">27.[0] \<pid:740770898\> 2024-01-31 10:31:05 by Ayona</span>
 粥版集美搁这养号呢，和外面的帖两个世界啊
 
+----
+
+##### <span id="pid740772224">28.[1] \<pid:740772224\> 2024-01-31 10:37:08 by 夕无餍</span>
+>[jump](#pid740770898) Ayona(2024-01-31 10:31) 说: 
+>
+>粥版集美搁这养号呢，和外面的帖两个世界啊
+
+但凡看一眼楼主的id也不至于说出这种话
+

@@ -224,3 +224,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 [@夏总的狗]
 肥宅王怎么说 要不要加大媚女力度
 
+----
+
+##### <span id="pid740771206">35.[0] \<pid:740771206\> 2024-01-31 10:32:24 by 百无聊赖纯混子</span>
+这游戏不是“乙男”/gal吗……锁男主，且一开始就在搞擦边，还有amsr。怎么还有女玩家赶上去的![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+

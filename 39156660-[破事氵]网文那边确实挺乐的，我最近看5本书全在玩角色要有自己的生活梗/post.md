@@ -1,0 +1,14 @@
+### [破事氵]网文那边确实挺乐的，我最近看5本书全在玩角色要有自己的生活梗
+
+Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md)
+
+----
+
+##### <span id="pid0">0.[3] \<pid:0\> 2024-01-31 10:37:54 by asd92570689</span>
+他们全是拿去让女角色看看主角没时间跟她出去然后说xx也有自己的生活啊，看网文那边都挺喜欢那这事开涮的，手游同人里面有，动漫同人里面有，甚至原创里面都有，感觉男频那边都觉得你这话说的挺搞笑的，(我在刺猬猫看的)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740773939">1.[0] \<pid:740773939\> 2024-01-31 10:44:46 by Guidetowel-MK4</span>
+激动死了，说个悲惨的事：笔在我手里。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

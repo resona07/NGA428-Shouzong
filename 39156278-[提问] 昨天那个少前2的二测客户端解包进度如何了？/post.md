@@ -38,3 +38,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 怎么看少前的笑话也不准啊？![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
 
+----
+
+##### <span id="pid740771461">4.[2] \<pid:740771461\> 2024-01-31 10:33:31 by old_driver</span>
+>[jump](#pid740768575) 露露缇雅丨泽金(2024-01-31 10:20):
+
+毕竟公关干的活儿跟日本外务省是一个性质的嘛，而且泥潭会跟钱过不去？
+
+----
+
+##### <span id="pid740771879">5.[0] \<pid:740771879\> 2024-01-31 10:35:34 by lappsia</span>
+好像是暂时没找到文本，只有些玩法休息室的废案(？)
+
