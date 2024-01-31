@@ -13,3 +13,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740923279">1.[0] \<pid:740923279\> 2024-02-01 00:00:11 by 有男不玩，是米不碰</span>
 就是 MXZ差不多得了。
 
+----
+
+##### <span id="pid740923439">2.[1] \<pid:740923439\> 2024-02-01 00:01:19 by VVVVBBS</span>
+游戏里没啥东西玩，总得给人游戏外找点东西玩吧
+有没有可能这也是社管的一环![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740923880">3.[0] \<pid:740923880\> 2024-02-01 00:04:37 by akihanami</span>
+赛博黑赊会，社管是组织架构一环，义子是小弟，龟男是一次性武器，XXN是双标围挡…
+

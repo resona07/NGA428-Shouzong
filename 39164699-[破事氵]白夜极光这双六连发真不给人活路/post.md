@@ -17,3 +17,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740919767">2.[0] \<pid:740919767\> 2024-01-31 23:33:52 by 岛风gogogo</span>
 ![img](./2_958acfwn.png)
 
+----
+
+##### <span id="pid740924112">3.[0] \<pid:740924112\> 2024-02-01 00:06:25 by 老猫饼又贩了</span>
+>[jump](#pid740919767) 岛风gogogo(2024-01-31 23:33) 说: 
+>
+>![img](./2_958acfwn.png)
+
+活到是至少能活2年把国际服的老货用用掉![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)。但是，其他的说的都无法反驳
+

@@ -79,3 +79,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740922339">13.[0] \<pid:740922339\> 2024-01-31 23:53:15 by 猛干的小号</span>
 重点不是上海交大出力吗？米就是挂个名看给mxz高潮的![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740923307">14.[0] \<pid:740923307\> 2024-02-01 00:00:22 by StarsExcelion</span>
+mhy玩家特有的词条污染
+好像米用过的东西就成米专属了，很多词汇都会触发弹幕的关键字，比如开拓、旅行之类的
+

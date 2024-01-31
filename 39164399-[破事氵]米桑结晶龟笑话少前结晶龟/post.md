@@ -53,3 +53,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740922854">8.[0] \<pid:740922854\> 2024-01-31 23:57:08 by lucifiniczw</span>
 评价为小龟笑大龟。![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 
+----
+
+##### <span id="pid740923292">9.[0] \<pid:740923292\> 2024-02-01 00:00:17 by akihanami</span>
+都是缩头龟。
+
+----
+
+##### <span id="pid740923416">10.[0] \<pid:740923416\> 2024-02-01 00:01:09 by 蜷守惠理</span>
+说不定都是女的呢，那玩米确实不算结晶
+
