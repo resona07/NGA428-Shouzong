@@ -225,3 +225,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 集美只有诉求没有理论也没有逻辑
 只看诉求就行了
 
+----
+
+##### <span id="pid740747401">34.[2] \<pid:740747401\> 2024-01-31 08:30:22 by 大a加油</span>
+>[jump](#pid740745445) 不可以色色的记录者！(2024-01-31 08:13) 说: 
+>
+>啊？还有链接吗，想去围观
+>顺便问问称呼是什么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+摩洛哥帖：[url](https://ngabbs.com/read.php?tid=39146447)
+破防更多的外娶帖一共才4页，楼里打滚的最少六七个了，有说国男丑没人爱的，有说国男是要买老婆，就楼里指出彩礼不也是买……结果破防得更多了，帖子没了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+洋带人赐名某国女性是easy girl，搞笑的是国女骂国男造词侮辱女性![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)
+

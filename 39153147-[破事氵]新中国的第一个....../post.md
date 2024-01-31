@@ -346,3 +346,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740746447">56.[0] \<pid:740746447\> 2024-01-31 08:22:25 by dkas333</span>
 我一直以为只有腐女才有这种伺候俩男同主人的想法，毕竟我在网上真见过这种腐女![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
 
+----
+
+##### <span id="pid740748012">57.[0] \<pid:740748012\> 2024-01-31 08:34:58 by 最喜欢樱了</span>
+太监有点那啥了
+
+----
+
+##### <span id="pid740748697">58.[0] \<pid:740748697\> 2024-01-31 08:39:48 by 白玉黑兔</span>
+女同情侣为什么不能自己养活自己，非要加一个龟男进来？![img](./58_f832e367.png)
+

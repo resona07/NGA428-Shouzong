@@ -580,3 +580,13 @@ cy孝子能爬吗
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)那还是a了吧，不打公会战真的很爽。虽然目前就a了一个月但是效果立竿见影。
 
+----
+
+##### <span id="pid740748662">85.[1] \<pid:740748662\> 2024-01-31 08:39:34 by 魔域真主</span>
+>[jump](#pid740733246) sumire191(2024-01-31 02:10) 说: 
+>
+>cy孝子能爬吗
+>[url](https://nga.178.com/read.php?tid=38788563)
+
+需要我帮你回忆BA国际服开服的时候请HOLOEN做工商的事了？现在B站都还有视频呢还想岁，韩游小子，出列![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

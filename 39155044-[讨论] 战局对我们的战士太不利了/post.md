@@ -46,3 +46,8 @@ lz我看你挺适合引导太阳能轰炸的
 ##### <span id="pid740747035">7.[0] \<pid:740747035\> 2024-01-31 08:27:15 by 羽玦</span>
 开门！净化者查人格！![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
 
+----
+
+##### <span id="pid740748457">8.[0] \<pid:740748457\> 2024-01-31 08:38:09 by 暗影观察者</span>
+拿好这把太阳能战斧，等会下船有大用![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
