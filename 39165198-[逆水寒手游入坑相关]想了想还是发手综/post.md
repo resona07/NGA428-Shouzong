@@ -75,3 +75,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740929974">10.[1] \<pid:740929974\> 2024-02-01 00:54:25 by 纯纯fenkeng</span>
 这游戏完全不骗氪，宅男进去玩压根没任何氪金点，皮肤审美都是偏现充女性向的，完全没购买欲望。不会寒子里没见打拳的，社区氛围不错
 
+----
+
+##### <span id="pid740930993">12.[0] \<pid:740930993\> 2024-02-01 01:04:50 by 悬崖边的不倒翁</span>
+>[jump](#pid740929728) 蜷守惠理(2024-02-01 00:51):
+
+因为逆子的剧情是男号安排师姐+女杀手路线 女号是师兄+男杀手路线 都是非常体贴关怀玩家的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

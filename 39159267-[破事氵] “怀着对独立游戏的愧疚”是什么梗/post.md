@@ -1187,3 +1187,13 @@ yj真想帮助独立游戏就先把自己解散再说
 ##### <span id="pid740929996">134.[0] \<pid:740929996\> 2024-02-01 00:54:39 by 扣扣扣扣子</span>
 做手游把饭圈文化引进二次元手游，这次准备把饭圈文化引进独立游戏了![yes](https://img4.nga.178.com/ngabbs/post/smile/a2_26.png)
 
+----
+
+##### <span id="pid740931529">135.[0] \<pid:740931529\> 2024-02-01 01:10:39 by 玩他喵的</span>
+打完游戏回来看帖子绷不住了![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)，哥几个都什么发言啊……害……没话说，还是打我的游戏去吧![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid740931751">136.[1] \<pid:740931751\> 2024-02-01 01:13:15 by 子岑尚巳闵靳</span>
+……楼里某些人真可以说是玩二次元手游玩的了![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)
+

@@ -301,3 +301,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 他们这些高贵小翀的终极单推人，以翀的角度来看ml程度不是拉满了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/a2_03.png)
 
+----
+
+##### <span id="pid740931432">46.[0] \<pid:740931432\> 2024-02-01 01:09:25 by 廷达罗斯之主</span>
+翀星怒是这样的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)对游戏角色没感情，只想为翀尽孝
+

@@ -167,3 +167,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740929718">22.[0] \<pid:740929718\> 2024-02-01 00:51:49 by 大和级X号舰</span>
 所有反攻的前提是让蝗翀先自裁了再说，底下一堆人忙活半天有啥用![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
 
+----
+
+##### <span id="pid740930618">23.[0] \<pid:740930618\> 2024-02-01 01:01:02 by mikolll</span>
+好嘛，6k流水，还是太高了  ，虽然被海军薄纱20倍
+

@@ -442,3 +442,10 @@ Sex 強x 亂x都是基本款
 ##### <span id="pid740929134">59.[0] \<pid:740929134\> 2024-02-01 00:46:26 by Schalke_04</span>
 乐![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)  遥遥领先
 
+----
+
+##### <span id="pid740930592">61.[0] \<pid:740930592\> 2024-02-01 01:00:47 by 十王剑</span>
+>[jump](#pid740929027) 炒股起家(2024-02-01 00:45):
+
+为什么提到国外游戏只能想到NIKKE，LO、对魔忍、DMM不是有得是= =
+
