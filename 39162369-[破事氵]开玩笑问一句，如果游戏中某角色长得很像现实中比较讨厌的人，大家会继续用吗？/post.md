@@ -192,3 +192,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740895321">32.[0] \<pid:740895321\> 2024-01-31 20:42:45 by Ranma0</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看起来有点像规则34上biggreen的作品
 
+----
+
+##### <span id="pid740899353">33.[0] \<pid:740899353\> 2024-01-31 21:06:57 by sunnierliu</span>
+最好笑的不是佐伊像玛雅吗
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)一个玛雅打比赛永远不敢用，问就是在练了，排位拿出来都是A女的幽默英雄
+

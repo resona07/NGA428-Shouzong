@@ -72,3 +72,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你看看我们纯良棉友的优越性，干锅牛蛙你就说好不好吃吧![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
 
+----
+
+##### <span id="pid740897974">11.[0] \<pid:740897974\> 2024-01-31 21:01:19 by 小汤圆109</span>
+>[jump](#pid740897595) 纯良棉花(2024-01-31 20:58) 说: 
+>
+>你看看我们纯良棉友的优越性，干锅牛蛙你就说好不好吃吧![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+
+谢邀，我不吃牛蛙……![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

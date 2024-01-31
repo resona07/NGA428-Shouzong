@@ -142,3 +142,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./21_822489mq.jpg)![img](./21_de01absg.jpg)
 
+----
+
+##### <span id="pid740900656">22.[0] \<pid:740900656\> 2024-01-31 21:15:06 by 蓟县战士</span>
+因为本身，他在少前1的“世界观”、“剧情”、“玩法”和“氪金点”之间就是割裂的。
+想营造宏大的，偏向黑暗残酷的，带点后启示录的世界观
+但是得靠“女角色和宅宅之间的感情“来溢价赚钱。
+

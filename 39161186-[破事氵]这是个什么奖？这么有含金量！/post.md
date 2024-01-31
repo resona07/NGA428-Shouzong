@@ -216,3 +216,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 游戏葡萄。。。专门收钱写软文，也收钱写黑文的机构![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
 你只要给足了钱，要他写一篇黑米哈游的文，他们明天就能给你看初稿
 
+----
+
+##### <span id="pid740898353">35.[0] \<pid:740898353\> 2024-01-31 21:03:33 by 关注无限机兵喵</span>
+其实换个角度看这榜也挺乐的
+![img](./35_070f57sg.jpg)
+属于工作是工作，生活是生活
+找工作的时候巴不得入那种可以天天摸鱼，水平不高，不会被轻易开出的公司
+但玩游戏一定要玩那种技术含量高，一眼看上去就死难做的游戏![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+很符合当代年轻人的现状
+

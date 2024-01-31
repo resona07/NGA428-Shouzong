@@ -140,3 +140,82 @@ ba日服正好有大活吧，还是人气角色出sp，话说国急服也正好�
 ##### <span id="pid740897680">22.[0] \<pid:740897680\> 2024-01-31 20:59:06 by blyewid</span>
 我超，咒术回战这个ip改这么厉害？还能在前五呆着？
 
+----
+
+##### <span id="pid740897835">23.[1] \<pid:740897835\> 2024-01-31 21:00:19 by PotMarigold</span>
+>[jump](#pid740897087) tmacx4(2024-01-31 20:54):
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)给现在这个池子氪井
+
+----
+
+##### <span id="pid740897930">24.[0] \<pid:740897930\> 2024-01-31 21:01:02 by 河马大旋风</span>
+>[jump](#pid740897340) 伊甸段正淳(2024-01-31 20:56) 说: 
+>
+>米黑就是米黑，真的没救了，睁眼说瞎话![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
+>原神哪有可能输给2D媚宅游戏啊！
+>
+>
+>
+>
+>
+>
+>BA明明是3D的![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+明明是36D![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740897946">25.[0] \<pid:740897946\> 2024-01-31 21:01:08 by 纯良棉花</span>
+>[jump](#pid740896936) 你不知道屏幕那边到底是谁(2024-01-31 20:54) 说: 
+>
+>![img](./10_b71f51sg.jpg)
+>看看hina
+
+再发这种图我们纯良棉友就要去微博冲你了，拒绝幼态审美从你他做起![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)
+
+----
+
+##### <span id="pid740897947">26.[1] \<pid:740897947\> 2024-01-31 21:01:08 by titwar</span>
+日服是超人气荣誉室角色hina的礼服，肯定旺盛，而且ba周年+半周年会上架新礼包，就指着这些个时间段爆米了。最后给各位放点图养养眼睛吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./26_9f8d6bfk.jpg)![img](./26_fdb9e9g0.jpg)![img](./26_873051xc.jpg)![img](./26_025b0bsg.jpg)![img](./26_3a7a8dsg.jpg)![img](./26_c76ea6qo.jpg)![img](./26_1a96d8x1.jpg)
+
+----
+
+##### <span id="pid740898072">27.[0] \<pid:740898072\> 2024-01-31 21:02:01 by 河马大旋风</span>
+>[jump](#pid740897533) Ranma0(2024-01-31 20:57) 说: 
+>
+>![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)哪里有两个新角色？4星那个废物也算？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)那玩意不是副产物吗
+
+龟龟抽新角色，还要抽下半xxn的giegie，想想就想笑
+
+----
+
+##### <span id="pid740898321">28.[2] \<pid:740898321\> 2024-01-31 21:03:24 by 蛇胆花露水</span>
+小碧蓝这波是你大老婆穿典雅礼服出席演奏会弹钢琴，附带ML浓度极高的性感陪嫁![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+
+剧情也是超大杯，是小碧蓝目前为止最长最充实的剧情了，用满整个主线+超长rpg小游戏体现这个小女孩平时有多不容易、又有多爱你
+
+----
+
+##### <span id="pid740899234">29.[0] \<pid:740899234\> 2024-01-31 21:06:02 by 纯良棉花</span>
+>[jump](#pid740898321) 蛇胆花露水(2024-01-31 21:03) 说: 
+>
+>小碧蓝这波是你大老婆穿典雅礼服出席演奏会弹钢琴，附带ML浓度极高的性感陪嫁![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+>
+>剧情也是超大杯，是小碧蓝目前为止最长最充实的剧情了，用满整个主线+超长rpg小游戏体现这个小女孩平时有多不容易、又有多爱你
+
+作为纯良棉花，居然还有游戏能有女角色爱上男主啊，好下头，角色都有自己的生活才是正确的![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)![哼](https://img4.nga.178.com/ngabbs/post/smile/ac16.png)
+
+----
+
+##### <span id="pid740899391">30.[0] \<pid:740899391\> 2024-01-31 21:07:11 by 泷泽晓夜</span>
+这可是hina啊
+![img](./30_779121sg.jpg)
+
+----
+
+##### <span id="pid740900403">31.[0] \<pid:740900403\> 2024-01-31 21:13:29 by Jasun030</span>
+虽然但是BA也不是2D的
+BA这3D小人我只能说，在2D/3D小人界拿个冠军妥妥的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
