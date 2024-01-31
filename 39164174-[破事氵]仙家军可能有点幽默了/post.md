@@ -70,3 +70,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 针对截图中关于重大历史事件的发言
 畜生都不足以形容的丑恶嘴脸![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)一想到ta们是出于何种心态写下这些文字的，原本觉得的幼稚可笑一扫而空，只剩下浓烈的恶心
 
+----
+
+##### <span id="pid740909428">12.[3] \<pid:740909428\> 2024-01-31 22:17:10 by 雷巴齐斯</span>
+如果早年看过神吧，就一点也不奇怪这伙人一直是这样了![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid740909729">13.[0] \<pid:740909729\> 2024-01-31 22:19:19 by 你是弥岬咂穗嘛</span>
+幽默？恶心！
+真是初生养的
+
+----
+
+##### <span id="pid740909883">14.[1] \<pid:740909883\> 2024-01-31 22:20:32 by 瑞之海、凤之空</span>
+我觉得都可以直接给网警报案拘留了，这种都属于违法行为了
+
+----
+
+##### <span id="pid740909906">15.[0] \<pid:740909906\> 2024-01-31 22:20:41 by em76599</span>
+![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)虽然这几天棉花屠版但是再看到仙家军的发言还是能被狠狠恶心到
+

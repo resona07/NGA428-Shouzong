@@ -39,3 +39,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740907636">5.[2] \<pid:740907636\> 2024-01-31 22:04:02 by 凶恶的欧吉</span>
 你知道这枪谁画的吗？是音符，曾经的少前1主美，当年也是办公室内斗被羽中清理出去的人，是不是和木石油画的95这种很像？没妈的孩子是这样的，被狗翀和星出肆意处理![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
 
+----
+
+##### <span id="pid740909435">6.[2] \<pid:740909435\> 2024-01-31 22:17:12 by 东北龙卷风跳跳猴</span>
+一个和npc的剧情cg约稿了好几十版选优…藤子给的十亿就是xxn发癫的资金吗![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740909915">7.[2] \<pid:740909915\> 2024-01-31 22:20:43 by 咸鱼二十九号</span>
+为什么烧钱的瓜都是真的？
+
+因为正常人编不出那么离谱的事![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
+

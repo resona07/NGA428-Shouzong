@@ -319,3 +319,15 @@ mxz的福报啊
 ##### <span id="pid740907907">54.[0] \<pid:740907907\> 2024-01-31 22:05:53 by 尤琪亚</span>
 米桑太幽默了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740909250">55.[0] \<pid:740909250\> 2024-01-31 22:15:47 by Valano</span>
+>[jump](#pid740825953) 二刺螈之王师傅(2024-01-31 14:51) 说: 
+>
+>~~这龟好像还真是新加的~~
+>龟、结晶，懂了是太乐巴戈斯。![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+>
+>![img](./19_b99eb4go.jpg)
+
+![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)但凡我们这些玩宝的能有现在二游半点战斗力，gf也不至于这样
+

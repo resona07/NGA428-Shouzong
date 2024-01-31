@@ -181,3 +181,63 @@ pvp？(觉察)我要开除这个游戏二籍![哭笑](https://img4.nga.178.com/n
 
 自信点，游戏王玩家、小岛秀夫粉丝、以及原本在等续作的《寂静岭》粉丝都恨不得杀了k社的马![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740909370">25.[3] \<pid:740909370\> 2024-01-31 22:16:39 by 南琴梨嘤嘤</span>
+“剧情演出现在都2024年了还是PPT”你完了，鉴定为指桑骂槐，等下就来割你头皮
+
+----
+
+##### <span id="pid740909491">26.[0] \<pid:740909491\> 2024-01-31 22:17:37 by lossolshinji</span>
+![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac1.png)6的，春秋笔法的精髓啊。
+
+----
+
+##### <span id="pid740909608">27.[3] \<pid:740909608\> 2024-01-31 22:18:29 by 纯良棉花</span>
+>[jump](#pid740909370) 南琴梨嘤嘤(2024-01-31 22:16) 说: 
+>
+>“剧情演出现在都2024年了还是PPT”你完了，鉴定为指桑骂槐，等下就来割你头皮
+
+PPT不是可口可乐，全世界都一个味![别急](https://img4.nga.178.com/ngabbs/post/smile/)
+
+----
+
+##### <span id="pid740909631">28.[3] \<pid:740909631\> 2024-01-31 22:18:35 by 缩小帽设定是神</span>
+辣鸡游戏，这游戏对面下了个神鹰女郎，然后万花筒拉了一地姐妹把我平推了![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)太imba了
+
+----
+
+##### <span id="pid740909876">29.[3] \<pid:740909876\> 2024-01-31 22:20:27 by 巳苏明己柳崔</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./29_534d34fs.jpg)
+
+----
+
+##### <span id="pid740909968">30.[0] \<pid:740909968\> 2024-01-31 22:21:07 by GoGoKinopio</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)不过说句实话，md真的不花钱爽玩
+
+----
+
+##### <span id="pid740910158">31.[0] \<pid:740910158\> 2024-01-31 22:22:42 by 绝顶一览</span>
+>[jump](#pid740907529) 白锈-希思林(2024-01-31 22:03) 说: 
+>
+>官方还卖基佬和百合![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+闪刀连刀怎么你了![怒](https://img4.nga.178.com/ngabbs/post/smile/a2_04.png)
+
+----
+
+##### <span id="pid740910336">32.[0] \<pid:740910336\> 2024-01-31 22:24:03 by 林海望月</span>
+你刚刚说了明是吧，拿下
+
+----
+
+##### <span id="pid740910414">33.[0] \<pid:740910414\> 2024-01-31 22:24:43 by daGGer2012</span>
+>[jump](#pid740909631) 缩小帽设定是神(2024-01-31 22:18):
+
+ 为什么不能是我最喜欢的珠泪从。。。发效果
+
+----
+
+##### <span id="pid740910759">34.[0] \<pid:740910759\> 2024-01-31 22:27:11 by asteroidsssss</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)笑死
+

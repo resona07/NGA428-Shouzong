@@ -215,3 +215,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 厂商堂而皇之的将卖给玩家的商品收回来，然后踩一脚再加价卖给玩家，还问玩家为什么发脾气？
 
+----
+
+##### <span id="pid740909473">16.[0] \<pid:740909473\> 2024-01-31 22:17:28 by DrAgons_PriDe</span>
+虽然但是，2看着也没觉得哪里硬核了
+

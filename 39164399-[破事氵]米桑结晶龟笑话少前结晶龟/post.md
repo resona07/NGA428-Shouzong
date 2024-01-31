@@ -1,0 +1,22 @@
+### [破事氵]米桑结晶龟笑话少前结晶龟
+
+Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md)
+
+----
+
+##### <span id="pid0">0.[1] \<pid:0\> 2024-01-31 22:19:22 by 卡咯么路</span>
+????![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)
+![img](./0_4680f02i.jpg)![img](./0_72f3b52i.jpg)
+
+----
+
+##### <span id="pid740910228">1.[5] \<pid:740910228\> 2024-01-31 22:23:14 by DxhSN2022</span>
+龟生结晶，结晶养闲云，闲云辅魈。![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)  
+
+我说的是原神4.4的养成内容。
+
+----
+
+##### <span id="pid740910621">2.[0] \<pid:740910621\> 2024-01-31 22:26:13 by 94646843z</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)也中在训龟这方面超越了混厕游戏也是一种奇迹了，甚至都能让米学长笑别人是龟
+
