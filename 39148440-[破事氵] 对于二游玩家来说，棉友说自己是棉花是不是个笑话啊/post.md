@@ -170,3 +170,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740780925">25.[0] \<pid:740780925\> 2024-01-31 11:14:32 by 举声成霜</span>
 唉，内战内行。唉，都是利刃。
 
+----
+
+##### <span id="pid740782599">26.[0] \<pid:740782599\> 2024-01-31 11:21:15 by KMPi7</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在舟友被称作棉友，那著名米家up棉花大哥哥岂不是……
+

@@ -152,3 +152,26 @@ dy是？
 
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)伤口撒盐是吧
 
+----
+
+##### <span id="pid740781389">21.[0] \<pid:740781389\> 2024-01-31 11:16:24 by UID6797297</span>
+今早就接到一个莫名其妙的电话，听不出是哪个角色，直接给它扣了，年底了急着爆金币过年是吧![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+
+----
+
+##### <span id="pid740781396">22.[0] \<pid:740781396\> 2024-01-31 11:16:26 by m1337172661</span>
+>[jump](#pid740780787) 蓝羽鸦(鸡肉味)(2024-01-31 11:13) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)伤口撒盐是吧
+
+放弃氪金二游之后，我现在对各种单机非常宽容，也算因祸得福![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740782239">23.[0] \<pid:740782239\> 2024-01-31 11:19:42 by 蓝羽鸦（鸡肉味）</span>
+>[jump](#pid740781396) m1337172661(2024-01-31 11:16) 说: 
+>
+>放弃氪金二游之后，我现在对各种单机非常宽容，也算因祸得福![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)最近200多买了个2d格斗游戏，什么叫真二刺螈啊(战术后仰)
+

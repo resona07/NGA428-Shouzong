@@ -169,3 +169,29 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ~~你完全不懂老式天启的美~~
 
+----
+
+##### <span id="pid740781746">29.[0] \<pid:740781746\> 2024-01-31 11:17:52 by 缘结之时已至</span>
+>[jump](#pid740780850) Molotov鸡尾酒(2024-01-31 11:14) 说: 
+>
+>“我们新式的 有男不抽 有男不练 已经完全超越了老式的 有男不玩”
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>~~你完全不懂老式天启的美~~
+
+说的好那我招尤里盗号了
+
+----
+
+##### <span id="pid740781803">30.[0] \<pid:740781803\> 2024-01-31 11:18:04 by 彼养的卡丘</span>
+早知如此不如有男不玩
+
+----
+
+##### <span id="pid740782412">31.[0] \<pid:740782412\> 2024-01-31 11:20:29 by 不会安宁的夜</span>
+你不玩不就完了吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740784279">32.[0] \<pid:740784279\> 2024-01-31 11:28:05 by 汤圆史莱姆</span>
+钟离万叶行秋班尼特四个六星不练，那确实是残疾人了。没辅助，那只能命座解救了
+

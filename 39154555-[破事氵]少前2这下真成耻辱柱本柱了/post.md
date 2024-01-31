@@ -390,3 +390,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 小子们已经岁成是姚桑买的了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740783267">59.[0] \<pid:740783267\> 2024-01-31 11:23:58 by 汤圆史莱姆</span>
+顶级文案，真能骗过路人
+
