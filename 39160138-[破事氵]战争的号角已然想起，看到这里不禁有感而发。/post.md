@@ -145,3 +145,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740889507">18.[0] \<pid:740889507\> 2024-01-31 20:04:57 by rream_kly</span>
 人家被有男不玩有百合不玩糊脸后恼羞成怒直接对手综单方面的屠杀，哪来的战争？
 
+----
+
+##### <span id="pid740894249">19.[0] \<pid:740894249\> 2024-01-31 20:35:06 by 丿夕日坂</span>
+加沙北部已经没有巴勒斯坦人了，至少目前没有
+

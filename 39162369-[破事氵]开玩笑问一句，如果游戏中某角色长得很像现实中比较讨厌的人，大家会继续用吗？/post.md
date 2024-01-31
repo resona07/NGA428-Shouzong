@@ -187,3 +187,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 作为白猴我衷心祝愿主播的家人排队生病捏![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)我是纯良白猴
 
+----
+
+##### <span id="pid740895321">32.[0] \<pid:740895321\> 2024-01-31 20:42:45 by Ranma0</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)看起来有点像规则34上biggreen的作品
+
