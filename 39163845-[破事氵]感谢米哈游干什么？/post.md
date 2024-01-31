@@ -85,3 +85,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 mhy玩家特有的词条污染
 好像米用过的东西就成米专属了，很多词汇都会触发弹幕的关键字，比如开拓、旅行之类的
 
+----
+
+##### <span id="pid740926181">15.[0] \<pid:740926181\> 2024-02-01 00:21:50 by 玩他喵的</span>
+这个帖子我总感觉几个星期前看过![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，有没有人有印象的
+

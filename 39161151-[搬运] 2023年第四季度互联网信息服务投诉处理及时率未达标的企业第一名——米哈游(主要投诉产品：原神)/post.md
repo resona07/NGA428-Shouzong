@@ -489,3 +489,10 @@ MHY：我破防了
 
 那我愿称泥潭和米为游戏圈的卧龙凤雏![jojo立2](https://img4.nga.178.com/ngabbs/post/smile/a2_38.png)![img](./74_839434jb.jpg)![img](./74_8f8ff2lz.jpg)![img](./74_bf949ehx.jpg)![img](./74_a981e7jw.jpg)
 
+----
+
+##### <span id="pid740925965">75.[0] \<pid:740925965\> 2024-02-01 00:20:06 by 永远怀念</span>
+下面3家，被投诉不处理那是真的可能少一份业务。
+也就米哈游大把龟男，娇妻，才随便浪。
+他们的傲慢都写游戏里内涵玩家了，还搁那自我欺骗PUA自己说的不是自己。![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)还猛猛氪午餐肉。
+

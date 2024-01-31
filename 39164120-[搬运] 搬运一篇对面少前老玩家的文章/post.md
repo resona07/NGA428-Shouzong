@@ -235,3 +235,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 但现在，那就不怪我们落井下石来清算了。![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740925891">19.[0] \<pid:740925891\> 2024-02-01 00:19:35 by 平原兆力使</span>
+背叛？感觉一代不就挺会磕cp的吗？
+

@@ -70,3 +70,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那个是dlc了，以前的小黄网没锁干净被人挖出来然后半小时内紧急上线进而锤死自己的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)所以还是败在了立德上面
 
+----
+
+##### <span id="pid740925317">8.[0] \<pid:740925317\> 2024-02-01 00:15:14 by inkydragon</span>
+>[jump](#pid740923406) 星浮岚郁(2024-02-01 00:01):
+
+Github 上自己分叉(fork)一下永流传 [url](https://github.com/hoyolife/limengan/blob/main/limengan.md)
+
+----
+
+##### <span id="pid740925587">9.[0] \<pid:740925587\> 2024-02-01 00:17:12 by 夏目茉子</span>
+![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)猛干语录跟行为是敲碎阴湿游戏内核的重锤强光，发扬猛干批判精神，重塑二游定义将是正确的道路
+
+----
+
+##### <span id="pid740925678">10.[0] \<pid:740925678\> 2024-02-01 00:17:51 by markarlos</span>
+只能说mengan不愧是搞文案的，语录真的又多又好用![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740925686">11.[0] \<pid:740925686\> 2024-02-01 00:17:56 by 星空凛录</span>
+立言不是爆典啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
