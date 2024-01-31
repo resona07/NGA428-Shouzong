@@ -880,3 +880,20 @@ allin确实是小厂思维，但是你不持续allin，相信自己的判断，�
 
 既开服的原神1月论、1年论，我非常看好6Z哥你的[对mhy死亡对倒计时可以提前了，不用等到2027年，2025年业务紧缩，2026年全面溃退，这就是米哈游的结局]，但是对坛友来说，2024年直接到终点才是想要的。
 
+----
+
+##### <span id="pid740878294">109.[0] \<pid:740878294\> 2024-01-31 18:56:34 by HikariNeee</span>
+有点怀疑你的纯°了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+无限大暂且不知道他是走哪条路，如果是二游+利薄多销+大dau 那么他就是下一个站在二游风口浪尖的猪。这个是既定事实![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png) 当然如果他有能耐把gtaol那一套玩懂一点，那基本可以说不出大意外，下一个阶段的二游头把椅就是他。
+现在米哈游最大的竞争对手其实是企鹅![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+这个也不是啥秘密了，刘老板愿意再次豪赌一波射击游戏，那么就是跟企鹅正面对抗，但是企鹅这边射击游戏有几个定位极高。虽然ieg和腾讯年会上说的都可以看成放屁，但是大致方向没问题![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 现在企鹅发现还是社交+pvp这套，自己熟练的玩起来爽一点。
+至于王者世界，劝你放低期待，项目组打太极太久了，按照以往经验这个项目组被裁风险趋近百分百。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)可能价格上优势极其明显，但玩法拉不开太大差距，至于剧情![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)只能说在这个xxn遍地爬的年代，遇到正常人的概率极地![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+另外你说盒厂放弃原神，那你觉得天美放弃王者了吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+如果你没看清楚，让我们把时间调到2014年，当时正值腾讯游戏转型期，逆战策划说过从来不卖300元以上的武器。 放弃了吗？如放![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740878832">110.[0] \<pid:740878832\> 2024-01-31 18:59:45 by 刘伟莱特。</span>
+粗制滥造还不是一堆捏着鼻子抽的![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

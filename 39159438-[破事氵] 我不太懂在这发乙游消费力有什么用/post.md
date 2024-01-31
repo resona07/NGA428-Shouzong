@@ -304,3 +304,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我今天就是屁事多
 <b>有男不玩</b>
 
+----
+
+##### <span id="pid740878149">36.[0] \<pid:740878149\> 2024-01-31 18:55:48 by 旱獭邮箱</span>
+>[jump](#pid740821873) Drunk醉梦(2024-01-31 14:32) 说: 
+>
+>为了证明你们的有男不玩没有用，你们不玩我们一样可以氪很多金
+>
+>有力的回击了之前那种女玩家希望男玩家进去氪金养游戏这种寄生虫论调，没有男玩家，女玩家一样有十足的消费能力
+
+谢谢你，棉新年限和O新皮肤都挺色的，多充点吧
+谢谢你![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+

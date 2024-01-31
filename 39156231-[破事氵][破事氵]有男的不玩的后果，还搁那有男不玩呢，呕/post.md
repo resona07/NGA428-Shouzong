@@ -270,3 +270,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740864900">45.[0] \<pid:740864900\> 2024-01-31 17:44:48 by 俺の爱马omo</span>
 有男还玩导致的
 
+----
+
+##### <span id="pid740877398">46.[0] \<pid:740877398\> 2024-01-31 18:51:15 by mr4648932</span>
+龟男的福报![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740877703">47.[0] \<pid:740877703\> 2024-01-31 18:53:08 by glotia</span>
+看见了没，这就是不有男不玩的后果![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740878535">48.[0] \<pid:740878535\> 2024-01-31 18:57:56 by 五百船的沉没</span>
+![img](./48_f8ab33bw.gif)
+在厕所里炫吃的，但关灯所导致的痛苦经历，笑希了
+多多益善，挺好的
+
