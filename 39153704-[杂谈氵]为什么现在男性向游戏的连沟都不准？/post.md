@@ -150,3 +150,10 @@ TMD物化男性，这不举办能忍
 ##### <span id="pid740798985">27.[0] \<pid:740798985\> 2024-01-31 12:36:50 by 氯一色</span>
 腹肌呕呕呕![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid740801738">28.[0] \<pid:740801738\> 2024-01-31 12:50:33 by 641_</span>
+>[jump](#pid740725792) 咸菜白肚鱼(2024-01-31 00:37):
+
+出个游戏，就叫奥斯曼大苏丹![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+

@@ -396,3 +396,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740799461">66.[1] \<pid:740799461\> 2024-01-31 12:39:18 by 美式气泡咖</span>
 社管是过来打广告，要你们夸图好看呢，这套路都看不出来吗，手综老哥单纯呀![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
 
+----
+
+##### <span id="pid740801829">67.[0] \<pid:740801829\> 2024-01-31 12:50:57 by N3bu1a</span>
+这屁股还大啊？虽然确实不咋好看![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740802760">68.[2] \<pid:740802760\> 2024-01-31 12:55:48 by 七月上秋</span>
+集美经典话术，听了好几年了都，笑死个人
+
+----
+
+##### <span id="pid740802966">69.[0] \<pid:740802966\> 2024-01-31 12:56:54 by v535812</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)xxn是这样的
+
+----
+
+##### <span id="pid740802994">70.[0] \<pid:740802994\> 2024-01-31 12:57:05 by 我想静静2023</span>
+学学原，一样卡池之前水军吹新角色，但别人舍得买点赞团还有吹吹号，前几页定个基调，能骗一个是一个。
+对了，NGA就这么点流量，混厕....一般向还是放过它吧，微博小红书不是才是你们的主战场吗
+
+----
+
+##### <span id="pid740803253">71.[0] \<pid:740803253\> 2024-01-31 12:58:33 by LtheMelonEater</span>
+什么XXN，这屁股还没哥们练完的臀大肌大![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)  
+
+我的评价是自己长成香肠就不知道啥叫正常人了
+

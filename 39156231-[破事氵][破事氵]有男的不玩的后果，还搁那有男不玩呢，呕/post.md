@@ -229,3 +229,34 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740798699">38.[0] \<pid:740798699\> 2024-01-31 12:35:23 by absordh2odemon</span>
 老哥你刚才新发的帖子无了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid740800682">39.[2] \<pid:740800682\> 2024-01-31 12:45:11 by 梦与光的尽头</span>
+这是玩混厕的福报
+
+----
+
+##### <span id="pid740802298">40.[2] \<pid:740802298\> 2024-01-31 12:53:26 by xiangtongs</span>
+>[jump](#pid740798699) absordh2odemon(2024-01-31 12:35) 说: 
+>
+>老哥你刚才新发的帖子无了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+只能说，的确破防红眼了
+
+----
+
+##### <span id="pid740802450">41.[4] \<pid:740802450\> 2024-01-31 12:54:12 by 羽羽羽羽翼</span>
+混厕还要有男不练
+既不能尽情吃屎，还得小心翼翼专挑里面的玉米粒吃
+那不如一开始就别碰这坨
+
+----
+
+##### <span id="pid740802964">42.[0] \<pid:740802964\> 2024-01-31 12:56:54 by GreatWings</span>
+活该![嘲笑](https://img4.nga.178.com/ngabbs/post/smile/ac19.png)
+
+----
+
+##### <span id="pid740803321">43.[0] \<pid:740803321\> 2024-01-31 12:58:52 by 萨萨萨萨0918</span>
+在混厕里不能站着尿尿，很委屈吧
+

@@ -25,3 +25,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740800155">2.[0] \<pid:740800155\> 2024-01-31 12:42:39 by 河马大旋风</span>
 请问怎么开发票
 
+----
+
+##### <span id="pid740800708">3.[3] \<pid:740800708\> 2024-01-31 12:45:18 by mxjv5</span>
+不是因为魈战谁工作啊![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

@@ -140,3 +140,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那种纯蹭热度的真没意思，顶天20w字跑路，还是老书玩梗比较有意思![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740801572">20.[0] \<pid:740801572\> 2024-01-31 12:49:45 by 胖子猎人</span>
+>[jump](#pid740786362) solasl(2024-01-31 11:37) 说: 
+>
+>我们不会看的同一本吧，也是最近几天开始玩雷蒙和二手烟的梗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+话说95好惨，她的剧情感觉应该往被肥婆鱿鱼附体这方面写。
+
