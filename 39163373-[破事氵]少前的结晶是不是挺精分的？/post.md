@@ -185,3 +185,14 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740905044">28.[0] \<pid:740905044\> 2024-01-31 21:45:56 by 高咲侑Official</span>
 因为要骗人进去鲨，享受快感，所以说<b>有男不玩</b>的打击感那么强，就是因为骗不到人，结晶就急了![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid740907317">29.[0] \<pid:740907317\> 2024-01-31 22:01:53 by Milan米兰</span>
+少前的结晶玩家这可真有点可怜了。。
+这羽中这么乱搞剧情他们也还是要舔。。听着
+
+----
+
+##### <span id="pid740908158">30.[2] \<pid:740908158\> 2024-01-31 22:07:28 by 单杀成瘾</span>
+这低能说的我想笑。不是他自己要作的快死了会出这个ml剧情来找补？原剧情给大伙搬上来。结晶们这么不喜欢ml倒是多充点钱给羽中让他别跪呀![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+

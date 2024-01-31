@@ -137,3 +137,15 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740905593">20.[0] \<pid:740905593\> 2024-01-31 21:49:44 by va3kyrie</span>
 我也没有 氪了六位数吧
 
+----
+
+##### <span id="pid740908053">21.[0] \<pid:740908053\> 2024-01-31 22:06:45 by 古蕾娅的尾巴</span>
+#原神海灯节电话# 
+活动持续时间：1月31日~2月3日 9:00-20:00
+今天上午才开始呢，还有好几天，不用急![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+
+----
+
+##### <span id="pid740908911">22.[0] \<pid:740908911\> 2024-01-31 22:13:11 by 轻尘啊</span>
+米桑就爱搞打电话这套，像网易和某些游戏都只会发短信![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)
+

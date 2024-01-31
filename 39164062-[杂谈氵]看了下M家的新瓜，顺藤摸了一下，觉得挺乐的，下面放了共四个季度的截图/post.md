@@ -53,3 +53,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740907070">5.[0] \<pid:740907070\> 2024-01-31 22:00:12 by 随手的潇洒</span>
 补一个12315的投诉截图，大家看个乐子就行了。![img](./5_19f422sg.jpg)有兴趣的可以自己去查
 
+----
+
+##### <span id="pid740907606">6.[0] \<pid:740907606\> 2024-01-31 22:03:48 by 随手的潇洒</span>
+刚刚又好奇搜了下鹰角的![img](./6_51b8a9sg.jpg)一共5条，对比米哈游二百多，可以辩证看下问题![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

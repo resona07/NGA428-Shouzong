@@ -85,3 +85,99 @@ ocg和MD出卡思路不一样的，完全是两条世界线![偷笑](https://img
 ##### <span id="pid740906761">9.[1] \<pid:740906761\> 2024-01-31 21:58:08 by 影响567</span>
 鉴定为很有品德![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740907022">10.[12] \<pid:740907022\> 2024-01-31 22:00:00 by 天霆號</span>
+起码有一点 Konami是真的傻逼 玩这吊游戏的都恨不得把科乐美的马杀了 赛博孝子是不可能有的
+
+----
+
+##### <span id="pid740907073">11.[0] \<pid:740907073\> 2024-01-31 22:00:12 by 7X28X9</span>
+pvp？(觉察)我要开除这个游戏二籍![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740907082">12.[4] \<pid:740907082\> 2024-01-31 22:00:15 by yaoguanh</span>
+笑点解析：明
+
+----
+
+##### <span id="pid740907086">13.[5] \<pid:740907086\> 2024-01-31 22:00:17 by 叶湖EricWho</span>
+好家伙，英语也退环境了，现在都要k语言了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+不过konami应该没有孝子吧，看样子今后就不需要再更换语言设置了
+
+----
+
+##### <span id="pid740907276">14.[1] \<pid:740907276\> 2024-01-31 22:01:38 by 不再嘴硬</span>
+头皮的哲学
+学，学无止境
+
+----
+
+##### <span id="pid740907393">15.[3] \<pid:740907393\> 2024-01-31 22:02:21 by 孩子们我没肘</span>
+>[jump](#pid740906287) 黄前久美子子(2024-01-31 21:54) 说: 
+>
+>其实是你比较年轻，看他ID
+
+![抓狂](https://img4.nga.178.com/ngabbs/post/smile/ac29.png)是全家UR的下头男同均，有男不玩
+![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)什么？我也组了一套
+
+----
+
+##### <span id="pid740907453">16.[3] \<pid:740907453\> 2024-01-31 22:02:44 by Mélusine003</span>
+真是日日又月月啊![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740907529">17.[4] \<pid:740907529\> 2024-01-31 22:03:21 by 白锈-希思林</span>
+官方还卖基佬和百合![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740907658">18.[0] \<pid:740907658\> 2024-01-31 22:04:12 by yaoguanh</span>
+>[jump](#pid740907453) Mélusine003(2024-01-31 22:02) 说: 
+>
+>真是日日又月月啊![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+我日月神教怎么你了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740907863">19.[1] \<pid:740907863\> 2024-01-31 22:05:34 by scoutqq</span>
+![呲牙笑](https://img4.nga.178.com/ngabbs/post/smile/)它抽卡是不是也很便宜来着
+
+----
+
+##### <span id="pid740907989">20.[0] \<pid:740907989\> 2024-01-31 22:06:20 by a小包子</span>
+![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)精妙
+
+----
+
+##### <span id="pid740908048">21.[2] \<pid:740908048\> 2024-01-31 22:06:43 by 断神霹雳001</span>
+>[jump](#pid740907453) Mélusine003(2024-01-31 22:02) 说: 
+>
+>真是日日又月月啊![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+手综六大派围攻光绵顶是吧
+
+----
+
+##### <span id="pid740908294">22.[1] \<pid:740908294\> 2024-01-31 22:08:26 by 神代Loga</span>
+别说明儿，别说明儿![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740908860">23.[3] \<pid:740908860\> 2024-01-31 22:12:44 by JDzio</span>
+可爱的四星超量一枚呀
+![img](./23_57e5fft7.jpg)
+
+----
+
+##### <span id="pid740908978">24.[1] \<pid:740908978\> 2024-01-31 22:13:38 by 叶湖EricWho</span>
+>[jump](#pid740907022) 天霆號(2024-01-31 22:00) 说: 
+>
+>起码有一点 Konami是真的傻逼 玩这吊游戏的都恨不得把科乐美的马杀了 赛博孝子是不可能有的
+
+自信点，游戏王玩家、小岛秀夫粉丝、以及原本在等续作的《寂静岭》粉丝都恨不得杀了k社的马![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
