@@ -71,3 +71,8 @@ NTR铁三角就此达成![goodjob](https://img4.nga.178.com/ngabbs/post/smile/ac
 
 去掉第一个这个定义的话，不可呼其名的游戏是不是就是这样啊，没玩过，
 
+----
+
+##### <span id="pid740847479">5.[0] \<pid:740847479\> 2024-01-31 16:25:52 by 节奏大师小号</span>
+果然写长了没人看![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+

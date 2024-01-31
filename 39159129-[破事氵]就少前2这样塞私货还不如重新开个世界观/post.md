@@ -143,3 +143,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 ![img](./19_6b5a42cr.jpg)这玩意怎么会被传成要生小孩了![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid740847988">20.[0] \<pid:740847988\> 2024-01-31 16:28:00 by 叶公好龙娘</span>
+阿宅的钱还难赚？
+他花钱的时候不希望看黄毛
+也不希望女仆给小孩子生小孩
+
+厂商现在你说一句爱肥宅会死一样
+那你没有教义基础 那就去似吧
+

@@ -358,3 +358,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 搜一下红色高棉
 
+----
+
+##### <span id="pid740846122">44.[0] \<pid:740846122\> 2024-01-31 16:19:30 by Final Vent</span>
+>[jump](#pid740843888) 绝顶一览(2024-01-31 16:09) 说: 
+>
+>![img](./41_b9ca2csg.jpg)
+>在？看看定型文
+
+这不是痒痒鼠玩家先提出来的么……结合前面的回复，太讽刺了。~~再次让我回忆起退坑跑路的原因之一~~![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid740846277">45.[0] \<pid:740846277\> 2024-01-31 16:20:15 by eigenlife</span>
+>[jump](#pid740830134) yffiM_333(2024-01-31 15:09):
+
+乖，学会了吧，回去教教其他人都这么喊。
+

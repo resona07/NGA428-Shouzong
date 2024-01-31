@@ -354,3 +354,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 滋润是怎么个滋润法？
 一般独立游戏开发者steam能卖一千份吗？
 
+----
+
+##### <span id="pid740846859">43.[0] \<pid:740846859\> 2024-01-31 16:23:05 by 向着天空的彼方</span>
+说说客套和场面话罢了, 可某些&quot;货&quot;连场面也不愿维护;![无语](https://img4.nga.178.com/ngabbs/post/smile/ac32.png)
+

@@ -437,3 +437,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740842685">78.[0] \<pid:740842685\> 2024-01-31 16:04:12 by ZGDX夜</span>
 你知道的我一直支持厂商出全男乙游的![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
+----
+
+##### <span id="pid740847381">79.[0] \<pid:740847381\> 2024-01-31 16:25:29 by F凵匚K00</span>
+非要出一个有全男和全女两个版本的游戏，让所有人自选版本下载且分开统计流水才能堵住你们说瞎话的嘴吗？![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+不过我完全支持所有厂商奔向女性向的蓝海，千万不要玩缅北手段![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740848317">80.[0] \<pid:740848317\> 2024-01-31 16:29:25 by AyPete</span>
+你麻痹的第几帖了，一看又是几小时前。
+
+那你们这些木构能不能上报给厂商让他们全去做全男，毕竟有你们氪![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+

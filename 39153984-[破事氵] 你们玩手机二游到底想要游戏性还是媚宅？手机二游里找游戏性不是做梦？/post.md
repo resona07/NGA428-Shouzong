@@ -268,3 +268,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 有男不玩就是有男不玩，我需要你给我解释我怎么定义我的有男不玩？![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740846493">40.[0] \<pid:740846493\> 2024-01-31 16:21:17 by zike007</span>
+不是，你是不是以为这里是国服FF14招募版还是什么的，开口就是你们男的你们宅男哥然后直接开aoe地图炮？![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)
+
+----
+
+##### <span id="pid740847542">41.[0] \<pid:740847542\> 2024-01-31 16:26:09 by CrniBombarderi</span>
+![img](./41_584f42ym.jpg)
+

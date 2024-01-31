@@ -200,3 +200,31 @@ mrfz过抖？我不信
 
 日服没过ba？应得的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740846919">31.[0] \<pid:740846919\> 2024-01-31 16:23:23 by CureFlora</span>
+>[jump](#pid740837358) asteroidsssss(2024-01-31 15:40):
+
+你猜日服第一是谁![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740847109">32.[0] \<pid:740847109\> 2024-01-31 16:24:15 by 白锈-希思林</span>
+王者荣耀是不是已经开始龙令了今天
+
+----
+
+##### <span id="pid740847647">33.[0] \<pid:740847647\> 2024-01-31 16:26:33 by featherine1988</span>
+>[jump](#pid740847109) 白锈-希思林(2024-01-31 16:24) 说: 
+>
+>王者荣耀是不是已经开始龙令了今天
+
+开了，但是2月6日才能开进阶拿英雄，不会有人今天买等级吧
+
+----
+
+##### <span id="pid740847713">34.[0] \<pid:740847713\> 2024-01-31 16:26:45 by asteroidsssss</span>
+>[jump](#pid740846919) CureFlora(2024-01-31 16:23):
+
+谁？棒球？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

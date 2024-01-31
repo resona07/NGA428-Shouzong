@@ -149,3 +149,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740842007">25.[0] \<pid:740842007\> 2024-01-31 16:01:07 by 暗辰灭斩</span>
 不得不出几个女5星留人的时候，一定很委屈吧？怪不得做了这么些玩意想报复回来，可惜报复不到已经走了的人呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 
+----
+
+##### <span id="pid740847112">26.[0] \<pid:740847112\> 2024-01-31 16:24:16 by 约束的现世</span>
+很委屈吧 被迫做烧鸡zng还不买账的时候![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+yysy做女角色的委屈劲真在这里体现的淋漓尽致
+
