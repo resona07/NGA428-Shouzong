@@ -470,3 +470,30 @@ cm本子爆款的不都是全女的吗![汗](https://img4.nga.178.com/ngabbs/pos
 你知道过去汐斯塔扭蛋广场的景象吗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
 顺便二创热度当然是看国内，不会有国产游戏二创热度看霓虹吧![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
 
+----
+
+##### <span id="pid740821107">62.[1] \<pid:740821107\> 2024-01-31 14:28:43 by 辛舒申丁司曹</span>
+>[jump](#pid740818751) 灰流lu(2024-01-31 14:17) 说: 
+>
+>你知道过去汐斯塔扭蛋广场的景象吗![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>顺便二创热度当然是看国内，不会有国产游戏二创热度看霓虹吧![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+
+知道啊，怎么了，舟版以前二创热度再高跟现在xxn版有什么关系吗![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)米粥69好吧，谢谢二创们出逃不用跟你粥版共沉沦，以前环境多好现在就有多糟糕![img](./62_9076bbtg.jpg)![img](./62_b8147c9q.jpg)![img](./62_cf27c2d0.jpg)![img](./62_d71069pp.jpg)
+
+----
+
+##### <span id="pid740821475">63.[2] \<pid:740821475\> 2024-01-31 14:30:28 by 弦上栎</span>
+开始打滚![哦](https://img4.nga.178.com/ngabbs/post/smile/ac12.png)
+
+----
+
+##### <span id="pid740823409">64.[0] \<pid:740823409\> 2024-01-31 14:39:39 by 木逸杨ALEX</span>
+>[jump](#pid740802385) RavenFubuki(2024-01-31 12:53) 说: 
+>
+>这么个不温不火的数值和当初夸下的海口差距是肉眼可见的
+>[url](https://bbs.nga.cn/read.php?tid=19781477)
+
+这个链接点进去看到了这条![img](./64_3944aavv.jpg)
+点开评论链接那个帖子最后有人发了句这个![img](./64_72feaeo4.png)
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+

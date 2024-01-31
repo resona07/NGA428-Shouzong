@@ -73,3 +73,22 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740821201">8.[0] \<pid:740821201\> 2024-01-31 14:29:11 by RavenFubuki</span>
 串流适合在家懒得爬起来的情况，出门玩还要折腾内网穿透
 
+----
+
+##### <span id="pid740821608">9.[0] \<pid:740821608\> 2024-01-31 14:31:01 by LongPigeon</span>
+>[jump](#pid740820552) 蓬莱山三日月(2024-01-31 14:26) 说: 
+>
+>真不是op
+>只是想推荐二游这么反胃，不如试试手机玩端游![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+主要是我觉得目前最适配手机的游戏类型就是视觉小说、moba和简单的二游，玩其他类型的游戏，像是fps和3d动作类纯纯的就是折磨自己了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+当然，仅代表本人拙见
+
+然后，仙蛆4000+，有男不玩
+
+----
+
+##### <span id="pid740823321">10.[0] \<pid:740823321\> 2024-01-31 14:39:14 by 一五一十五</span>
+这叫串流
+

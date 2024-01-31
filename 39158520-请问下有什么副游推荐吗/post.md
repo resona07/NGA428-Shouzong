@@ -167,3 +167,20 @@ nikke，白荆
 
 我论坛头像就是原![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，受不了剧情也不能跳，现在只玩朋友的号打打深渊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740823870">23.[0] \<pid:740823870\> 2024-01-31 14:41:52 by 黑 魂</span>
+>[jump](#pid740816348) NO10999(2024-01-31 14:06) 说: 
+>
+>我论坛头像就是原![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，受不了剧情也不能跳，现在只玩朋友的号打打深渊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+挺好的啊，一个打着玩，一个过剧情，这边过完剧情开玩，那边正好看录像清体力，
+多配呀![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid740824320">24.[0] \<pid:740824320\> 2024-01-31 14:43:52 by 某块面包</span>
+>[jump](#pid740815474) NO10999(2024-01-31 14:02):
+
+元前简单点，但是好装备你只能刷~~并且还要忍受凉屋的破服务器，这边建议是不要瞎点不认识的按钮，没准哪一下你就卡死了~~
+

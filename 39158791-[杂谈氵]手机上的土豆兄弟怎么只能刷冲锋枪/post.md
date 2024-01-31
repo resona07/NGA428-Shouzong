@@ -74,3 +74,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740820309">10.[0] \<pid:740820309\> 2024-01-31 14:24:57 by IA2499274810</span>
 没玩过，我玩pc的
 
+----
+
+##### <span id="pid740824233">11.[0] \<pid:740824233\> 2024-01-31 14:43:23 by 东北龙卷风跳跳猴</span>
+>[jump](#pid740815225) 0083星辰回忆(2024-01-31 14:01) 说: 
+>
+>手机版有土豆枪吗？我开修改找不到这个…
+
+有啊，土豆枪要大壮通关(任意难度)后解锁![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+

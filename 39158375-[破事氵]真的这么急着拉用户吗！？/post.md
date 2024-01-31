@@ -83,3 +83,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我刚收到一个刻晴电话
 ~~最搞笑的是，被因“骚扰电话”拦截了~~
 
+----
+
+##### <span id="pid740822287">15.[0] \<pid:740822287\> 2024-01-31 14:34:13 by kokoro331</span>
+真实的绿鬼拜年了，不过绿鬼这玩意不是本子的吗？？？国内有绿鬼红鬼蓝鬼这玩意吗
+

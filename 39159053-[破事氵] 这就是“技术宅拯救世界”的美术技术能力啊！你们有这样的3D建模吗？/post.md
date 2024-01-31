@@ -43,3 +43,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740819100">7.[0] \<pid:740819100\> 2024-01-31 14:19:21 by 巴基和比约恩</span>
 这么还原的老奶奶秋裤，还不是建模实力的体现？
 
+----
+
+##### <span id="pid740821811">8.[0] \<pid:740821811\> 2024-01-31 14:31:57 by Nekonya_</span>
+这你们就不懂了，这波是纹化输出啊，输出中国的秋裤，还是大妈款式![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740822160">9.[0] \<pid:740822160\> 2024-01-31 14:33:34 by 妳舟米陸玖Me有嬲不玩</span>
+不出男角色导致的
+
+----
+
+##### <span id="pid740822825">10.[3] \<pid:740822825\> 2024-01-31 14:36:44 by Aramil11</span>
+这个角色是真的丑,哪怕不是米哈游我都要说丑
+全身乌漆嘛黑+老套刻板到极致的红框眼镜
+我直接地图炮,喜欢这角色的人零审美,又土又丑![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
