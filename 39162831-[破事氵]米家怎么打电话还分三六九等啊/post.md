@@ -28,3 +28,47 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 真tm晦气，之前给我短信推新版本我能退订，电话却好像没办法，我多希望这初生忘了我。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740889136">4.[2] \<pid:740889136\> 2024-01-31 20:02:54 by 巴基和比约恩</span>
+收到了电话 闲云打来的~~亏我当年还挺期待这个鸟人~~ 氪了十几个648吧大概
+直接挂了
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740889350">5.[0] \<pid:740889350\> 2024-01-31 20:04:07 by 顺劈带暴击</span>
+>[jump](#pid740889136) 巴基和比约恩(2024-01-31 20:02) 说: 
+>
+>收到了电话 闲云打来的
+>直接挂了
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我接了，然后我一听，好夹啊
+给我恶心到了，直接挂了
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740890272">6.[0] \<pid:740890272\> 2024-01-31 20:09:29 by 聋哥就是龙</span>
+我氪了几千块一个电话都没有。
+估计是退坑太久了
+
+----
+
+##### <span id="pid740890321">7.[1] \<pid:740890321\> 2024-01-31 20:09:47 by 巴基和比约恩</span>
+>[jump](#pid740889350) 顺劈带暴击(2024-01-31 20:04) 说: 
+>
+>我接了，然后我一听，好夹啊
+>给我恶心到了，直接挂了
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+没听就挂了 
+不接丑女电话
+![抓狂](https://img4.nga.178.com/ngabbs/post/smile/ac29.png)
+
+----
+
+##### <span id="pid740890900">8.[0] \<pid:740890900\> 2024-01-31 20:13:24 by 想啊非常的想啊</span>
+没接，举报骚扰电话了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

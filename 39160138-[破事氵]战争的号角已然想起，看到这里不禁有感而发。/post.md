@@ -140,3 +140,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那倒也不用了，我怕你也变成幽默棉花![泪3](https://img4.nga.178.com/ngabbs/post/smile/pt40.png)
 
+----
+
+##### <span id="pid740889507">18.[0] \<pid:740889507\> 2024-01-31 20:04:57 by rream_kly</span>
+人家被有男不玩有百合不玩糊脸后恼羞成怒直接对手综单方面的屠杀，哪来的战争？
+

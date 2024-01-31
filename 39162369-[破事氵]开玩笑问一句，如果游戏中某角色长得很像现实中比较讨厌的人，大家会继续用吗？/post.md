@@ -151,3 +151,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740886915">25.[0] \<pid:740886915\> 2024-01-31 19:49:13 by mxjv5</span>
 玛雅，这不是金畜吗
 
+----
+
+##### <span id="pid740889722">26.[0] \<pid:740889722\> 2024-01-31 20:06:11 by lnww</span>
+啊？我还想了一下是谁![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid740889858">27.[0] \<pid:740889858\> 2024-01-31 20:07:00 by 奸奇至尊巫师</span>
+我不认识长得像这个的人，但是嘴巴咧这么长本身就不自然
+
+----
+
+##### <span id="pid740890282">28.[0] \<pid:740890282\> 2024-01-31 20:09:32 by 二刺螈之王师傅</span>
+想起昨天看到的旧闻![扇笑](https://img4.nga.178.com/ngabbs/post/smile/)
+
+![img](./28_dbe29ffi.jpg)
+

@@ -56,3 +56,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740887528">8.[0] \<pid:740887528\> 2024-01-31 19:53:12 by 对对双双</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)因为ai卡面都被骂烂了
 
+----
+
+##### <span id="pid740889933">9.[1] \<pid:740889933\> 2024-01-31 20:07:24 by 丿夕日坂</span>
+这不叫麻辣那什么叫麻辣？![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+
+----
+
+##### <span id="pid740890539">10.[2] \<pid:740890539\> 2024-01-31 20:11:13 by 一德格拉米诺斯</span>
+>[jump](#pid740887318) duqlwx(2024-01-31 19:51) 说: 
+>
+>为啥没人对她们说性焦虑
+
+对她们说性焦虑？性焦虑挂嘴边的那帮人可是会跟着女的一起拿乙游拉踩男性向的，人家屁股本来就是歪的，性焦虑只是一个劝男玩家反思的龟训话术。
+该怎么做也很简单，反思个锤子，有男不玩![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid740890595">11.[0] \<pid:740890595\> 2024-01-31 20:11:34 by 上单单排</span>
+版本答案是这样的
+

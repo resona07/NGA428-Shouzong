@@ -163,3 +163,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 因为只是发不了新贴，而不是把发过的贴全隐藏了
 
+----
+
+##### <span id="pid740889836">23.[0] \<pid:740889836\> 2024-01-31 20:06:53 by シキ</span>
+>[jump](#pid737323221) jblz4742(2024-01-11 16:20) 说: 
+>
+>算吗 我寻思指挥官前期也妹吃瘪啊，除了忍痛把玛丽安送出去之外
+
+前面被舒恩骑脸嘲讽凌辱![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)到最新剧情才三十年河东三十年河西
+
