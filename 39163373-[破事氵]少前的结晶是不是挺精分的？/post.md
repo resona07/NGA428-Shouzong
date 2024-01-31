@@ -149,3 +149,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 想营造宏大的，偏向黑暗残酷的，带点后启示录的世界观
 但是得靠“女角色和宅宅之间的感情“来溢价赚钱。
 
+----
+
+##### <span id="pid740901650">23.[0] \<pid:740901650\> 2024-01-31 21:21:59 by 浴紫而生</span>
+川友笑人勾巴短多少有点搞笑
+
+----
+
+##### <span id="pid740902233">24.[0] \<pid:740902233\> 2024-01-31 21:26:04 by Ruby9627</span>
+狠狠共振了是这样的![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid740902399">25.[0] \<pid:740902399\> 2024-01-31 21:27:12 by 叶公好龙娘</span>
+烧钱就是泥一部分宅男的缩影
+消费个性产品和做贼一样
+前恭后倨![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)龟而不得
+

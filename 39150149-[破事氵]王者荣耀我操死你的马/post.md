@@ -310,3 +310,36 @@ nga管理都吃屎去了吗？这样的帖子不删留在干嘛？有些帖子�
 ##### <span id="pid740899714">50.[0] \<pid:740899714\> 2024-01-31 21:09:15 by Ranma0</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)没让你抽180次就谢天谢地咯
 
+----
+
+##### <span id="pid740900750">51.[0] \<pid:740900750\> 2024-01-31 21:15:38 by 防火防盗防盒</span>
+霞和厄斐琉斯的缝合怪![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+然后这两个都有冠军皮肤![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+这强度不好说了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid740900870">52.[0] \<pid:740900870\> 2024-01-31 21:16:31 by 花落寂寥</span>
+才38？
+不比二游648好多了？
+我看隔壁这句话点赞挺多了，看看这版复读有没有用![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+提醒一下，农药是moba游戏
+
+----
+
+##### <span id="pid740901398">53.[0] \<pid:740901398\> 2024-01-31 21:20:11 by 上单单排</span>
+虽然已经很久不玩，但它出个战令英雄，你想玩就必须氪，挺恶心的，![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)也不知道我那个王者号能卖多少钱。。想卖了。
+
+----
+
+##### <span id="pid740901507">54.[0] \<pid:740901507\> 2024-01-31 21:21:01 by 三无酱</span>
+moba游戏不该犯这种错啊
+
+王者这体量，靠哪种手法不能挣一样的钱啊。
+
+----
+
+##### <span id="pid740902699">55.[1] \<pid:740902699\> 2024-01-31 21:29:22 by みずきしらぬい</span>
+没办法啊，体量太大了。你不买有的是人买。![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+

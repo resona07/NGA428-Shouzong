@@ -970,3 +970,13 @@ zzz也一眼崩4
 
 这号只骂米哈游相关的东西，肯定没事啊
 
+----
+
+##### <span id="pid740902130">121.[0] \<pid:740902130\> 2024-01-31 21:25:20 by KewIin</span>
+>[jump](#pid740899640) 止水-3(2024-01-31 21:08) 说: 
+>
+>这号只骂米哈游相关的东西，肯定没事啊
+
+说好的把头拧下来关号什么事![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+啥时候直播了直播间留一个![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
