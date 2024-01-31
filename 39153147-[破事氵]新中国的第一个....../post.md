@@ -341,3 +341,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid740744344">55.[0] \<pid:740744344\> 2024-01-31 08:02:51 by 大a加油</span>
 古代大多数公公自宫是活不下去了，但凡有条活路也不想阉了。图里这尊称一句——神龟![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740746447">56.[0] \<pid:740746447\> 2024-01-31 08:22:25 by dkas333</span>
+我一直以为只有腐女才有这种伺候俩男同主人的想法，毕竟我在网上真见过这种腐女![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
+

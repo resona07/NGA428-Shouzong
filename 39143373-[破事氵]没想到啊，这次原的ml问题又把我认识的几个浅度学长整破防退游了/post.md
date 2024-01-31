@@ -276,3 +276,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 又有魈战？
 海灯节魈战剧情算是我第一次被一个游戏的剧情恶心到。
 
+----
+
+##### <span id="pid740747020">47.[0] \<pid:740747020\> 2024-01-31 08:27:09 by 臻高杏</span>
+![瓜不熟](https://img4.nga.178.com/ngabbs/post/smile/)还在“不要打扰他们”，不愧是米氏文案真是又低能又喜欢玩烂梗
+

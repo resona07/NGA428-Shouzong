@@ -354,3 +354,13 @@ byd还画挺好![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid740745174">67.[0] \<pid:740745174\> 2024-01-31 08:11:15 by dkas333</span>
 好！这是坛友点的香香鸡！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid740746057">68.[0] \<pid:740746057\> 2024-01-31 08:19:07 by 暗之火灵</span>
+这个太棒了![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)好像被她一步到胃
+
+----
+
+##### <span id="pid740746199">69.[0] \<pid:740746199\> 2024-01-31 08:20:23 by 生气牛仔裤</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这才是nga！
+

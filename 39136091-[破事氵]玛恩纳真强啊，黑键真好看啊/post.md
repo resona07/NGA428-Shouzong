@@ -1658,3 +1658,12 @@ zsbd![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
 你发现了华点，盲僧![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
 
+----
+
+##### <span id="pid740747230">190.[0] \<pid:740747230\> 2024-01-31 08:28:53 by qqjing</span>
+>[jump](#pid740714009) 黄前久美子子(2024-01-30 23:08) 说: 
+>
+>别哪天了，本期塔和皮肤除了和弦全是粽子，微博厕所忙着咒影法师亖和高度赞赏剩下的皮呢，这还不算偏向？
+
+你都去厕所了，还要问这里为何有屎![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
